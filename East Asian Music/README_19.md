@@ -1,3 +1,32 @@
+###  Публикация: 1686323   (126617) от 22.12.2023
+
+Lovebites - Knockin' At Heaven's Gate - Part II (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Piano Solo (Etude Op.10, No.12) (Live - March 12, 2023) [00:01:39]
+02. Swan Song (Live - March 12, 2023) [00:08:04]
+03. Judgement Day (Live - March 12, 2023) [00:06:12]
+04. When Destinies Align (Live - March 12, 2023) [00:06:26](   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 2 CD, 01:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBDAB7AF19C4B3D1EF4952FC8F9FC3C9E7A0C657
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689788   (124364) от 04.01.2024
 
 Electric Asturias - Dimensions (2023) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Symphonic Rock>
@@ -752,35 +781,6 @@ MOMOLAND - женская K-Pop группа компании MLD Entertainment.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F683F0A1B0BD5B680C624ACF9510894B5A2EE10F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815548   (5152) от 30.08.2025
-
-Dasu - Nakakapagpabagabag (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Nakakapagpabagabag
-03. 86
-04. Bulalo(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD39DA29F4BA57D5F306CDC75574C3C40F56E7EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

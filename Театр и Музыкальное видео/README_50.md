@@ -1,3 +1,118 @@
+###  Публикация: 871408   (751642) от 22.05.2016
+
+Elvis Presley - Aloha From Hawaii (1973) 2хDVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elvis Arrives And Greets Fans
+02. Also Sprach Zarathustra
+03. See See Rider; Vamp See See Rider
+04. Burning Love(   Читать дальше...   )Беспрецедентное шоу на Гавайях — «Aloha From Hawaii». Концерт в Гонолулу 14 января 1973 года стал не только одной из самых интересных записей «позднего» Элвиса (Elvis Presley), но и первым в истории концертов, транслируемом по спутниковому телевидению. По различным оценкам, аудитория концерта превысила миллиард человек. В ходе шоу прозвучали старые и новые хиты, (   Читать дальше...   )Производство: Elvis Presley Enterprises, IncЖанр: Rock-n-Roll, Rockabilly, SoulРежиссер: Marty Pasetta, Gary HoveyАктеры: Элвис Пресли и другие...Продолжительность: 04:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A08C3D4F61D56A983FB2105B1C2ED6B49B6EC89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 663788   (751321) от 02.06.2013
+
+The ВЙО - Карпаты (2013) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POPПродолжительность: 00:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E97828AF6C8C32FDBBF75B3833BAF5F242F40763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281420   (751060) от 08.02.2019
+
+Кипелов - 60 (2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеверсия концерта, который состоялся 1 декабря 2018 года в московском Adrenaline Stadium. Валерий Кипелов отмечает 60-летний юбилей. За сорок лет своей музыкальной карьеры он прошёл впечатляющий путь - от советских ВИА "Лейся, песня" и "Поющие сердца" до культовой Heavy Metal группы "Ария" и собственного проекта "#Кипелов". (   Читать дальше...   )1. Жить вопреки
+2. Власть огня
+3. Дама пик
+4. Выше(   Читать дальше...   )Производство: РЕН ТВЖанр: Музыкальный, концертПродолжительность: 02:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD7B3B0DA6C4FFE343B8A76E0073F98BBA3D5C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988837   (750987) от 11.01.2022
+
+Foreigner - Rockin' at the Ryman (2011) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт 16 марта 2010 года в Ryman Theatre, в Нашвилле, США. Прозвучали как композиции из нового альбома, так и всеми любимые хиты группы.…
+
+Filmed on the 16th March 2010, ROCKIN' AT THE RYMAN finds 80s pop sensation Foreigner back doing what they do best; rocking out loud. Blu-Ray versions of the live concert in the famous Rayman Theatre, be sure to stay updated (   Читать дальше...   )01. Double Vision
+02. Head Games
+03. Cold As Ice
+04. In Pieces(   Читать дальше...   )Жанр: RockПродолжительность: 01:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74644CE655C5F9851A7AD058A6C86637D06E62F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 663800   (750690) от 02.06.2013
 
 Винтаж - Знак Водолея (2013) [H.264/1080p] WEB-DLRip
@@ -588,119 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:528C9AF85A91804ACE23C5682F31C0B9DD6D915E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282209   (743522) от 13.02.2019
-
-Квартирник НТВ у Маргулиса. Любэ (09.02.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743522.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гости на «Квартирник НТВ у Маргулиса» пришла группа «Любэ». Музыканты исполнили свои лучшие композиции, а Николай Расторгуев рассказал о своем образовании, начале музыкальной карьеры и происхождении названия коллектива. Также Евгений Маргулис выяснил, в каких музыкальных группах состоял Николай и почему он отказался от сценического образа в гимнастерке. Хозяин (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:07:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4122DCF68F8576F89C6C13186F44FC588FF4444B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015545   (743458) от 27.05.2016
-
-Lisa Stansfield - Live In Manchester '2014 DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись выступления Лизы Стэнсфилд в ее родном городе Манчестере в Бриджуотер-холле 7 сентября 2014 в ходе ее европейского тура.01. Can't dance
-02. Set your loving free
-03. The real thing
-04. Stupid heart(   Читать дальше...   )Производство: earMUSICЖанр: МузыкальныйРежиссер: Тим Сидвелл/Tim SidwellАктеры: Лиза Стэнсфилд и группа/Lisa Stansfield & bandПеревод: ОтсутствуетПродолжительность: 01:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10B3D1AE179C1A1113E8B2121B3E13A8B7278304
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 783686   (743296) от 05.05.2014
-
-Queen - Rock Montreal & Live Aid (1981) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Queen Rock Montreal — концертный альбом британской рок-группы Queen, который вышел 29 октября 2007 года. В альбом вошли песни с концерта в Монреале 24 ноября 1981 года.01. Intro
-  02. We Will Rock You (Fast)
-  03. Let Me Entertain You
-  04. Play The Game(   Читать дальше...   )Жанр: RockРежиссер: Сауль Свиммер / Saul SwimmerПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: нетПродолжительность: 01:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A1E66A0289B324128DBCED0FCCF2044DD692D52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018094   (743098) от 27.05.2016
-
-John Fogerty - Live at Stagecoach Country Music Festival (2016) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление Джона Фогерти (экс-гитариста/вокалиста Creedence Clearwater Revival) на фестивале кантри музыки Stagecoach 30.04.2016г.01.Travelin' Band
-02.Green River
-03.Who'll Stop the Rain
-04.Lookin' Out My Back Door(   Читать дальше...   )Жанр: МузыкальныйРежиссер: Stagecoach Country Music FestivalАктеры: John FogertyПеревод: ОтсутствуетПродолжительность: 01:26:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EDBAB27B5444F55BC17A3E364A1009FB4716602
 ```
 
 https://mybot314.ru/tekegram_catalog/

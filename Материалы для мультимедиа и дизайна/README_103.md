@@ -1,3 +1,110 @@
+###  Публикация: 1205520   (783455) от 10.02.2018
+
+3D модели - Daz 3D - Ivan 7 Pro Bundle - 30853 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Ivan 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C946FED09B8AACB2E45409A3558FFEE5FE16138F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205501   (783445) от 10.02.2018
+
+3D модели - Daz 3D - Centaur 7 Male Pro Bundle - 37321 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Centaur 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0853C3E4548162F7FA1B73D11CB17AFD311ACBE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205509   (783439) от 10.02.2018
+
+3D модели - Daz 3D - Ancient Egypt Bundle – Character, Outfit, Expansion and Poses - 39285 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Ancient Egypt для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FEBB773A714417DA57F2865F355CADD3AB8E0DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205592   (783431) от 10.02.2018
+
+3D модели - 3ddd - Сборка игрушечного транспорта [V-Ray|*.max, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник игрушечного транспорта входит Lego и радиоуправляемые модельФормат: V-Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07322826FAEBF52081BDD2CD9094D6BE9BF61137
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205490   (783424) от 10.02.2018
 
 Экшены - GraphicRiver - Watercolor 2 Artist Photoshop Action - 21313459 [ATN, ABR, PAT]
@@ -586,113 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16CF5D92F46C83E20CF16ECCB96C2E86D6BB3389
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206387   (782499) от 13.02.2018
-
-Растровый клипарт - Deeezy - Jelly Candy 3D Lettering / Мармеладный 3D алфавит [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алфавит в виде мармеладных конфет в 3D, цветной. Латиница. Дополнительно цифры, знаки препинания и т.п.Формат: PNGРазрешение файлов: 3000 x 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92BC9DEF99F68F10550DEDD8DE55C380D25F2F33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206344   (782495) от 13.02.2018
-
-Векторный клипарт - Зайчик и лисичка в векторе [AI, EPS, CRD]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Зайчик и лисичка по 9 шт AI, EPS, CRD + jpg.Формат: AI, EPS, CRD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F4C46EFDADEC0C71425D48C338204ED8875F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206352   (782392) от 13.02.2018
-
-Шаблоны - Free Hardcover Book Title Cover Mockup [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фантастические 3D-макеты с двумя 3D-сценами. Файлы PSD полностью настраиваются и создаются с хорошо организованными слоями, названными правильно. Легко меняйте книжный переплет и название с помощью смарт-объектов.Формат: PSDРазрешение файлов: 2200x1700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB615D564D6A58929DD4CE9923E573A8CB85293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206468   (782137) от 14.02.2018
-
-Векторный клипарт - Vector Happy Valentines Day #17 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-С Днем Святого Валентина
-50 AI + jpg PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26D246E3DE5000F56D1C00B8361AC4BF289F0BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

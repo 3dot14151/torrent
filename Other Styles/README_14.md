@@ -1,3 +1,119 @@
+###  Публикация: 976576   (968650) от 18.01.2016
+
+VA - Крид: Наследие Рокки  / Creed (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с] <Soundtrack, Hip-Hop, Rap, R&B, Soul>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future - Last Breath (3:59)
+02. Meek Mill - Check (3:14)
+03. White Dave - Intolerant (3:34)
+04. The Roots - The Fire (feat. John Legend) (3:41)(   Читать дальше...   )Жанр: Soundtrack, Hip-Hop, Rap, R&B, SoulПродолжительность: 01:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD443B1C8A3A4591FDDA9D65322D9C7F8F66478
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 745413   (968177) от 14.01.2014
+
+David Arkenstone - Ocean Dreams (2006) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude (1:07)
+02. Along the Shore (6:37)
+03. Swirling Pools (6:16)
+04. Beachcomber (5:48)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB1BEE4BD64E20E8DE869D6E72D59E3C396438E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 168685   (967578) от 23.01.2010
+
+Dale Cooper Quartet and the Dictaphones - Parole De Navarre (2006) [FLAC|Lossless]<Krautrock, Ambient, Jazz Noir, Drone>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ta Grenier (4:14)
+02 - Une Cellier (11:08)
+03 - La Boudoir (4:18)
+04 - Aucun Cave (6:49)(   Читать дальше...   )Жанр: Krautrock, Ambient, Jazz Noir, DroneПродолжительность: 01:11:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358712   (967311) от 09.02.2020
+
+Alexandre Desplat - Little Women / Маленькие женщины (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Women (03:12)
+02. Plumfield (03:39)
+03. The Beach (02:49)
+04. Christmas Morning (02:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8F4CEDE382055379CAA015EF8331E1A7769301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358713   (967229) от 09.02.2020
 
 Alexandre Desplat - Little Women / Маленькие женщины (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -635,122 +751,6 @@ Mike Oldfield - Tubular Beats (2013) /WEB/ [FLAC (tracks)|Lossless]<New Age, Ele
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747264   (962548) от 19.01.2014
-
-Dominic Miller & Neil Stacey - New Dawn (2002) [FLAC|Lossless]<Jazz, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Dawn [04:30]
-02. La Belle Dame Sans Regrets [03:47]
-03. El Fado [02:29]
-04. La Boca [03:48](   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275B85369821759A0C719628C7F2C28390812ABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747255   (962541) от 19.01.2014
-
-Antonio Forcione - Dedicato (1996) [FLAC|Lossless]<Acoustic Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962541.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tiramisu
-2. Twilight
-3. Maya's Song
-4. Dedicato(   Читать дальше...   )Жанр: Acoustic GuitarПродолжительность: 00:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81FCFA20AED12A89730EF66E7BC6780E0D0E9C92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747221   (962539) от 19.01.2014
-
-Acoustic Mania - Talking Hands (1997) [FLAC|Lossless]<Instrumental, Easy listening, Acoustic-Guitars>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962539.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Birdland 5:40
-2. David 2:58
-3. Festival 3:38
-4. Karate 4:50(   Читать дальше...   )Жанр: Instrumental, Easy listening, Acoustic-GuitarsПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9285F4C935DBD1683525FF42EE56814436E0493D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747501   (962438) от 19.01.2014
-
-Trance Lucid - Arise (1996) [FLAC|Lossless]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 April
-02 Balloons
-03 Unbridled
-04 Leaving(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D3EF164A73A0E6188D8D764697CBDE42346025
 ```
 
 https://mybot314.ru/tekegram_catalog/

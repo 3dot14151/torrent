@@ -1,22 +1,25 @@
-###  Публикация: 1421655   (317174) от 05.11.2020
+###  Публикация: 1582739   (318931) от 11.10.2022
 
-Губка Боб в бегах / The SpongeBob Movie: Sponge on the Run (2020) WEB-DL [H.264/1080p]
+Them - Return To Hemmersmoor (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
 
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318931.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Губка Боб и Патрик вынуждены отправиться в опасное путешествие, чтобы найти пропавшего питомца Гэри. Поиски похищенной улитки приводят друзей в манящий и обманчивый затерянный город Атлантик-Сити — обитель развлечений и порока. Но в конечном итоге любые неприятности помогут преодолеть сила дружбы.Производство: Корея Южная, США /  Paramount Animation, Nickelodeon Movies, United Plankton PicturesЖанр: Мультфильм, комедия, приключения, семейный, мюзиклРежиссер: Тим ХиллПеревод: Дублированный (Netflix)Субтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (SDH)Продолжительность: 01:35:23
+01. Diluvium
+02. Age Of Ascension
+03. The Tumultous Voyage To Hemmersmoor
+04. Free(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1798D9E1E9DF7E9F33345CC9894138A52617E3FA
+magnet:?xt=urn:btih:4B564FF760CFB0033842CC82877ECE1881C1CD42
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,55 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421516   (317173) от 05.11.2020
+###  Публикация: 1582632   (318930) от 11.10.2022
 
-КВН-2020. "Голосящий КиВиН" (04.11.2020) WEBRip [H.264/1080p-LQ]
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальный фестиваль КВН состоялся в Светлогорске 29 августа.
-"Голосящий КиВиН" – самый музыкальный из всех юмористических и самый юмористический из всех музыкальных конкурс подарит зрителям отличное настроение, ведь когда в одном месте собирается столько любителей пошутить, по-другому и быть не может!Телекомпания: "Первый канал"Жанр: ЮморПродолжительность: 02:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D170EA9CD3B988C8575CB8D5A739C325DD6D25BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182357   (317172) от 10.11.2017
-
-Roland Kirk & Roy Haynes - Domino & Out of the Afternoon (1962) 2013, American Jazz Classics [FLAC|Lossless|image + .cue] <Hard Bop>
+Charles Mingus - Presents Charles Mingus (1960) 2022, Candid [FLAC|Lossless|tracks + .cue] <Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318930.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Domino [03:17]
-02.Meeting on Termini's Corner [03:42]
-03.Time [03:14]
-04.Lament [03:41](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:18:40
+01. Folk Forms No.1 [12:58]
+02. Original Faubus Fables [9:13]
+03. What Love [15:18]
+04. All the Things You Could Be by Now If Sigmund Freud's Wife Was Your Mother [8:32]Жанр: Post-BopПродолжительность: 00:46:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6BD5ED58819D339C87CC015D4E9BCB0D642DE90
+magnet:?xt=urn:btih:89768A455EDD4AA53C9B6CD75E4BC46D4411DF63
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182267   (317171) от 10.11.2017
+###  Публикация: 1582637   (318929) от 11.10.2022
 
-VA - Games At Sunset: Psy Goa Trance (2017) [MP3|320 Kbps] <Psy, Goa Trance>
+Egoist - Наследие (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Death Metal>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318929.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Aumni - Microscope
-002. Mono - Music is my Reality
-003. Raccoon - Lizard In The Sphere (Original Mix)
-004. Diadem - Trick it(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 12:14:35
+01 - Последний Рассвет (Last Sunrise) (04:51)
+02 - Наследие (Heritage) (04:34)
+03 - Корона Смерти (Deathcrown) (05:37)
+04 - Некромант (Necromancer) (04:14)(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:35:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E47A47C72AC63EFAFF59BA02E21165440058EC7C
+magnet:?xt=urn:btih:266059872614539965008F6413425B4966BAF6BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -109,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182335   (317170) от 10.11.2017
+###  Публикация: 1582810   (318928) от 11.10.2022
 
-VA - Progressive Beach House (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
+голоса изнутри - Help (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
 
->>Electronic
->>House
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318928.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intelligent Technology - Es Vedra 04:40
-02. Audio Mill - Anne Boleyn 06:52
-03. Pierre Zamyatin - My House Music 07:55
-04. Areage - Striving (Makau Remix) 06:25(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 03:32:00
+01. Прoщание моряка [00:04:43]
+02. До пустоты [00:01:58]
+03. Я иду в перёд [00:02:12]
+04. Одержимый [00:02:47](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:29:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C530D067A953662F06FFEC1CD5C3D81FC82BCE5
+magnet:?xt=urn:btih:B491D7E065CDE0CB2B453C7E858BE21F3A7CB80D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -138,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182296   (317169) от 10.11.2017
+###  Публикация: 1582699   (318927) от 11.10.2022
 
-VA - Music For Dreams: Best Of Vol.6 (Compiled by Leo Mas) (2017) [MP3|320 Kbps] <Downtempo, Chillout>
+Magical Heart - Heartsonic (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Electronic
->>Easy listening
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318927.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  NordsA & Theill - Good Morning (feat. Caroline Franceska)  6:05
-02.  55 Cancri E - Att Lamna Tellus I (Oknen)  5:42
-03.  Jacob Gurevitsch - Poesia De La Mar  4:19
-04.  AyOwA - Eremit  3:36(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:48:52
+01. Bad Habits
+02. Heartsonic
+03. My Own Way
+04. Waiting For So Long(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:833EFF52F164AB1D3722AC531326D9F6685F85A7
+magnet:?xt=urn:btih:98DAE8F4230A2025E6F1229B4479916092A23A66
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -167,25 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182363   (317167) от 10.11.2017
+###  Публикация: 1582583   (318926) от 11.10.2022
 
-Hides 4.0.1 [En]
+Trick Or Treat - Creepy Symphonies (2022) [FLAC|Lossless|image + .cue] <Power Metal>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318926.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Повысьте производительность с помощью Hides. Включите Single App Mode, чтобы сосредоточиться на задаче. Single App Mode автоматически скроет все остальные открытые приложения, чтобы вы могли сосредоточиться на своей работе. Скрытия также могут быстро скрыть все открытые приложения, давая вам новое, понятное рабочее пространство. Настройте контуры с помощью глобальных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: ноябрь 2017Разработчик: SweetP Productions, Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+01. Trick Or Treat?
+02. Creepy Symphony
+03. Have A Nice Judgment Day
+04. Crazy(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67B7137C7F7F604850677F642087A3FDAD37F756
+magnet:?xt=urn:btih:1D6A5658BE1388F1C2F5F2590C594A8BFBB816E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -193,57 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182127   (317165) от 10.11.2017
+###  Публикация: 1582752   (318925) от 11.10.2022
 
-VA - Где-то на белом свете... (1996) [FLAC|Lossless|image + .cue] <Retro, Soundtrack>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Звенит Январская Вьюга (Иван Васильевич Меняет Профессию) (3:04)
- 02. Кап-Кап-Кап (Иван Васильевич Меняет Профессию) (2:24)
- 03. Погоня (Иван Васильевич Меняет Профессию) (1:43)
- 04. Разговор Со Счастьем (Иван Васильевич Меняет Профессию) (2:40)(   Читать дальше...   )Жанр: Retro, SoundtrackПродолжительность: 01:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A266A5EA455F503AF2F517A6E656A86628D2158
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182362   (317163) от 10.11.2017
-
-VA - Grotesque Reworked & Remixed - (Mixed By RAM) (2017) [MP3|320 Kbps] <Trance>
+VA - Chapter 1 Uplifting Trance (2022) [MP3|320 Kbps] <Uplifting Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318925.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. JES – People Will Go (M.I.K.E. Push Remix)
-02. DJ Ton T.B. – Dream Machine (Factor B's Back To The Future Remix)
-03. Salt Tank – Eugina (Ciaran McAuley Remix)
-04. Mr. Sam – Lyteo (Stoneface & Terminal Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:24:22
+01. Habashi - I Am King (Original Mix)
+02. Habashi - Christine (Extended Mix)
+03. Habashi & FAWZY - Orientalism (Extended Mix)
+04. Kinngs - Feel The Energy (Extended Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:11:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D570BF4253731BC811A05CA7F5152A479A5E4B7
+magnet:?xt=urn:btih:1E6400F4AC8CF026F8C15FCC8031869DA4BE481A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -251,25 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 728212   (317162) от 29.11.2013
+###  Публикация: 1582753   (318924) от 11.10.2022
 
-Наши верные друзья (1971) TS [H.264]
+Fallujah - Empyrean (2022) [FLAC|Lossless|image + .cue] <Technical Death Metal>
 
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм знакомит с многообразием насекомых в природе, местах их обитанияПроизводство: ШколфильмЖанр: Обучающий, КороткометражныйПродолжительность: 00:04:49
+01. The Bitter Taste Of Clarity
+02. Radiant Ascension
+03. Embrace Oblivion
+04. Into The Eventide(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:52:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3F7BC173382DFD371E7B90F8EDD55E52DCC350F
+magnet:?xt=urn:btih:EB178A32C164046E606E7992E5AB273F127AADDF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -277,25 +230,304 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182492   (317161) от 10.11.2017
+###  Публикация: 417349   (318923) от 30.11.2011
 
-Журнал | National Geographic History [USA] №1 (январь-февраль 2017) [PDF] [En]
+Эта - дурацкая - любовь / Crazy, Stupid, Love. (2011) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318923.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Кола Уивера, пуританских взглядов семьянина в возрасте «чуть-чуть за сорок», не жизнь, а мечта — хорошая работа, прекрасный дом, замечательные дети и брак со школьной возлюбленной. Но когда Кол узнает, что его жена Эмили изменила ему и хочет развода, его «идеальная» жизнь быстро рушится. Хуже того, говоря современным языком, Кол, который уже пару десятилетий не (   Читать дальше...   )Производство: Carousel Productions (II) (США)Жанр: Драма, Мелодрама, КомедияРежиссер: Гленн Фикарра, Джон РекуаАктеры: Стив Карелл, Райан Гослинг, Джулианна Мур, Эмма Стоун, Аналей Типтон, Йон Бобо, Джои Кинг, Мариса Томей, Бет Литлфорд, Джон Кэрролл ЛинчПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Английский, Хорватский, Эстонский, Латвийский, Литовский, Польский, Русский, Сербский, Словенский, Турецкий, УкраинскийПродолжительность: 01:53:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582704   (318922) от 11.10.2022
+
+Mariah Carey - Music Box (1993) [OGG Vorbis|480 Kbps] <Electronic, Funk / Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamlover
+02. Hero
+03. Anytime You Need a Friend
+04. Music Box(   Читать дальше...   )Жанр: Electronic, Funk / SoulПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ECEB34BA7C5BC7C29236DCCBB9A4B76ED31154E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582744   (318921) от 11.10.2022
+
+Thomas Datt - Trance Pioneers 003 (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Datt - Still Alone (Original Mix)
+02. Thomas Datt - Long Distance (Original Mix)
+03. Thomas Datt - Mass Effect (Original Mix)
+04. Thomas Datt - Evaporate (Part 2) (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59D49D3D1BC42C16E908B1D1633481AF12C12DF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582811   (318919) от 11.10.2022
+
+Фред Варгас | Комиссар Адамберг (Книга 7). Игры Нептуна (2022) [MP3, BIGBAG]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318919.jpg" />
+</div>
+
+
+###  Подробнее
+
+У комиссара парижского уголовного розыска Жана-Батиста Адамберга есть младший брат – Рафаэль, обвиненный в убийстве подружки, оправданный судом, но не общественным мнением, и скрывшийся в неизвестном направлении – на тридцать лет. Комиссар Адамберг с самого начала знал, что настоящий убийца – судья Фюльжанс, но, как ни старался, ничего не мог доказать. В конце концов (   Читать дальше...   )Жанр: детективПродолжительность: 12:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60BF523222FC17183D1C6871A89A6D33EB13AF63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582786   (318917) от 11.10.2022
+
+IObit Driver Booster Pro 10.0.0.36 Portable by FC Portables [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C474BCE374B95E0AAF24D72D5C265BBFD297A4F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582584   (318915) от 11.10.2022
+
+Wolfheart - King Of The North (2022) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skyforger
+02. Ancestor
+03. Knell
+04. Desolated Land(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEC4FC02DD5D3993FA005D6FA1AB5EC948CBA9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582749   (318913) от 11.10.2022
+
+Daxson - Face The Future (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Giant Circles - Outside The Realm (Daxson Remix)
+02. Daxson & Lachi - Unmask (Album Mix)
+03. Daxson - Ethereal (Original Mix)
+04. Daxson - Hakuba (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517CCD99982E4423C087DF092867373F5BDD7A70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582777   (318911) от 11.10.2022
+
+Barbra Streisand - Walls (2018) [OGG Vorbis|480 Kbps] <Pop, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What's on My Mind
+02. Don't Lie to Me
+03. Imagine  What a Wonderful World
+04. Walls(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2DABEFF969DB4134060D67714400FB144A308CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582510   (318909) от 11.10.2022
+
+Vended - 1 EP, 1 Single (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318909.jpg" />
+</div>
+
+
+###  Подробнее
+
+2021 - What Is It//Kill It (EP)
+2021 - Ded to Me (Single)Жанр: Heavy Metal, Nu-MetalПродолжительность: 00:22:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2E78BFF7971B1288CC617100C051F1B8F9F2416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 415421   (318906) от 30.11.2011
+
+Linkin Park - Live in Moscow (2011) HDTVRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт известной американской альтернативной рок-группы на Красной площади в Москве.01. Intro
+ 02. New Divide
+ 03. Papercut
+ 04. Given Up(   Читать дальше...   )Жанр: КонцертПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49643EA6747707F7A553951025B5DA18A1F3A3FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 844374   (318890) от 25.11.2014
+
+Подшивка журналов | Linux Format [UK] №191, 192 (декабрь, christmas 2014) [PDF] [En]
 
 >>Журналы
->>Другие журналы
+>>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318890.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Start your incredible journey into the past with National Geographic History. In each issue you'll explore the march of civilization from ancient times to the modern era, examine the forces behind history's most explosive conflicts, gain appreciation of the culture and art that sprang forth from every epoch, and come away with a greater understanding of who we are (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
+Linux Format (UK) - легендарный британский ежемесячный журнал на английском языке, целиком посвящённый операционной системе Linux. Редакционная политика — своевременное и полноценное информирование читательской аудитории о современном состоянии индустрии программного обеспечения с Открытым кодом, публикация обзоров о технологических новинках, обучающих программах, (   Читать дальше...   )Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:257407EF18E303193EF1F5EDFA9660DDD45ACEA5
+magnet:?xt=urn:btih:7B708A26EF1C6E0C638FA477ECE53810F2AC1F71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -303,25 +535,162 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182482   (317159) от 10.11.2017
+###  Публикация: 844512   (318882) от 25.11.2014
 
-Журнал | Дом в саду №12 (декабрь 2017) [PDF]
+Подшивка журналов | Атлас. Целый мир в твоих руках №228-249 (2014) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318882.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Атлас. Целый мир в твоих руках» - коллекция издательства «ДеАгостини», представляющая собой иллюстрированный энциклопедический путеводитель для всех, кто хочет познакомиться с красотами и тайнами нашей планеты. Атлас мира — это необходимая энциклопедия в домашней библиотеке. Географические материалы могут пригодиться школьникам, студентам и всем, кто хочет узнать (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00C91430FD0D7751B8DEEC000065BACB11629990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957952   (318875) от 23.11.2015
+
+Виктор Некрасов | В окопах Сталинграда (2013) [OGG]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пожалуй единственная правдивая книга от непосредственного участника тех событий.
+За эту книгу, после её прочтения Иосифом Сталиным, Виктор Некрасов получил в 1947 году Сталинскую премию 2-й степени. По мотивам повести и по сценарию Некрасова в 1956 году был снят фильм «Солдаты»Жанр: Военная прозаПродолжительность: 11:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C9421A20ED4D3197FF82BE3B3D8AC6350A24611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958828   (318874) от 23.11.2015
+
+Шуберт - Гении классической музыки (2011) [FLAC|image+.cue]<Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ave Maria, D839
+02. Серенада ре минор, D957
+03. Allegretto, 'Октет для духовых и струнных'
+04. Антракт №3, 'Розамунда'(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1764710DD0E2064BCE18EA2390599B1E19FEA8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958957   (318873) от 23.11.2015
+
+L'One - Автолюбитель (2015) EP [MP3|320 кб/с]<Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Автолюбитель
+02. Дорога
+03. Ностальгия
+04. Авиарежим (feat. Павел Мурашов)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:20:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:013A0ED9CE96038C785E362361F84F67B5B67F88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959019   (318872) от 23.11.2015
+
+Идеальный муж / The Perfect Husband  (2014) BDRip  [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виола и Никола решают наладить свои отношения, которые явно зашли в тупик, в уединенном домике, принадлежащем родителям парня. Но за городом героев фильма ожидает настоящий кошмар...Производство: Италия, Nedioga Film and Mundial Film.Жанр: ужасы, триллер, драмаРежиссер: Лукас ПаветтоАктеры: Габриэлла Райт, Брэт Робертс, Карл Уортон,  Дэниэл Вивиан, Филипп РейнхардтПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:23:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF34E732AFE7AC5FBDFD3FE6DF94DEF2AD1C5175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958621   (318871) от 23.11.2015
+
+Журнал | Сам [Россия] №11 (ноябрь 2015) [PDF]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318871.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издание освещает все аспекты садово-огородной проблематики. Именно в этом издании люди находят полезные советы по выращиванию плодовых, декоративных и комнатных экзотических растений. Это толковый помощник по дому, саду, огороду, которому известны все тонкости выращивания, обрезки, поливки, ландшафтного дизайна. Для всех неравнодушных к своим дачным участкам.Жанр: Дом, сад, огородФормат: PDF
+Журнал «Сам себе мастер» - уникальная энциклопедия творчества, умений и мастерства, одна из его главных задач - распространение технических знаний и умений среди населения, развитие технического творчества в домашних условиях и приобретение навыков решать проблемы по строительству, обустройству и ремонту всего, что находится в домашнем хозяйстве, своими силами и (   Читать дальше...   )Жанр: Строительство и ремонтФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75A2A2C743A325980322224CF9FE817667D81570
+magnet:?xt=urn:btih:FC8A204D5FB5851A2F4232CEB4254D698FF1B08A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -329,377 +698,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182371   (317157) от 10.11.2017
+###  Публикация: 959039   (318870) от 23.11.2015
 
-Импровизация / Камеди Клаб / Комеди Клаб / Comedy Club (2017.11.09) WEB-DLRip (сезон 3, выпуск 19)
+Проекты - Pond5 - Christmas World - 57199247 [AEP]
 
->>Архив торрентов
->>Архив Юмора
+>>Проекты
+>>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Импровизация» — это новое непредсказуемое комедийное шоу от Comedy Club Production. В нём нет сценария и всё, происходящее на сцене, придумывается участниками на ходу. Под управлением ведущего Павла Воли четыре комика и один звездный гость оказываются в самых странных ситуациях — и выбираются из них с юмором. Прежде, чем попасть на экран, четыре участника «Импровизации» (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 00:44:52
+Проект - начальная (финальная) заставка.
+Используется в Adobe After Effects.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E535D59F978DB9F68F303CA2235C283EB29D910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182301   (317155) от 10.11.2017
-
-iExplorer 4.1.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ситуация, когда жизненно необходимо скачать какую-либо информацию с компьютера на внешний накопитель, знакома всем. Особенно это актуально как раз тогда, когда такого накопителя с собой почему-то нет. Но главное, чтобы под рукой был любимый i-девайс, потому что, в таком случае, решение указанной проблемы уже есть – это приложение iExplorer.
-
-iExplorer - утилита для (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 ноября 2017Разработчик: Macroplant LLC.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98CDF3CF149DB21CBC3E933E690986AB5E859250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182373   (317154) от 10.11.2017
-
-Импровизация / Камеди Клаб / Комеди Клаб / Comedy Club (2017.11.09) HDTV [H.264/1080i] (сезон 3, выпуск 19)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317154.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Импровизация» — это новое непредсказуемое комедийное шоу от Comedy Club Production. В нём нет сценария и всё, происходящее на сцене, придумывается участниками на ходу. Под управлением ведущего Павла Воли четыре комика и один звездный гость оказываются в самых странных ситуациях — и выбираются из них с юмором. Прежде, чем попасть на экран, четыре участника «Импровизации» (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 00:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:963C8FD2EF068B78F2627F2C97A2F477867AAB0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182225   (317152) от 10.11.2017
-
-VA - Progressive House: Beach Dance Classic Radio (2017) [MP3|320 Kbps] <Progressive House, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317152.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cristoph - Feel feat Jem Cooke (Original Mix)
-002. Victor Ruiz - Dying Of The Light
-003. Supacooks - Aftermath (Original Mix)
-004. Rolo Green - Napier(   Читать дальше...   )Жанр: Progressive House, Dance, ClubПродолжительность: 12:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F338AF27FB9328A6131639CB4536BA7AA9071F2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182440   (317151) от 10.11.2017
-
-BES - Эра водолея (2017) [MP3|320 Kbps] <Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Альманах (intro)
-02. Дева Мария
-03. Разбогатей или Сдохни (feat. Leos)
-04. Jordan (feat. Idris)(   Читать дальше...   )Жанр: RapПродолжительность: 00:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9528243CC6DB284EEC142F95795BF52FCF3ED85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182227   (317150) от 10.11.2017
-
-Отчий дом (изд.) | Моя мама: Рассказы и стихи [Православная детская библиотека] (2014) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы, собранные в этой книге, посвящены самому близкому и родному существу на свете — маме. Мама — это первое слово, которое произносит человек, с ней он делает первый шаг, у неё учится первой молитве. Вырастить и воспитать детей — нелёгкое дело. Сколько терпения, заботы, неустанного труда и любви требуется от матери! Сколько тревог, бессонных ночей и переживаний (   Читать дальше...   )Жанр: Православие. Поэзия. ПрозаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CAB0EEDD6B597D07DABB3868D496C094EC26F2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182467   (317148) от 10.11.2017
-
-Вечерний Ургант (2017.11.10) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:45:50Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1092D8310DCE336011DE708C6A75543B17AF61FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182327   (317147) от 10.11.2017
-
-VA - Markus Schulz & Davey Asprey - Global DJ Broadcast (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz
-01. Markus Schulz presents Dakota - The Spirit of the Warrior (Transmission 2017 Theme)
-02. Ayla - Ayla (Ben Nicky & Luke Bond Remix)
-03. DIM3NSION & ZAA - Cielo(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6634B45ABE12E4D39F4CAD7BCC6A3F7C6680D76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182421   (317145) от 10.11.2017
-
-Растровый клипарт - Tubes #63 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт Tubes на прозрачном фонеФормат: PNGРазрешение файлов: 165x503-852x1169
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46BAFB4364336782458541B954359CFD5FCB56D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 728038   (317144) от 29.11.2013
-
-Отряд «Антитеррор» / Подразделение / The Unit (2008-2009) HDRip (сезон 4, серии 1-22 из 22) (ст. Русский дубляж)
-
->>Зарубежные сериалы
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм повествует о секретной команде агентов Спецназа, работающих под прикрытием. О том, как они, рискуя своими жизнями, проводят спецоперации и защищают мирных жителей. Вместе с героями сериала зрители пересекут пустыни Африки, джунгли Индонезии и побывают в самых горячих точках мира. В процессе развития сюжета зрители увидят, как герои учатся доверять и полагаться (   Читать дальше...   )Жанр: БоевикРежиссер: Стефан ДепаульАктеры: Одри Мэри Андерсон, Дэннис Хэйсбер, Эбби Браммел, Реджина Тейлор, Мишель Ирби, Макс Мартини, Скотт Фолей, Роберт Патрик, Демона БарнсПеревод: Профессиональный многоголосый закадровый (объединение «Русский дубляж» для телеканала «Перец»)Продолжительность: ~00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:767F83C7F5A38C72AC6ED81399F96096FF411AD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182493   (317143) от 10.11.2017
-
-Журнал | National Geographic History [USA] №2 (март-апрель 2017) [PDF] [En]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Start your incredible journey into the past with National Geographic History. In each issue you'll explore the march of civilization from ancient times to the modern era, examine the forces behind history's most explosive conflicts, gain appreciation of the culture and art that sprang forth from every epoch, and come away with a greater understanding of who we are (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC0E8A8F9E752446D6D3F28D2E4DFE062F7912F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182295   (317141) от 10.11.2017
-
-Carbon Copy Cloner 5.0.4 (5163) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Carbon Copy Cloner –  утилита для резервного копирования данных.
-Carbon Copy Cloner - утилита для клонирования дисков и резервирования данных, пользующаяся заслуженной популярностью у пользователей Mac OS X, благодаря высокой скорости работы и простому интерфейсу.
-
-Новая версия может похвастаться абсолютно новым пользовательским интерфейсом, а также рядом добавленных (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09 ноября 2017Разработчик: Bombich Software, IncПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF07F44A8E5B235A61BBBF4666A575480515A2C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 728392   (317137) от 29.11.2013
-
-Джонатан Рэтленд, Маргарет Стефенс | Энциклопедия юного ученого. Техника (1991) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317137.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Серия `Энциклопедия юного ученого`, рассчитанная на детей младшего и среднего школьного возраста, рассказывает об интереснейших научных проблемах и открытиях. Книги этой серии, написанные доступным языком и богато иллюстрированные, несомненно, заинтересуют читателя. В них дается описание безопасных опытов и различных конструкций, что способствует быстрому усвоению материала."Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D0464499C45BFBCB441530F4D7231C5C8D83BD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 728227   (317136) от 29.11.2013
-
-Джилл Бейли, Тони Седдон | Доисторический мир. Оксфордская библиотека (1995) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это одна из книг серии "Оксфордская библиотека". Прекрасно иллюстрированный самыми лучшими художниками, "Доисторический мир" познакомит вас с захватывающей историей жизни на Земле - с момента её зарождения и до появления человека.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A6EDAB4D6F93412C3408D60E30E3799AEB3B74
+magnet:?xt=urn:btih:E517650619CE106436AE30B4AED6AFC9920974EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

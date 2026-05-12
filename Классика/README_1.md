@@ -1,3 +1,61 @@
+###  Публикация: 1467787   (1017526) от 05.05.2021
+
+Изысканная элитарность. «Созвездие хитов. Классика» - J.S. Bach, Beethoven, Bizet, Brahms, Wagner, Vivaldi, Глинка, Grieg, Liszt, Massenet, Paganini (2008) [FLAC|Lossless|tracks + .cue] <Classic ...
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рихард Штраус – Так говорил Заратустра (01:23)
+02. Эдвард Григ – В пещере горного короля (Пер Гюнт) - Сюита No. 1 (02:29)
+03. Никколо Паганини – Кампанелла. Концерт No. 2 для скрипки с оркестром (08:26)
+04. Антонио Вивальди – Времена года - Зима (03:29)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:18:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023D4B211DA25BF2CFB32D3E615E073EB98DD3D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468927   (1016760) от 10.05.2021
+
+Maria Grinberg - Beethoven - Piano Sonatas 18, 19, 20, 21, 22 (2006) [FLAC|Lossless|tracks] <Chamber, Piano, Sonata>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Sonata no. 18 in E-flat major, op. 31 no. 3
+01 (1) Allegro
+02 (2) Scherzo. Allegretto vivace
+03 (3) Menuetto. Moderato e grazioso(   Читать дальше...   )Жанр: Chamber, Piano, SonataПродолжительность: 01:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D0D2E8EFC1E79BA73324E2FCE873D0EBC9DCDE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469721   (1016289) от 13.05.2021
 
 Святослав Рихтер - Бетховен - 33 вариации на вальс Диабелли (1994) [FLAC|Lossless|image + .cue] <Chamber, Instrumental, Piano>
@@ -723,78 +781,6 @@ P.S.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3A26384F717A0F476C4FCA9A9AD27B4594DB94D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604241   (996423) от 17.01.2013
-
-Wolfgang Amadeus Mozart–The Violin Concertos Philharmonia Orchestra violin Thomas Zehetmair authentic 2CD 1990-1991 (2007)/[WavPack (iso.wv)|Lossless]<Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скрипач Томас Зехетмайр, играющий на романтическом «страдивари» старым смычком и на жильных струнах - бесподобен!
-К его виртуозности невозможно предъявить никаких претензий, а такого трепетного, лёгкого и летучего звука услышишь не часто...(   Читать дальше...   )Violin Concerto No.1 B-Dur KV.207 (1775)
-1. Allegro moderato [07:00]
-2. Adagio [07:20]
-3. Presto [05:17]
-Violin Concerto No.2 D-Dur KV.211 (1775)
-4. Allegro moderato [08:01]
-5. Andante [05:51]
-6. Rondeau: Allegro [04:04]
-Violin Concerto No.3 G-Dur KV.216 (1775)
-7. Allegro [08:30](   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E337B239590ACED6D0309A2707EA614F2A1502D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604680   (996129) от 18.01.2013
-
-VA-Charles Ives Symphony No 4 and No 2 (1999) [FLAC|Lossless]<Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Орманди обладал очень хорошей памятью и быстро запоминал все сочинения непосредственно по партитуре. Обычно при дирижировании он не пользовался ни палочкой, ни нотами. Звучание оркестра под его управлением отличалось чувственностью и точностью исполнения...
-(   Читать дальше...   )Symphony No 4 
-1. Prelude - Maestoso    [03:16]
-2. Allegretto    [11:24]
-3. Fugue - Andante moderato    [09:21]
-4. Largo maestosao    [09:01]
-
-
-Symphony No 2 
-5. Andante moderato    [05:52]
-6. Allegro    [13:27](   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A1363B3AE3F107AEF13E3D6D342CA32623B4046
 ```
 
 https://mybot314.ru/tekegram_catalog/

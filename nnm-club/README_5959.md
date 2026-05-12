@@ -1,80 +1,22 @@
-###  Публикация: 1196708   (820530) от 04.01.2018
+###  Публикация: 314879   (821469) от 27.03.2011
 
-VA - Ретро Шлягер "Зимний" (2006) [APE|Lossless|image + .cue] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зима (Э.Ханок - С.Островой) - Эдуард Хиль
-02. Бубенцы (А.Кублинскис - И.Кашежева) - ВК "Аккорд"
-03. А снег идёт (А.Эшпай - Е.Евтушенко) - Майя Кристалинская
-04. Гололёд (Э.Шварц - А.Дмоховский) - Лариса Мондрус(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 00:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F26DA7E10B8B94AA56527642A0695FF129F4241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196769   (820529) от 04.01.2018
-
-Patrick Fiori - Choisir (2014) [FLAC|Lossless|tracks + .cue] <Chanson, Pop>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elles
-02. Demain
-03. Choisir
-04. Un Jour, Mon Tour(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0B8BE593C1B1BE7DF44ED646DFA90A2BD9589E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196804   (820528) от 04.01.2018
-
-Ummy Video Downloader 1.8.3.2 RePack (& Portable) by ZVSRus [Ru/En]
+Журнал | Playboy [Venezuela] №4 [2011] [PDF]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821469.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ummy Video Downloader - отличный инструмент для скачивания на свой компьютер абсолютно любого видеоролика с популярнейшего медиапортала YouTube. Программа может сохранить на ПК непосредственно сам видеоклип, но при необходимости доступно загрузить только аудиодорожку, после чего в любое время и уже без доступа в интернет можно наслаждаться любимыми видео или музыкой (   Читать дальше...   )Язык интерфейса: Русский | Английский
+Playboy — легендарный журнал для мужчин, основанный в 1953 году Хью Хефнером и его коллегами, выросший в настоящую империю Playboy Enterprises, влияние которой распространяется на все области медиа.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB555E927CF35C37B4D576E0D42DDCE4EF86655C
+magnet:?xt=urn:btih:0C1BCA36FC7D7A818953EED901BDA16D8AE93243
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196774   (820527) от 04.01.2018
+###  Публикация: 314895   (821465) от 27.03.2011
 
-Печной Сверчок - Ч (2018) Авторская раздача [MP3|320 Kbps] <Alternative>
+Журнал | Playboy [Venezuela] №1 [2007] [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821465.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Чувства
-02.Чужие
-03.Четверо
-04.Через край(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:29:00
+Playboy — легендарный журнал для мужчин, основанный в 1953 году Хью Хефнером и его коллегами, выросший в настоящую империю Playboy Enterprises, влияние которой распространяется на все области медиа.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:946936009C42138CF3ED45DDA0C2EE6B86227A4C
+magnet:?xt=urn:btih:1DE8236D689C9397B84A24FA7069308FC72426C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,28 +50,136 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196800   (820526) от 04.01.2018
+###  Публикация: 314905   (821464) от 27.03.2011
 
-EditReady 2.1.4 [En]
+Календарь | Stefania Distefano Calendar 2011 [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что лучше всего привлекает внимание в рекламе? Правильно – красивые девушки! Компания Lenzokart уже который год подряд готовит своим клиентам Рождественский подарок. Вслед за After Melita Toniolo, Angelica Tulacz, Jenny Mclain и Marta Gut в съемках календаря 2011 года участие приняла топ-модель Stefania Distefano. Свою историю календари от Lenzokart начали в 2007, (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83614124053B88FDAE3F03961FFEFA290DEBFD76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 314870   (821456) от 27.03.2011
+
+Журнал | Playboy [Czech] №10 [2007] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Playboy — легендарный журнал для мужчин, основанный в 1953 году Хью Хефнером и его коллегами, выросший в настоящую империю Playboy Enterprises, влияние которой распространяется на все области медиа.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77214A814D0C638FF10C8989EFDD098DC6C6208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503257   (821454) от 18.10.2021
+
+VA - Disclosure: DJ-Kicks (2021) [AAC|~311 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821454.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Pepe - Recollection (Mixed) (3:29)
+1.02. Harry Wolfman - LOTF (Mixed) (4:12)
+1.03. Cleanfield - Conflict with Clayton (Mixed) (4:50)
+1.04. Disclosure - Deep Sea (DJ-Kicks) (Mixed) (4:02)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7023CF7D67A4BE1C847662D2B324B74B6FC7A79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503247   (821453) от 18.10.2021
+
+VA - Spacedance, Vol. 2 (2021) [AAC|~340 Kbps] <Spacedance, Spacesynth, Retrowave>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daylight - Atomic World (Laser Version 12") (5:31)
+02. Based on Bass - Space Odyssey (Extended Mix) (4:58)
+03. Humphrey Robertson - Eternity (Sd1 Version) (4:22)
+04. Daylight - Digital Power Control (5:36)(   Читать дальше...   )Жанр: Spacedance, Spacesynth, RetrowaveПродолжительность: 01:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96B425C8CE8D43C7F7E55A2218422E9FD0AAA094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503236   (821452) от 18.10.2021
+
+iBoostUp Premium 9.5.3 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821452.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Профессиональный видео-конвертер, позиционируемый как самый быстрый в отрасли.
-Умеет сохранять метаданные при конвертации видео, а так же, при необходимоcти, редактировать их. Имеет поддержку аппаратной обработки h.264.
-
-Поддерживает контейнеры:(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 декабря 2017Разработчик: DivergentmediaПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+iBoostUp настраивает и оптимизирует ваш Mac, очищая ненужные файлы, фиксируя ваш жесткий диск, предоставляя рекомендации по эффективности, защищая вашу конфиденциальность, удаляя файлы cookie, показывая вам легкодоступную системную информацию и многое другое!
+iBoostUp Memory Booster позволяет вам просматривать подробную информацию о системной памяти и, возможно, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.09.2021Разработчик: iBoostUp Pty LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8136809CFA71CDC0AF338F10A36732A8B73AA55E
+magnet:?xt=urn:btih:85471278AF4094073B1DB90500094C70707DA558
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,28 +187,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196695   (820525) от 04.01.2018
+###  Публикация: 1503405   (821451) от 18.10.2021
 
-David Lanz - French Impressions (2017) [FLAC|Lossless|WEB-DL|tracks] <Piano, Classical, New Age>
+Timemator 2 v2.8.3 [En]
 
->>Классика
->>Фортепиано (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821451.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Wandering Path
-02. Conversation avec les Etoiles
-03. The River at Night
-04. Midnight Kiss(   Читать дальше...   )Жанр: Piano, Classical, New AgeПродолжительность: 00:38:16
+Автоматизируйте отслеживание времени на основе ваших действий на Mac. Timemator позволяет полностью автоматизировать отслеживание времени на основе ваших действий на Mac. Просто укажите Timemator, какие файлы, приложения или веб-сайты вы используете для своей работы, и он автоматически запустит таймер для вас.Тип издания: macOS SoftwareРелиз состоялся: 10.09.2021Разработчик: Catforce StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Немецкий
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65FC2691B9F041DB25F913B401C7599139542814
+magnet:?xt=urn:btih:3D3D8CC3463E02FDE27E98489A87B556C7D952B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,28 +213,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190926   (820524) от 04.01.2018
+###  Публикация: 1503269   (821450) от 18.10.2021
 
-Рондо - Видеоколлекция от ALEXnROCK (2017) WEBRip [H.264/720p-LQ]
+Hides 5.6 [En]
 
->>Остальное
->>hand made * video
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821450.jpg" />
 </div>
 
 
 ###  Подробнее
 
-00 Intro
-01 Рондо - Тоже является частью вселенной
-02 Рондо - Мечты (ver1)
-03 Рондо - Нас венчает гроза (live)(   Читать дальше...   )Жанр: РокФормат: MKVПродолжительность: 02:52:17
+Повысьте производительность с помощью HidesТип издания: macOS SoftwareРелиз состоялся: 17.10.2021Разработчик: SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:500761C4AF5CDAFE356F2E3BF518C6E60DC72A74
+magnet:?xt=urn:btih:E7A3B4858E9B30137A02B8DB95316C6E6DE47A02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,25 +239,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196794   (820523) от 04.01.2018
+###  Публикация: 1503188   (821449) от 18.10.2021
 
-Охота жить (2014) WEB-DLRip
+Jazzy System - Answer Me (2020) [AAC|~313 Kbps] <Lo-Fi, Lounge, Chillout>
 
->>Отечественное кино
->>Отечественные Фильмы (SD)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821449.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Когда приходит осень жизни, люди начинают задумываться о прожитом. Для кого-то остаток жизни — «словно обглоданный мосол под крыльцом», кто-то мечтает о билетике на второй сеанс — родиться еще разок, а кому-то просто охота жить…Производство: РоссияЖанр: КомедияРежиссер: Сергей НиконенкоАктеры: Станислав Любшин, Нина Усатова, Сергей Никоненко, Валерий Баринов, Алексей Крыченков, Алла Мещерякова, Павел Сборщиков, Юрий Бердников, Александр Гундарев, Екатерина ВоронинаСубтитры: ОтсутствуютПродолжительность: 01:20:43
+01. High (3:33)
+02. Atlanta (4:47)
+03. Hybrid Jazz (3:21)
+04. Simple Things (3:46)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, ChilloutПродолжительность: 00:40:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9005BD1344445E98E6A479526921D2109C2BEA81
+magnet:?xt=urn:btih:DF20BF15ADB45FB5AEA754310F2D669E7B8E9D8E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,28 +268,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196646   (820522) от 04.01.2018
+###  Публикация: 1503242   (821448) от 18.10.2021
 
-New London Chorale - Young Christmas (2001) [MP3|320 Kbps] <Crossover Classical, Traditional>
+Amadeus Pro 2.8.8 [Multi]
 
->>Классика
->>В обработке/Classical Crossover/Neoclassical
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821448.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1	See Amid The Winter’s Snow
-2	O Little Town Of Bethlehem
-3	In The Bleak Mid Winter
-4	The Holly And The Ivy(   Читать дальше...   )Жанр: Crossover Classical, TraditionalПродолжительность: 00:44:55
+Amadeus Pro - многотрековый музыкальный редактор, который будет интересен как любителям, так и профессионалам. Приложение поддерживает работу с несколькими звуковыми дорожками, каждую из которых можно редактировать абсолютно независимо от других - изменять ее уровень громкости, накладывать различные фильтры, вставлять дополнительные фрагменты и т.д. Помимо этого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2021Разработчик: HairerSoftПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1EF8476FAB6F2B5FA8F7BA8331B30B641BB01867
+magnet:?xt=urn:btih:94A88D4BE608CDB2F9D39AF46AE278F01E13593C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,28 +294,140 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196830   (820521) от 04.01.2018
+###  Публикация: 1503347   (821447) от 18.10.2021
 
-David Coverdale & Whitesnake - Best Ballads (2018) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock>
+Fluisteraars - Gegrepen Door De Geest Der Zielsontluiking (2021) [FLAC|Lossless|tracks + .cue] <Atmospheric Black Metal, Post Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Het Overvleugelen Der Meute (8:14)
+02. Brand Woedt In Mijn Graf (7:06)
+03. Verscheuring In De Schemering (20:15)Производство: Eisenwald Tonschmiede – Eisen178Жанр: Atmospheric Black Metal, Post Black MetalПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE869927B2D33B82A3BCB7E2F3AB49ACCBC5666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503114   (821446) от 18.10.2021
+
+Blessdivine - Between Sin & Sacrifice (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude (00:58)
+02. Heresy Divine (04:42)
+03. Servants of the Cross (04:57)
+04. Fields of Gold (05:16)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC4FDBD394FA9A6C4F8860B035DF3747E1A788D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503385   (821445) от 18.10.2021
+
+Disk Graph 2.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Graph - инструмент, который позволяет проверить ваш диск и легко найти файлы, какие занимают большую часть дискового пространства. С его красивым интерфейсом и его подобным кругу графиком, определение местоположения больших файлов никогда не было проще.Тип издания: macOS SoftwareРелиз состоялся: 18.10.2021Разработчик: WordPressПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8A366195EDD819980CF24A0A93D13A59C770707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503379   (821444) от 18.10.2021
+
+Raheem DeVaughn & Apollo Brown - Lovesick (2021) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Soul, Contemporary R&B>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You're The One (feat. Skyzoo) (4:29)
+02. One Time (feat. Becky Cane) (3:51)
+03. When A Man (3:00)
+04. If I Made Love To You (4:34)(   Читать дальше...   )Производство: Mello Music Group – MMG-00162-2Жанр: Hip-Hop, Soul, Contemporary R&BПродолжительность: 00:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:950CBB770F17106A1AAD6DB7EBC99EB2DC7BCB46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503111   (821443) от 18.10.2021
+
+Bangkok Dollars - Lost Souls (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821443.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Too Many Tears
-02. Don't Fade Away
-03. Soldier Of Fortune
-04. Sail Away(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:12:46
+01. Free 05:08
+02. Only Devil Knows 04:12
+03. Heat Of The Night 04:05
+04. Lost Souls 04:51(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:43:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D52C294A49973A212DCB972DC723A3ED5603A035
+magnet:?xt=urn:btih:4373B8B4F6E86F138DA5AEA575A0CA6C48F98300
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -282,108 +435,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196439   (820520) от 04.01.2018
+###  Публикация: 1503185   (821442) от 18.10.2021
 
-Эрин Брокович / Erin Brockovich (2000) Blu-ray [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820520.jpg" />
-</div>
-
-
-###  Подробнее
-
-История об Эрин Брокович, одинокой женщине с тремя детьми, которую жизнь не часто баловала светлыми днями. Для таких, как она, нет карьерных перспектив, есть только скромная работа в маленькой юридической фирме. Но для уверенной в себе красотки, не стесняющейся в выражениях, достаточно одного ничтожного шанса, чтобы кардинально изменить свою судьбу. Красота и обаяние (   Читать дальше...   )Производство: США, Colambia, UniversalЖанр: ДрамаРежиссер: Стивен СодербергАктеры: Джулия Робертс, Альберт Финни, Аарон Экхарт, Питер Койот, Черри Джонс, Трейси Уолтер, Кончата Феррелл, Марж Хелгенбергер, Дэвид Брисбин, Доун ДидавикПеревод: ДублированныйСубтитры: Немецкие, Английские, Французские, Арабские, Чешские, Венгерские, Польские, Русские, Словацкие, ТурецкиеПродолжительность: 02:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE621A1DF6693205396EDA4379F4F2A47788374D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196748   (820519) от 04.01.2018
-
-Garmin: City Navigator South America NT 2018.20 [En]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Передвигайтесь по улицам с уверенностью. Этот продукт содержит подробные карты дорог и достопримечательностей для вашего совместимого устройства, так что вы можете перемещаться с точными подсказками, от поворота к повороту на любой адрес или перекресток.
--Включает в себя миллионы дорог во всех 12 странах Южной Америки, а также Флориде в США.
--Отображает миллионы (   Читать дальше...   )Тип издания: карты разблокированыРелиз состоялся: октябрь 2017Разработчик: Here / GarminПоддерживаемая ОС: GarminЯзык интерфейса: АнглийскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B44199BCF9AC1D1FF1E3FA6F9AF7C68E2E13457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196603   (820518) от 04.01.2018
-
-New London Chorale - The Classic Christmas Collection (1998) [MP3|320 Kbps] <Сrossover Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For unto us
-02. Stille Nacht
-03. Winter wonderland
-04. Oh Tannenbaum(   Читать дальше...   )Жанр: Сrossover Classical, TraditionalПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE8BB8DBE8E017327D03BDE6F8E065ECE4B6D7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196851   (820517) от 04.01.2018
-
-Атлантида / Cold Skin (2017) WEB-DLRip [576p] iPad
+Jazzy System - Another World (2019) [AAC|~266 Kbps] <Lo-Fi, Lounge, Chillout>
 
 >>Аудио и Видео
->>Зарубежное видео для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821442.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После длительного плавания молодой метеоролог Френд прибывает на затерянный в океане остров принять годичную вахту на метеостанции. На острове оказывается лишь суровый и немногословный смотритель маяка Грюнер. Френд довольно быстро понимает, что Грюнер что-то скрывает, старый метеоролог попал в какую-то передрягу, а остров кажется необитаемым только на первый взгляд.Производство: Испания, ФранцияЖанр: Ужасы, фантастика, триллер, приключенияРежиссер: Ксавье ЖансАктеры: Рэй Стивенсон, Дэвид Оукс, Аура Гарридо, Уинслоу Иваки, Джон Бенфилд, Бен Темпле, Иван Гонсалес, Алехандро Род, Жюльен Блашке, Дамиан МонтесдеокаПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:42:06
+01. Sunday 3 AM (3:30)
+02. Live Or Die (4:03)
+03. Strange Things (4:52)
+04. The Next Morning (4:18)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, ChilloutПродолжительность: 01:05:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D7C0653C11178299E492E4D5646813D503DDA30
+magnet:?xt=urn:btih:D1313B76C8CF003C91A54B51B7876A0A65392509
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -391,28 +464,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196770   (820516) от 04.01.2018
+###  Публикация: 1503255   (821440) от 18.10.2021
 
-Кен Фоллетт | Столп огненный (2018) [FB2]
+Stats 2.6.15 [Multi/Ru]
 
->>Художественная литература
->>Историческая проза, Мифы и Легенды, Фольклор
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821440.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Третий роман цикла «Кингсбридж».
-
-Англия. Середина XVI века.
-Время восшествия на престол великой королевы Елизаветы I, принявшей Англию нищей и истерзанной бесконечными династическими распрями и превратившей ее в первую державу Европы.(   Читать дальше...   )Жанр: Историческая литература, Исторические приключенияФормат: FB2
+Stats - это приложение с открытым исходным кодом, предназначенное для помощи в отслеживании температуры, напряжения, энергопотребления, уровня заряда батареи, а также общего использования ресурсов из строки меню. Оно полностью настраиваемое, ненавязчивое и довольно простое в использовании.Тип издания: macOS SoftwareРелиз состоялся: 17.10.2021Разработчик: Serhiy MytrovtsiyПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:214123D30B9A0635F587E9437FE171A1A92B1AA3
+magnet:?xt=urn:btih:28BA3DD829FF4B613BDD83D0A75CE54C5DC01314
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -420,26 +490,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196808   (820515) от 04.01.2018
+###  Публикация: 1503244   (821438) от 18.10.2021
 
-Эксперимент «Офис» 2 / Mayhem  (2017) BDRip [H.264/1080p] [EN / EN, Fr, Sp Sub]
+VA - Spacedance, Vol. 1 (2021) [AAC|~356 Kbps] <Spacedance, Spacesynth, Retrowave>
 
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821438.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На человечество обрушился вирус ID7. Заражённые не могут себя контролировать. На 8 часов они оказываются во власти инстинктов: ярости, похоти, страха.
-Дерек упорно работал, чтобы добиться высокого положения в крупной фирме. Босс его подставил и уволил с позором. Именно в этот момент в офис попадает вирус ID7. Прекрасный шанс оторваться и восстановить справедливость.Производство: США / Circle of Confusion, Royal Viking EntertainmentЖанр: ужасы, боевик, комедияРежиссер: Джо ЛинчАктеры: Стивен Ян, Самара Уивинг, Стивен Брэнд, Кэролайн Чикези, Керри Фокс, Даллас Робертс, Марк Фрост, Клер Левин, Андре Эриксен, Никола Кент, Люси Чаппель, Олья ХрустичПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанские, французскиеПродолжительность: 01:27:35
+01. Based on Bass - Magic World (Spacemix) (4:27)
+02. Daylight - Touring Space (5:21)
+03. Humphrey Robertson - Space Rhythm (Sd4 Version) (5:19)
+04. Daylight - Memories of Time (5:21)(   Читать дальше...   )Жанр: Spacedance, Spacesynth, RetrowaveПродолжительность: 01:16:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72853A57339FDBAB4922999B5AECAA1819C73FFD
+magnet:?xt=urn:btih:B2CEA0136384F2529CAA43EAEA66BBBB2000DD5E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -447,25 +519,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196854   (820514) от 04.01.2018
+###  Публикация: 1503251   (821436) от 18.10.2021
 
-Тэд-путешественник и тайна царя Мидаса / Tadeo Jones 2: El secreto del Rey Midas (2017) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара] [hand made 16:9]
+VA - Spacedance, Vol. 3 (2021) [AAC|~322 Kbps] <Spacedance, Spacesynth, Retrowave>
 
->>Мультфильмы
->>Мультфильмы (3D)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821436.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Тэд, не самый удачливый и ловкий исследователь и путешественник, и его странноватые друзья, в числе которых настоящая мумия и смышленый пес Джефф, отправляются на розыски злобного богача Джека Рэкхема, похитившего Сару. Любимая Тэда обнаружила, где спрятаны сокровища легендарного царя Мидаса, и злодей надеется их заполучить. Но Тэд и его команда должны разрушить (   Читать дальше...   )Производство: Испания / Ikiru Films, Institut Català de les Empreses Culturals (ICEC)Жанр: мультфильм, комедия, приключения, семейныйРежиссер: Давид Алонсо, Энрике ГатоАктеры: Оскар Барберан, Мишель Хеннер, Адриана Угарте, Луис Посада, Мигель Анхель Хеннер, Хосе Корбачо, Росер Баталья, Рафаэль Калво, Давид Брау, Франческ БельдаПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:24:59
+01. Based on Bass - Automatic Control (Extended Mix) (5:11)
+02. Daylight - Colour of My Dreams (5:23)
+03. Humphrey Robertson - Coming to Earth (Sd3 Version) (4:45)
+04. Daylight - Dance Revolution (Extended Version) (5:44)(   Читать дальше...   )Жанр: Spacedance, Spacesynth, RetrowaveПродолжительность: 01:21:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E0755AC9C02C58E76F8A63006A99CD086D9C528
+magnet:?xt=urn:btih:71EF32AACE156500619BB0485EF1799704029215
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -473,26 +548,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196740   (820513) от 04.01.2018
+###  Публикация: 1503133   (821434) от 18.10.2021
 
-Garmin: City Navigator Australia & New Zealand HERE NT 2018.30 [En]
+October Falls - A Fall Of An Epoch (2020) [FLAC|Lossless|tracks + .cue] <Atmospheric Black Metal>
 
->>Программы, Игры и прочее
->>Карты для навигационного ПО
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821434.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Перемещайтесь по улицам с уверенностью. Этот продукт содержит подробные карты и точки интереса (POI) для навигаторов Гармин, так что вы можете перемещаться с точными подсказками от поворота к повороту на любой адрес или перекресток.
-- Включает около 1,3 млн. км (796 000 миль) дорог, в том числе автодорог, национальных и региональных магистралей и дорог местного значения (   Читать дальше...   )Тип издания: лицензияРелиз состоялся: октябрь 2017Разработчик: Here / GarminПоддерживаемая ОС: GarminЯзык интерфейса: АнглийскийФормат: .IMG
+01. A Fall of an Epoch (11:02)
+02. The Endtimes Rising (10:06)
+03. The Ruins of What Once Was (8:09)
+04. Hammering the Tide (9:32)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:47:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B709651C99C1EEE7C12812667D594F9B74C4142
+magnet:?xt=urn:btih:11FE6E7515E1C02E52E2C722201DDC72EE23538A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -500,25 +577,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382371   (820512) от 10.05.2020
+###  Публикация: 1503067   (821432) от 18.10.2021
 
-Солдатки (10.05.2020) WEB-DL [H.264/1080p-LQ] (выпуск 14)
+Last Days Of Eden - Chrysalis (2018) [FLAC|Lossless|image + .cue] <Symphonic Power Metal, Female Vocal>
 
->>нет
->>нет
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_820512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821432.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В каждой серии 12 участниц, которые, вопреки своим ожиданиям, попали в реальную армию, сталкиваются с новыми испытаниями, преодолевают их, учатся военным дисциплинам и пытаются стать настоящим коллективом. «Солдатки» – это не просто реалити-шоу. Это первый проект, снятый в боевой воинской части. Съемка ведется без купюр, со множества камер, жизнь казармы видна как (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити-шоуСубтитры: ОтсутствуютПродолжительность: 00:38:37
+01. Forevermore
+02. The Roots Of Life
+03. The Wanderer
+04. Dead Man's Tale(   Читать дальше...   )Жанр: Symphonic Power Metal, Female VocalПродолжительность: 00:54:58
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:F5F04669DABC552DC6A89F6825A4996E38AAD009
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -526,25 +606,81 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382393   (820511) от 10.05.2020
+###  Публикация: 1503320   (821430) от 18.10.2021
 
-Леонид Ивашов | Опрокинутый мир (2019) [EPUB]
+IObit Uninstaller Free 11.1.0.16 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821430.jpg" />
+</div>
+
+
+###  Подробнее
+
+IObit Uninstaller представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное удаление" (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A60A35A96C88033243E6840D45BF9B290E7A800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503191   (821428) от 18.10.2021
+
+VA - Be Phazz-a-Delic. 20 Years of Musical Delightment (2021) [AAC|~336 Kbps] <Nu Jazz, Acid Jazz, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunday People - Swing with Me (Ff-Edit) (3:55)
+02. Monophonic - I Looked at Clouds That Way (3:59)
+03. De-Phazz - No Lie (3:45)
+04. Paum - My Pretty (3:30)(   Читать дальше...   )Жанр: Nu Jazz, Acid Jazz, LoungeПродолжительность: 01:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B15B4359CC717A72FCED6980142420AE35939B4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 655180   (821424) от 12.05.2013
+
+Мери Бетчелор | Библия для детей в 365 рассказах (2000) [PDF]
 
 >>Разное (категория книг)
->>Публицистика
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821424.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Происхождение и смысл существования человеческой цивилизации – одна из главных тайн мироздания. Согласно древнему Тибетскому манускрипту, сейчас проходит свой путь пятая цивилизация, четыре предыдущих погибли. Размышляя о сущности человека, как части многосложного мира, автор говорит, что для объективного понимания причинно-следственных связей исторических процессов (   Читать дальше...   )Жанр: Популярно об истории, ПублицистикаФормат: EPUB
+Иллюстрированная библия для детей в четырех томах. На мой взгляд - одна из самых лучших.
+365 небольших рассказов. Каждый день вы можете читать вашему ребенку по одному по рассказу. Повествование ясно и доступно для любого ребенка.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68C6F058F81CB8D17C9952713D314EB95ACEDCA9
+magnet:?xt=urn:btih:D9689D46785E03EDB11D33C61070C0BCD8213F47
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -552,160 +688,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382268   (820510) от 10.05.2020
+###  Публикация: 1007394   (821414) от 15.04.2016
 
-Debian GNU/Linux 10.4.0 + nonfree Buster [i386] 4xDVD
+VA - Музыкальный огонь 7 (2016) [MP3|256 кб/с] <Pop, Dance>
 
->>Linux, Unix и другие ОС
->>ОС Linux
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821414.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Как сообщает OpenNET: опубликовано четвёртое корректирующее обновление дистрибутива Debian 10, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 108 обновлений с устранением проблем со стабильностью и 53 обновления с устранением уязвимостей.
-
-Из изменений в Debian 10.4 можно отметить обновление до свежих стабильных (   Читать дальше...   )
+001. Malika - Забирай Меня
+002. Boombox Cartel Feat. Stalking Gia - Dancing With Fire
+003. Алена Мордяхина - Ваня
+004. Cheat Codes & Kriss Kross Amsterdam - Sex(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FCE52BDD819CF25BC5F341A6E79426C53463BF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382251   (820509) от 10.05.2020
-
-Мне очень жаль / I'm Sorry (2017) WEB-DLRip (сезон 1, серии 0-9 из 9) DoubleRec
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_820509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андреа - комедийный писатель, жена и мама. Она уверена в том, что давно повзрослела и отлично разбирается в жизни. Однако каждый новый день готовит для героини новое испытание на прочность. Вступая в него с показной уверенностью в себе, Андреа часто попадает в комические ситуации, которые лишь обнажают её незрелость.Производство: США / TruTVЖанр: КомедияРежиссер: Дэйл Штерн, Стефани Коун, Алекс РейдАктеры: Андреа Сэвадж, Том Эверетт Скотт, Олив Петруччи, Кэти Бейкер, Гари Энтони Уильямс, Мартин Мулл, Джейсон Манцукас, Стив Зиссис, Билл Льюис, Эллисон Толман и др.Перевод: Многоголосый закадровый (DoubleRec.Imago)Субтитры: русские, английские (отдельными файлами)Продолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382276   (820508) от 10.05.2020
-
-Фрэнк Герберт | Жертвенная звезда (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Существуют ли живые звёзды? А если существуют, как они могут контактировать с простым человеком? Каково их мышление, их чувства, воздействие на Вселенную?
-Первый контакт — и он едва не привёл к уничтожению человечества.Жанр: Научная фантастикаПродолжительность: 06:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA38BAB4358DD4D4479CEE824B9F68815583628D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382046   (820507) от 10.05.2020
-
-Мужчина по вызову 2 / Deuce Bigalow: European Gigolo (2005) WEB-DLRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дьюс отправляется по приглашению своего бывшего сутенера на отдых в Амстердам и в итоге понимает, что его вновь хотят вернуть в бизнес эскорт услуг для женщин. Не то, чтобы Дьюс был против — платят неплохо, но, во-первых, у него уже есть постоянная подружка, а во-вторых, у европейских женщин слишком бурная сексуальная фантазия…Производство: США / Columbia Pictures CorporationЖанр: КомедияРежиссер: Майк БигелоуАктеры: Роб Шнайдер, Эдди Гриффин, Йерун Краббе, Тиль Швайгер, Дуглас Силлс, Карлос Понсе, Чарльз Китинг, Ханна Вербум, Алекс Димитриадес, Костас Соммер, Федерико Дордей, Одед Фер, Топпер, Элизабетта КаналисПеревод: Дублированный, авторскийСубтитры: английскиеПродолжительность: 01:23:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59BD710CE81EF3C63CED74C2DC0387CF498D551A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382279   (820506) от 10.05.2020
-
-Мне очень жаль / I'm Sorry (2019) WEB-DLRip (сезон 2, серии 1-10 из 10) DoubleRec
-
->>Зарубежные сериалы
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андреа - комедийный писатель, жена и мама. Она уверена в том, что давно повзрослела и отлично разбирается в жизни. Однако каждый новый день готовит для героини новое испытание на прочность. Вступая в него с показной уверенностью в себе, Андреа часто попадает в комические ситуации, которые лишь обнажают её незрелость.Производство: США / TruTVЖанр: КомедияРежиссер: Дэйл Штерн, Стефани Коун, Алекс РейдАктеры: Андреа Сэвадж, Том Эверетт Скотт, Олив Петруччи, Кэти Бейкер, Гари Энтони Уильямс, Мартин Мулл, Джейсон Манцукас, Стив Зиссис, Билл Льюис, Эллисон Толман и др.Перевод: Многоголосый профессиональный (DoubleRec.Imago)Субтитры: русские, английские (отдельными файлами)Продолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BBAF5329330DF5FD109F6FD338E8B2369CD6EEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382265   (820505) от 10.05.2020
-
-Debian GNU/Linux 10.4.0 + nonfree Buster [amd64] 4xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как сообщает OpenNET: опубликовано четвёртое корректирующее обновление дистрибутива Debian 10, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 108 обновлений с устранением проблем со стабильностью и 53 обновления с устранением уязвимостей.
-
-Из изменений в Debian 10.4 можно отметить обновление до свежих стабильных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E3D38783FFF48A024F7E7EC9911F995D449C2D2
+magnet:?xt=urn:btih:C27C5CBFE17B96CD5015F4FAF1FA5776F43E653B
 ```
 
 https://mybot314.ru/tekegram_catalog/

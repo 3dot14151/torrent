@@ -1,3 +1,32 @@
+###  Публикация: 1410924   (429360) от 24.09.2020
+
+Enigmatic Hits - Reloaded (2020) [MP3|320 Kbps] <Enigmatic, New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flying Eagles in Manhattan
+02. Meditation on Mount Fuji
+03. Rain in Tibet
+04. Potter Makes a Jug(   Читать дальше...   )Жанр: Enigmatic, New ageПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72194804D4A027ED7781AF054E7F115592748122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249917   (429128) от 26.09.2018
 
 Mauricio Nader - Our Soul Revealed (2018) [MP3|320 Kbps] <New Age>
@@ -756,35 +785,6 @@ Medwyn Goodall - Medicine Woman 6: Synchronicity (2017) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A215E550E28A8705BA61CC04B4FAD4B590C91F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173549   (389699) от 12.10.2017
-
-Logos (Stephen Sicard) - Le Temps des Archanges (2017) [MP3|320 Kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Au dela du Soleil
-02. Rencontre magique
-03. Les voix invisibles
-04. Instant present(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73064B8345DBED034353B5D4D724EE3D08EA339B
 ```
 
 https://mybot314.ru/tekegram_catalog/

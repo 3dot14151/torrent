@@ -1,3 +1,87 @@
+###  Публикация: 1853928   (1056994) от 15.02.2026
+
+Windows 11 LTSC by OneSmiLe 24H2 build 26100.7840 [Ru]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+ru-ru_windows_11_enterprise_ltsc_2024_x64_dvd_f9af5773
+Установлены обновления по 15.02.2026
+Удалены все модерн приложения.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62FDAD99CA8EAF33D52931B2B60B5C1E362FBB79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853666   (1056579) от 14.02.2026
+
+Microsoft® Windows® 11 x64 Ru 25H2 4in1 Upd 02.2026 by OVGorskiy
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056579.jpg" />
+</div>
+
+
+###  Подробнее
+
+обновленные, максимально приближённые к оригинальным русские образы ОС “Windows® 11™” от Microsoft наиболее востребованных редакций, объединенных в 1 образ (x64) стандартными средствами от Microsoft ADK (DISM). Включает в себя обновлённые, почти "чистые", минимально модифицированные образы редакций ОС Windows 11 Pro, Home и Enterprise x64. В системе присутствуют (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57823DAE90BED82CE507C4AD087746C12E7F8681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853068   (1056237) от 11.02.2026
+
+Windows 11 Pro/Ent by OneSmiLe 25H2 build 26200.7840 [Ru]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+Используется лаунчер от ФБ
+ru-ru_windows_11_business_editions_version_25h2_updated_jan_2026_x64_dvd_d869ebf3
+Установлены обновления по 11.02.2026(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F3F23A86A6BC6C04276B4BABE61EB67A03F40C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853073   (1056235) от 11.02.2026
 
 Windows 11 Pro/Ent by OneSmiLe 26H1 build 28000.1575 [Ru]
@@ -627,85 +711,6 @@ Windows 11 Pro/Ent by OneSmiLe 25H2 build 26200.7171 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3742D72737AFD242FEF0F9FA06AF043ACC9212D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646243   (247008) от 13.07.2023
-
-Windows 11 22H2 (22621.1992) x64 (3in1) by Brux [Ru/En]
-
->>ОС Windows
->>Сборки Windows 11
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка windows 11 выполнена на основе оригинальных образов microsoft Windows 11.22621.1992 Version 22H2 (July 2023 Update) (MSDN) и содержит три редакции ОС в одном образе. Предназначена как для домашних пользователей, так и для рабочих станций, где требуется минимальное отклонение от оригинала. Все изменения в сборке производились исключительно при помощи DISM.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E86B0155C00E092447A6E3D8F2FE9783A4CBE36B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586191   (217486) от 25.10.2022
-
-Windows 11 Pro 3in1 Version 22H2 Build 22621.674 Oct 2022 by Generation2 [Ru]
-
->>ОС Windows
->>Сборки Windows 11
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередная сборка от шведа  Generation2Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:212858D5FB79C21C66B1C93E5C55A3F6B034E137
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586471   (216161) от 26.10.2022
-
-Windows 11 3in1 VL (x64) Elgujakviso Edition (v.25.10.22) [Ru]
-
->>След.
->>Сборки Windows 11
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинальных образов от MSDN: 22H2 (build 22621.674).
-  Установлен NET Framework 3.5 (включает .NET 2.0 и 3.0); включен стандартны просмотр фото. Для получения полной информаций об изменениях, читайте раздел "дополнительная информация".Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C659A152522CE823EC7E070E935BDA99BF1C401F
 ```
 
 https://mybot314.ru/tekegram_catalog/

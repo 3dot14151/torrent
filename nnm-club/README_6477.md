@@ -1,24 +1,592 @@
-###  Публикация: 1273838   (798650) от 04.01.2019
+###  Публикация: 1121972   (799260) от 04.04.2017
 
-Гектор Макдональд | Правда. Как политики, корпорации и медиа формируют нашу реальность (2019) [FB2]
+VA - Relaxing Beach Chillout Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Разное (категория книг)
->>Популярная психология и саморазвитие
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Допустим, вы сумеете уличить во лжи политиков и рекламщиков и сможете не вестись на фейковые новости в соцсетях и СМИ. Но как распознать обман, когда ловко подтасовывают факты и жонглируют словами? Что делать, если нам врут с помощью правды?
+01.  Ronner T - Belfast  5:44
+02.  Rudegroove - Sinergy  5:16
+03.  Rico Bonetti - Just Chillin'  3:08
+04.  Steven Moses - Call Me Now (Fresh & Martin's Chillout Mix)  2:53(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30045D7CE016CEC65EA44AD087B53AF8E2CC599D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122111   (799259) от 04.04.2017
+
+VA - Trance Spring Essentials (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Vintage & Morelli ft. Arielle Maren - Awaken (Extended Mix)  7:49
+02.  Shingo Nakamura - The Four (Yuji Ono Remix)  5:53
+03.  LTN & Roni Joni - In Between (Sound Quelle Remix)  5:48
+04.  Gregory Esayan - Make a Wish (eleven.five Remix)  7:18(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B277A1D774C38BC7DE6785E70353EA0F6916E57E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120880   (799258) от 04.04.2017
+
+Ori Uplift - Uplifting Only, Episode 216 (2017) [MP3|192 Kbps] <Trance, Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799258.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. [0:00:33]: FAN FAVORITE: Javii Wind - Endless Waltz (DreamLife Remix)Жанр: Trance, Uplifting TranceПродолжительность: 02:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F987B205180139D5236B20D4367336921956FE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122281   (799257) от 04.04.2017
+
+Leaf 5.0.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Leaf интуитивно понятная читалка для RSS новостей
+Leaf  является удивительным для чтения новостей для вашего Mac. Читайте, делитесь и пользуйтесь поиском новости на всех ваших любимых веб-сайтов.
+Leaf проще как по функциям, так и по внешнему виду. В читалке появилась поддержка агрегатора Feedly, так что теперь без проблем можно прыгать между Leaf, ReadKit и Reeder (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 апреля 2017Разработчик: Rocky Sand Studio Ltd.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11ED8034EA863C6C8FCAA622E94D46D5D8EE21CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121899   (799256) от 04.04.2017
+
+VA - Beatport Trance  Pack (04.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Emotional, Blissful, Harmonic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  TrancEye - Ad Astra (Extended Mix)  6:38
+02.  Andre Visior & Mind X - Eclipse (Original Mix)  6:57
+03.  Solis & Sean Truby pres. S&ST - Roots (Extended Mix)  6:40
+04.  Sheridan Grout & Michele C - One Chance (Steve Allen Remix)  5:47(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Emotional, Blissful, HarmonicПродолжительность: 02:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C9D75446FF95B484B81E84F327AD12B4A31674B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122061   (799255) от 04.04.2017
+
+Tempel - The Moon Lit Our Path (2015) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carvings In The Door (08:22)
+02. The Moon Lit Our Path (09:33)
+03. Descending Into The Labyrinth (12:20)
+04. Tomb Of The Ancients (09:59)(   Читать дальше...   )Жанр: Post-Metal, Progressive MetalПродолжительность: 00:52:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88AD109E4485737641F75844E1A9034E9BC2B4C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122078   (799254) от 04.04.2017
+
+Ike Quebec - It Might As Well Be Spring (1961) 1998, Ars Nova [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.It Might As Well Be Spring [06:19]
+ 02.A Light Reprieve [05:25]
+ 03.Easy Don't Hurt [06:09]
+ 04.Lover Man [05:58](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D98F74EBD8D5F55C04A78087F247933FC7624280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122250   (799253) от 04.04.2017
+
+iFinance 4.2.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799253.jpg" />
+</div>
+
+
+###  Подробнее
+
+iFinance 4 позволяет вам отслеживать доходы и расходы наиболее удобным и быстрым способом. Быстрый взгляд на диаграммы позволяет оценить на что вы тратите деньги и откуда поступает доход. Оптимизация ваших финансов - оказывается это интересно! Автоматическиое назначение категорий, ключевые слова, бюджеты и анализ данные превратят ваш банковский счёт в нечто большее, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04 апреля 2017Разработчик: Synium Software GmbHПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F764E9B0E5F92E7A9E30836E68DBC032453B60C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121965   (799252) от 04.04.2017
+
+VA - Chillout Summer Session Ibiza Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Skendo - Romantic Beach Dinner  3:03
+02.  Mari Billa - Kids Of The Moon  3:01
+03.  Xavier Baptist - The Early Bird  3:33
+04.  Tom Hold - Journey  5:28(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7A590DAC7F9BC88FC0D8CB2E349AEF70547AB27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122187   (799251) от 04.04.2017
+
+VA - Sexy Deep House (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danny Vegas - Hold Me Down
+02. Echoboy - Get Do It
+03. DJ Favorite - Beautiful Night - Mars3ll Remix
+04. Plastik Night - Bono(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:00:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB10F8E7228D4D849326609EE0500700D4F6435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122055   (799250) от 04.04.2017
+
+Tempel - On The Steps Of The Temple (2014) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mountain (08:31)
+02. Rising From The Abyss (09:06)
+03. Final Years (04:38)
+04. The Mist That Shrouds The Peaks (10:15)(   Читать дальше...   )Жанр: Post-Metal, Progressive MetalПродолжительность: 00:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2DC76ED874C7BA9F4B410EB1B86AC28C5187381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121979   (799249) от 04.04.2017
+
+Lingon X 4.3.7 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lingon X  - автоматический запуск приложений и сценариев
+Lingon позволяет визуально создавать файлы автозагрузки, которые используются для запуска приложений и скриптов автоматически при загрузке Mac OS X. Список всех программ выносится в таблицу, где его удобно редактировать. Тут же отображается статус каждой программы: чем она занимается, работает ли в данный момент (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 февраля 2017Разработчик: Peter Borg Apps ABПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Немецкий  и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3AA194DAE4567A1841C7920645D3F31201C37F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121983   (799248) от 04.04.2017
+
+VA - Chillout April 2017 (Top 10 Best Of Collections) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Leonid Bannikov - Black Princess (Chillout Mix)  5:19
+02.  CJ RcM - Mallorca (Chillout Mix)  4:38
+03.  Doors In The Sand - True Story (Chillout Mix)  4:19
+04.  Diamans - Reach Heavens (Chillout Mix)  4:33(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FABB0B2A5BD9A232B1525F78EAA4385F2D28E788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122156   (799247) от 04.04.2017
+
+Elian West - Uplifting Trance Collection Vol 6 (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Road Home (08:17)
+02. Magic Winter (06:43)
+03. My Sun (08:43)
+04. I Miss You (04:37)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0E1AA2905EC45A959086489413DECE6D9E84419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121974   (799246) от 04.04.2017
+
+SteerMouse 5.0.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799246.jpg" />
+</div>
+
+
+###  Подробнее
+
+SteerMouse — продвинутый драйвер для USB и Bluetooth мышек, позволяющий присваивать их кнопкам дополнительные функции. Обладатели Mighty Mouse, а также манипуляторов от сторонних изготовителей могут увеличить производительность работы, используя новые возможности мышки: переключение приложений, нажатие горячих клавиш, быстрое наведение курсора на кнопки и многие (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14 марта 2017Разработчик: plentycomПоддерживаемая ОС: macOS 10.6  +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B69ED334C0F0169ECD447BC3A663E98EC8E46D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121961   (799245) от 04.04.2017
+
+VA - Chill Pilates Music: 15 Cool Chill Out Tracks for Pilates and Yoga (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ethereal Moments - Salutations to the Sun
+02. Peter Orbit - Les Nuits
+03. Bella Element - In This World
+04. Jonathan Sarlat - Moments in Love(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B320E197F34A5CF8B6AE7EB3CE0125EF0571449
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121851   (799244) от 04.04.2017
+
+Aldaria - Land Of Light (2017) [FLAC|Lossless|image + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Excitare Ad Lucem 01:06
+02. Another Life 06:14
+03. Guardians Of The Light 06:04
+04. Sands Of Time 04:52(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00: 59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0259AE5F4BDC3385FE350F34D27B6D0A3D83F66F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122188   (799243) от 04.04.2017
+
+Dirty Dave Osti - Voodoo Guitar (2010) [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Play What the Man can't Say (04:37)
+02. Lit Again (04:43)
+03. Lips of a Liar (05:44)
+04. Wildside (03:45)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EFFA0E5FA01E54E6E2F547FEE1AF1CDD14C76ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121951   (799242) от 04.04.2017
+
+VA - Submission Recordings Presents Miami 2017 (Mixed by INDI & Atragun) (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Toast - Rise Up (Original Mix)  4:53
+02.  Amir Shahlaee - Summer Island (Michael Fearon Remix)  6:23
+03.  Tocalta - Fragments (Original Mix)  5:00
+04.  Biotones & Max Farewell  - Paraschute (Ion Luca Remix)  5:22(   Читать дальше...   )Жанр: TranceПродолжительность: 04:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B70E4D3FC69D6C7CD96BA897C1A8429D03A9E8CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122175   (799241) от 04.04.2017
+
+PhotoStack (was Instastack) 3.6.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799241.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoStack (был Instastack) - настольный клиент Instagram.
+PhotoStack -  Это самый элегантный способ просмотра Instagram на Mac.
+PhotoStack - это новый инструмент, чтобы помочь вам открыть для себя Instagram и если вы хотите подключить свой аккаунт Instagram из строки меню на вашем Mac, PhotoStack это ваш инструмент.
+(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03 апреля 2017Разработчик: IcyArrow,Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C592CD379DDBF6BEA6CB606AE0CDFD213420F230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122320   (799240) от 04.04.2017
+
+Downie 2.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик. Поддерживает более 800 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие. Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.
 
-Автор книги Гектор Макдональд утверждает, что есть разные способы говорить правду. То, как нам ее преподносят, влияет на наше (   Читать дальше...   )Жанр: Самосовершенствование, СаморазвитиеФормат: FB2
+Список поддерживаемых сервисов: YouTube, Vimeo, trailers.apple.com, CNBC, NHL, LiveLeak, Insanee, Daily Haha, BlipTV, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04 апреля 2017Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C82AFCF9F7D86464D621672F95B19A4A80328FA6
+magnet:?xt=urn:btih:3584FE5155E734538D9F74647F7824FE0742B72B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,25 +594,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273768   (798649) от 04.01.2019
+###  Публикация: 1121788   (799239) от 04.04.2017
 
-Ее секрет (2018) SATRip [H.264] (сезон 1, серии 1-4 из 4)
+VA - Chillout April 2017  (Top 10 Spring Relaxing Chill Out and Lounge Music) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Отечественные сериалы
->>нет
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799239.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Игорь - молодой перспективный юрист, делающий первые шаги по завоеванию Москвы. И удача на его стороне - его берут на работу в крупную девелоперскую компанию. Впереди блестящая карьера и счастливая жизнь с красавицей Жанной. Их роман стремительно развивается, когда Игорь вдруг понимает, что дочь главы компании по уши влюблена в него. Маша - девушка невзрачная, словно (   Читать дальше...   )Производство: Россия / ХитФильмЖанр: детектив,  криминалРежиссер: Карен ЗахаровАктеры: Филипп Бледный, Анастасия Мытражик, Александр Наумов, Ирина Чериченко, Александра Богданова, Ольга Науменко, Виталий АльшанскийПродолжительность: ~00:45:00 серия
+01. Alexey Kosenko — Pain
+02. Kasstedy — Morning in Zion
+03. Das.RBT — Bullets
+04. Nikolay Mikryukov — Bora Bora(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:56:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:02A32EF56C7DD7451D28A2DA170527E36F75E655
+magnet:?xt=urn:btih:E1057E982EF52F42FA43249354A2F083C2F95A6A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,25 +623,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273867   (798648) от 04.01.2019
+###  Публикация: 1122177   (799238) от 04.04.2017
 
-Её секрет (2018) WEBRip [H.264] (сезон 1, серии 1-4 из 4)
+Fugu Quartet - Sisyphus (2016) Demo EP [MP3|320 Kbps] <post-metal, sludge, darkjazz>
 
->>Отечественные сериалы
->>нет
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799238.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Игорь - молодой юрист, делающий первые шаги по завоеванию Москвы. Его берут на работу в крупную девелоперскую компанию. Впереди блестящая карьера и счастливая жизнь с красавицей Жанной. В какой-то момент Игорь понимает, что дочь главы компании по уши влюблена в него. Маша - девушка невзрачная, словно не от мира сего, полная противоположность яркой и темпераментной (   Читать дальше...   )Производство: Россия | ХитФильмЖанр: криминал, детективРежиссер: Карен ЗахаровАктеры: Филипп Бледный, Анастасия Мытражик, Александр Наумов, Ирина Чериченко, Александра Богданова, Ольга Науменко, Виталий Альшанский, Дмитрий Мазуров, Гульнара Хазеева, Дмитрий Комиссаров.Продолжительность: ~00:45:00 серия
+01 Through The Ground
+02 Sisyphus
+03 UnnamedЖанр: post-metal, sludge, darkjazzПродолжительность: 00.18.58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15C8EDDF90107E9645A39102EC4FEBAC658DDEE9
+magnet:?xt=urn:btih:FE101789B66529D640589D8CE633E18866852261
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -78,26 +651,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272409   (798647) от 04.01.2019
+###  Публикация: 1122000   (799237) от 04.04.2017
 
-Зеленая миля / The Green Mile (1999) BDRip [H.264/720p] [JPN transfer]
+VA - Level Lounge (The Best Selection Of Vip Chill Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799237.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обвиненный в страшном преступлении, Джон Коффи оказывается в блоке смертников тюрьмы «Холодная гора». Вновь прибывший обладал поразительным ростом и был пугающе спокоен, что, впрочем, никак не влияло на отношение к нему начальника блока Пола Эджкомба, привыкшего исполнять приговор.
-Гигант удивил всех позже, когда выяснилось, что он обладает невероятной магической (   Читать дальше...   )Производство: США / Castle Rock Entertainment, Darkwoods Productions, Warner BrosЖанр: Фэнтези, Драма, Криминал, ДетективРежиссер: Фрэнк ДарабонтАктеры: Том Хэнкс, Дэвид Морс, Майкл Кларк Дункан, Бонни Хант, Джеймс Кромуэлл, Майкл Джитер, Грэм Грин, Даг Хатчисон, Сэм Рокуэлл, Барри ПепперПеревод: Дублированный, профессиональный (многоголосый, закадровый), авторский (одноголосый закадровый)Субтитры: русские, английскиеПродолжительность: 03:08:42
+01.  Ajad Samskara - Byron Bay  5:09
+02.  Augusto Casella - Dream Love  4:27
+03.  Emmanuele Landini - Innocence  5:19
+04.  Ajad Samskara - Violet  4:20(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:19:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7EF2A2C6BBAE40924099ED0C644ACD56F5139F47
+magnet:?xt=urn:btih:9A28AA3CC54BAE08F5BF78385E63101530157B3F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,578 +680,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273683   (798646) от 04.01.2019
+###  Публикация: 1121806   (799236) от 04.04.2017
 
-Ничего хорошего в отеле «Эль рояль» / Bad Times at the El Royale (2018) BDRemux [H.264/1080p]
+космический тюлень - Эреб (2015) [MP3|320 Kbps] <post-rock, post-metal, instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дигм
+02. чаща
+03. мир нерождённых душ
+04. Гашшарва(   Читать дальше...   )Жанр: post-rock, post-metal, instrumentalПродолжительность: 00:23:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF806EC43B4292D5EE5E27B0B5BE55D31D9E8118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121956   (799235) от 04.04.2017
+
+Monster Energy NASCAR Cup Series 2017. Этап 6 - Martinsville. Гонка (2017) WEBRip [H.264/720p-LQ] [VO]
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799235.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1969 год. Группа разношерстных личностей останавливается на ночь в когда-то популярном отеле «Эль Рояль», расположенном на границе штатов Невада и Калифорния. В здании отеля собрались неприветливый священник, певица Дарлин, энергичный продавец пылесосов и подозрительная девушка с Юга. Вместе с ними ночь в отеле проводит молодой консьерж. Каждому из них есть что скрывать, (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: Триллер, Драма, Криминал, ДетективРежиссер: Дрю ГоддардАктеры: Крис Хемсворт, Дакота Джонсон, Джефф Бриджес, Синтия Эриво, Джон Хэмм, Кэйли Спэни, Льюис Пуллман, Ксавье Долан, Ник Офферман, Ши Уигхэм, Кэтрин Изабель, Мэнни Хасинто, Марк О`Брайэн, Чарльз Халфорд, Джим О`Хейр, Джерри Нэйрн, Альвина Аугуст, Джонатан Уайтселл, Софиа Локлин ХертПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 02:21:37
+6 этап Monster Energy NASCAR Cup Series STP 500, Martinsville Speedway (500 laps, 263 miles).
+Запись гонки с прямой трансляции на телеканале "Premier Sports HD".
+В записи отсутствуют последние круги с 30 по 14 из-за проблем с падением источника телеканала.Телекомпания: Premier Sports HDЖанр: СпортПеревод: Одноголосый закадровый, любительскийЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:01:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D464CDE34C38A2FC558D46768CF16F66399CB7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273278   (798645) от 04.01.2019
-
-Тайны следствия (2018) HDTV [H.264/1080i-LQ] (сезон 18, серии 1-24 из 24)
-
->>Отечественные сериалы
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Следователю Марии Сергеевне Швецовой предстоит разобраться в новых запутанных преступлениях. Тем временем у остальных героев в жизни большие перемены. Оля наконец забеременела от Курочкина, будущий папаша разрывается между домом и работой..Производство: Россия / ООО "Кинопроизводственный центр", ООО "Прогресс-Студия"Жанр: криминал, детективРежиссер: Егор Баринов, Жанна КохановаАктеры: Анна Ковальчук, Вячеслав Захаров, Игорь Николаев, Александр Новиков, Антон Ксенев, Давид Бродский, Андрей Шарков, Степан Пивкин, Татьяна Левина, Анастасия Ступина и др.Продолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F5F36FA1661A86F838DC4B43B7C934F0F1E9E8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507169   (798644) от 03.11.2021
-
-Айнбо. Сердце Амазонии / AINBO: Spirit of the Amazon (2020) BDRemux [H.264/1080p]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_798644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесстрашная Айнбо родилась и выросла в таинственных амазонских джунглях. Узнав, что её родному поселку грозит опасность, она тотчас отправляется за помощью в компании удивительных зверей. Их ждёт восхождение к пылающему вулкану, встреча с могущественным духом Амазонии и схватка с мифическим чудовищем.Производство: Перу, Нидерланды / Cinema Management Group, Cool Beans, Tunche FilmsЖанр: Мультфильм, фэнтези, комедия, приключения, семейный, детскийРежиссер: Рихард Клаус, Хосе СеладаАктеры: Лола Райе, Наоми Серрано, Дино Андраде, Джо Эрнандес, Том Хоффман, Рене Мухика, Йени Альварез, Бернардо де Паула, Алехандра Гольяс, Сюзана БаллестеросПеревод: Дублированный (СиПиАй Филмз / CPI Films)Язык озвучки: Русский, английскийСубтитры: Русские (Full), английские (Full)Продолжительность: 01:24:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507237   (798643) от 03.11.2021
-
-Тайна сестёр Макалузо  / Le sorelle Macaluso (2020) BDRip [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пять сестер Макалузо живут без родителей на окраине Палермо. Несмотря на трудности, их детство наполнено надеждами на будущее, пока внезапное происшествие не меняет размеренный уклад их жизни. Теперь сестер объединяет общая тайна.Производство: Италия / Rosamont, Minimum Fax Media, Rai CinemaЖанр: Драма, мелодрамаРежиссер: Эмма ДантеАктеры: Алисса Мария Орландо, Сузанна Пираино, Анита Помарио, Элеонора Де Лука, Донателла Финокьяро, Виола Пузатери, Серена Бароне, Симона Малато, Лаура Джордани, Мария Розария АлатиПеревод: Профессиональный многоголосый (Студия Кипарис)Субтитры: Русские (Forced, Full), английскиеПродолжительность: 01:28:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B9A60DF21DFF6A58164C05DDEC8495BA6A1790
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507272   (798642) от 03.11.2021
-
-Хэдли Уикем | Изучаем Shiny (2022) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите веб-фреймворк Shiny и выведите свои навыки владения языком программирования R на новый уровень. Оставьте в прошлом статические отчеты – с Shiny вы сможете создавать полностью интерактивные веб-приложения для анализа данных. Пользователи смогут легко перемещаться между наборами данных, создавать и исследовать подмножества, выборки и срезы, запускать модели (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B2BE07AD5CCF710207C10259404482D1D0A7C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503763   (798641) от 03.11.2021
-
-Скотт из Антарктики / Scott of the Antarctic (1948) BDRip [H.265/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правдивая история о британском исследователе Роберте Фалконе Скотте и его злосчастной экспедиции, в попытке стать первым человеком, достигшим Южного полюса, только обнаружил, что убийственно холодная погода и конкурирующая команда норвежских исследователей объединились против него.Производство: Великобритания, Ealing StudiosЖанр: Боевик, драма, приключения, биографияРежиссер: Чарльз ФрендАктеры: Джон Миллз, Диана Черчилль, Харольд Уоррендер, Энн Фёрт, Дерек Бонд, Реджинальд Бекуив, Джеймс Робертсон Джастис, Кеннет Мор, Норман Уильямс, Джон ГрегсонПеревод: Одноголосый любительский (Олег Воротилин)Субтитры: Русские (Антон Каптелов), английскиеПродолжительность: 01:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E06CA84B47697F9610380415C87A46AAEA15E7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507132   (798640) от 03.11.2021
-
-Любовь по правилам и без / Something's Gotta Give (2003) WEB-DL [H.265/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пожилой функционер музыкальной индустрии Гарри Сэнборн питает нежные чувства к молоденькой Марин. Однажды у Гарри случается сердечный удар в доме матери его любовницы Эрики. В спешке для Гарри вызывают врача. Но приехавший на вызов доктор, так же, как и его пациент, внезапно влюбляется в Эрику.Производство: США / Columbia Pictures Corporation, Warner Bros. Pictures, Waverly FilmsЖанр: драма, мелодрама, комедияРежиссер: Нэнси МайерсАктеры: Джек Николсон, Дайан Китон, Киану Ривз, Фрэнсис МакДорманд, Аманда Пит, Джон Фавро, Пол Майкл Глейзер, Рэйчел Тикотин, Ти-Джей Тайн, КаДи СтриклендПеревод: Дублированный, Двуголосый профессиональныйСубтитры: английские (полные, для слабослышащих)Продолжительность: 02:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:348ADCEBE7807EF25354B9FA5F01170E4525363C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506197   (798639) от 03.11.2021
-
-Проекты - VideoHive - Happy Kids Education Promo - 33493311 [AEP]
-
->>Проекты
->>Детские (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798639.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Happy Kids Education Promo» - шаблон для создания слайд-шоу на школьную тематику. Всё, что Вам нужно сделать, это добавить свои фотографии и изменить тексты.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC8526288D6DA669595603A74B17A137CC0A653F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507135   (798638) от 03.11.2021
-
-Sidify Music Converter 2.4.0 RePack by F4CG (для Spotify) [Multi/Ru]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sidify Music Converter - программа поможет без особых проблем снять защиту DRM с ваших любимых треков и плейлистов из Spotify. Говоря проще, вы теперь сможете скачивать любую музыку  из данного сервиса при этом преодолевая ограничения накладываемые защитой типа DRM (digital rights management). Установка проходит быстро, тут проблем нет, однако не стоит забывать, что (   Читать дальше...   )Язык интерфейса: Русский, английский, немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD16E04EBAD20162395724C690234F327DD6BAA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507163   (798637) от 03.11.2021
-
-Blue System - My Star (2021) [FLAC|Lossless|tracks + .cue] <EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sorry Little Sarah (Maxi Version) (5:16)
-02. Big Boys Don't Cry (3:13)
-03. My Bed Is Too Big (No Longer Too Big Bed Mix) (5:28)
-04. Under My Skin (Radio Version) (3:35)(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:18:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB90366F3E299C65F2992C1FC60AA88571035FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507172   (798636) от 03.11.2021
-
-Снег, чай и любовь / Zapada, Ceai si Dragoste (Snow, Tea and Love) (2021) WEB-DLRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трое мелких воришек бегут из тюрьмы с помощью местного гангстера и магического зелья телепортации. Вскоре они замышляют новое ограбление.Производство: Румыния / Zolit FilmЖанр: Комедия, фантастикаРежиссер: Каталон БунганАктеры: Андреас Петреску, Ралука, Александра Тимофт, Анка Динасу, Драгос Думитру, Кристи Джейкоб, Левент Сали, Ливию Варси, Ангел Попеску, Dan NegruПеревод: Многоголосый профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:53:46Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD841151866890501EFD4DDEF19B16DAA752F6C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507207   (798635) от 03.11.2021
-
-Растровый клипарт - Food Meat Vegetables Fruits Fish Stock Photo Bundle Vol.1 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еда, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2386x1789-9068x6046
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83383085E4A1D28BA427FB3C9991A72C2A4AC3EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507236   (798634) от 03.11.2021
-
-Skype 8.78.0.159 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует протокол MSNP24 для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC931C71357B934F87D6D56ABC3C4650973EE13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506214   (798633) от 03.11.2021
-
-Проекты - VideoHive - Kids Tv Broadcast And Youtube Channel Pack - 24865287 [AEP]
-
->>Проекты
->>Детские (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798633.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Kids Tv Broadcast And Youtube Channel Pack» - пакет шаблонов, который поможет Вам создать уникальный видеоконтент для трансляции детского ТВ или для дизайна детских каналов на YouTube.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D999879556D4B583B0FA1F93828DADCE67E0F052
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506985   (798632) от 03.11.2021
-
-Побег из Шоушенка / The Shawshank Redemption (1994) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энди Дюфрейн, вице-президент солидного банка, приговаривается к двум пожизненным заключениям по обвинению в убийстве жены и ее любовника. Он отбывает заключение в тюрьме Шоушенк, где проходит все круги ада, проявляя недюжинное мужество, упорство и хладнокровие.Производство: США / Castle Rock EntertainmentЖанр: ДрамаРежиссер: Фрэнк ДарабонтАктеры: Тим Роббинс, Морган Фриман, Боб Гантон, Уильям Сэдлер, Клэнси Браун, Джил Беллоуз, Марк Ролстон, Джеймс Уитмор, Джеффри ДеМанн, Ларри БранденбургПеревод: Дублированный (Voize по заказу IVI)Субтитры: нетПродолжительность: 02:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7F110FF6FEB63F9346A839D4157EE698B5F0DFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507295   (798631) от 03.11.2021
-
-Расшифровано / Decrypted (2021) WEBRip [H.264/1080p-LQ] [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Провокационная комедия о несоответствующей команде АНБ, которая похищает создателя Биткойна — Сатоши Накамото — и пытается под пытками заставить его выдать информацию, необходимую для уничтожения криптовалют.Производство: Великобритания / Substantial FilmsЖанр: Драма, комедияРежиссер: Том СэндсАктеры: София Майлс, Дэвид Хофлин, Аманда Аббингтон, Кевин МакНэлли, Талиса Гарсиа, Дон Жилет, Клайв Фрэнсис, Аки Котабе, Кайоде Акиниеми, Pilar AmoresПеревод: Многоголосый любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:51:27Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C4D97EE3E68A5ED108C1598A55F32676FD929A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506305   (798630) от 03.11.2021
-
-ЗАО "Инфостудия ЭКОН", SRC-Master | Портфель директора (2004) DVDRip
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский аналог МВА в сжатом виде.
-Один из лучших на момент выхода видео семинар обучения бизнесу.
-Особенное отличие - рассмотрение теории на примерах из реальной жизни.
-В раздаче  все семинары из портфеля директора вместе с рабочими тетрадями и раздаточными материалами.(   Читать дальше...   )Производство: ЗАО "Инфостудия ЭКОН"Жанр: Бизнес семинарПродолжительность: 39:10:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:297B8ED83C02A5053AED6F49B345DAD405CD9A95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507283   (798629) от 03.11.2021
-
-Жена олигарха (2021) WEBRip [H.264/720p] (сезон 1, серии 1-17 из 17)
-
->>Отечественные сериалы
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь Альбины меняется в один миг: под угрозой ареста муж-олигарх бросает её, прихватив с собой все деньги. Всё, что осталось от супруга, — двое детей и российская фабрика на грани банкротства. Теперь Альбина вынуждена забыть о роскошной жизни в лондонском особняке и вспомнить то, что ей говорили на бизнес-курсах. Только начинать жизнь с чистого листа в провинциальном (   Читать дальше...   )Производство: Россия | «Keystone Production»Жанр: КомедияРежиссер: Мария КравченкоАктеры: Елена Подкаминская, Маргарита Дьяченкова, Игорь Верник, Антон Филипенко, Владимир Гостюхин, Алексей Маклаков, Александр Дьяченко, Александр Обласов, Даниил Киселёв, Константин ПохмеловПродолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:539455145AA405484EEEB7F46EA21318F3F3DF40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507253   (798628) от 03.11.2021
-
-Chromium 95.0.4638.69 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chromium – веб-браузер с открытым исходным кодом, который обеспечивает своих обозревателей быстрым, безопасным и надёжным доступом к сети Интернет, оснащенный удобной платформой для веб-приложений. Быстрота браузера обеспечивается за счет открытых компонентов. Разработчики браузера постоянно внедряют все новые и новые функции, направленные на повышение безопасности (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD903837F1A8BF6302D8AC0F62AA8D1989CD2A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507279   (798627) от 03.11.2021
-
-4K Video Downloader 4.18.4.4550 RePack (& Portable) TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798627.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K Video Downloader позволяет скачивать видео, плейлисты, каналы и субтитры с YouTube, Facebook, Vimeo и других сайтов в высоком качестве и разрешении.
-Смотрите любимые видео в любое время и в любом месте, даже когда вы оффлайн. Скачивать легко и удобно — просто скопируйте из браузера ссылку на видео и нажмите "Вставить ссылку" в приложении!Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A845EDA371B96268665F4E111A79AEE26C2E7E97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507219   (798626) от 03.11.2021
-
-Айнбо. Сердце Амазонии / AINBO: Spirit of the Amazon (2020) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесстрашная Айнбо родилась и выросла в таинственных амазонских джунглях. Узнав, что её родному поселку грозит опасность, она тотчас отправляется за помощью в компании удивительных зверей. Их ждёт восхождение к пылающему вулкану, встреча с могущественным духом Амазонии и схватка с мифическим чудовищем.Производство: Перу, Нидерланды / Cinema Management Group, Cool Beans, Tunche FilmsЖанр: Мультфильм, фэнтези, комедия, приключения, семейный, детскийРежиссер: Рихард Клаус, Хосе СеладаАктеры: Лола Райе, Наоми Серрано, Дино Андраде, Джо Эрнандес, Том Хоффман, Рене Мухика, Йени Альварез, Бернардо де Паула, Алехандра Гольяс, Сюзана БаллестеросПеревод: Дублированный (СиПиАй Филмз / CPI Films)Язык озвучки: Русский, английскийСубтитры: Русские (Full), английские (Full)Продолжительность: 01:24:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:817B3A7F9CA3B0B6A0D84416EEB36B4150F5AF1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507230   (798625) от 03.11.2021
-
-ФотоШОУ PRO 19.5 Repack KaktusTV [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798625.jpg" />
-</div>
-
-
-###  Подробнее
-
-ФотоШОУ PRO - открывает возможности для создания потрясающих фильмов из фотографий и музыки. Создавайте незабываемые слайд-шоу на любые темы: рассказы о путешествиях, праздниках, свадебные фотофильмы, Love Story и т.п. Программа включает сотни комбинаций эффектов анимации, позволяющих оживить любую фотографию. Вам точно не будет скучно... Коллекция элегантных переходов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE0C2E172F42B7635FBE362AF3521ED9FED04CC0
+magnet:?xt=urn:btih:F8EF1B6582C3F94EEAA42E8F12D2F08465B7E035
 ```
 
 https://mybot314.ru/tekegram_catalog/

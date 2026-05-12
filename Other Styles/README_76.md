@@ -1,3 +1,119 @@
+###  Публикация: 1031927   (649675) от 05.07.2016
+
+David Clavijo - From the Depths (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From the Depths
+02. When We Were Together
+03. Fly With Me
+04. The Song of Wisdom(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07AF899CDEA15BD7B1A1E9FFF59A5D55A01AF509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031978   (649670) от 05.07.2016
+
+Simonopetras - Psaltirion Terpinon - Hymns From The Psalter (1990) [MP3|320 Kbps] <Вокал, Хоровое пение>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Come Let Us Rejoice, Ps 94    04:59
+02.  O Lord, Our Lord, Ps 8    06:34
+03.  The Lord Is My Shephard, Ps 22    05:46
+04.  O Sing To The Lord A New Song, Ps 97    05:43(   Читать дальше...   )Жанр: Вокал, Хоровое пениеПродолжительность: 01:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D872FE75A615DC475E9D0B3134A67950383E707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031772   (649543) от 05.07.2016
+
+Medwyn Goodall - The Dreamworld (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamweaver [00:08:28]
+02. Where Imaginations Meet [00:08:35]
+03. Orbit [00:03:40]
+04. Eye of the Wolf [00:08:30](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C293709DF7DF2520815B2AF29C246F884E1668DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905441   (649061) от 06.06.2015
+
+Tom Holkenborg aka Junkie XL - Безумный Макс: Дорога ярости / Mad Max: Fury Road (Original Motion Picture Soundtrack) (2015) Deluxe Version [FLAC|WEB-DL|Lossless]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Survive (Extended Version) (01:40)
+02. Escape (Extended Version) (03:29)
+03. Immortan’s Citadel (Extended Version) (08:58)
+04. Blood Bag (Extended Version) (03:40)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 02:05:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2C2BC8CCFB735A2F4E69151FD79E51DC979FC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905454   (649057) от 06.06.2015
 
 Tom Holkenborg aka Junkie XL - Безумный Макс: Дорога ярости / Mad Max: Fury Road (Original Motion Picture Soundtrack) (2015) Deluxe Version [MP3|320 кб/с]<Soundtrack>
@@ -645,122 +761,6 @@ Henry Mancini - Trail Of The Pink Panther / След Розовой Пантер
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BA18428E0F1D0C97D60BBD46F0B77F3865B9710
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906230   (645428) от 08.06.2015
-
-VA - Кунг Фьюри / Kung Fury (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mitch Murder - Kung Fury (03:12)
-02. David Hasselhoff - True Survivor (03:42)
-03. Lost Years - West Side Lane (03:51)
-04. Betamaxx - Redlining 6th (02:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:981D12B5B84C58A5030FB1CACC0542F485E15BBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906214   (645424) от 08.06.2015
-
-VA - Кунг Фьюри / Kung Fury (Original Motion Picture Soundtrack) (2015) [FLAC|WEB-DL|Lossless]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mitch Murder - Kung Fury (03:12)
-02. David Hasselhoff - True Survivor (03:42)
-03. Lost Years - West Side Lane (03:51)
-04. Betamaxx - Redlining 6th (02:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EE7FC5D27AD75F829FFB2D38EBE626AF61FA512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142073   (644712) от 13.06.2017
-
-The Romantic Strings Orchestra - Thanks For The Memory (1995) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening, Oldies>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Embraceable You (2:31)
-02. Over The Rainbow (3:16)
-03. Sunrise Serenade (3:00)
-04. I'm Gettin' Sentimental Over You (2:53)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, OldiesПродолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F4636160286BC03F56C69C8AD8BCF7BE2E4EA83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292174   (644706) от 30.03.2019
-
-VA - Defected Accapellas Deluxe Vol. 15 (2019) [MP3|320 Kbps] <Acapellas, DJ Tools>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonny Fodera Ft. Alex Mills - Always Gonna Be (Extended Accapella) (04:42)
-02. CamelPhat Ft. Ali Love - Dopamine Machine (Accapella) (08:20)
-03. Offaiah - Push Pull (Accapella) (04:38)
-04. Selace - So Hooked On Your Lovin (Mousse T.'s Accapella) (03:40)(   Читать дальше...   )Жанр: Acapellas, DJ ToolsПродолжительность: 02:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8526C06D5AB67E8DCACB047CB826EB350F9D621D
 ```
 
 https://mybot314.ru/tekegram_catalog/

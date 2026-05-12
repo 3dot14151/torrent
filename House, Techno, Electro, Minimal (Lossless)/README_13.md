@@ -1,3 +1,32 @@
+###  Публикация: 1100720   (899842) от 04.02.2017
+
+VA - Hypnotized Creations Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amine K/Moroko Loko - Mayday [06:34]
+02. Nico Pusch - Get Me (Township Rebellion remix) [08:23]
+03. Kant - Dyster (Animal Trainer remix) [07:39]
+04. Betoko/Haze-M - Lusch (El Mundo remix) [06:56](   Читать дальше...   )Жанр: Deep House, MinimalПродолжительность: 02:05:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F03D4825F7AAA2856FAD490503B6601104F86A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100537   (899528) от 04.02.2017
 
 VA - Kontor Festival Sounds 2017.01 The Beginning (2017) [FLAC|Lossless|tracks] <House, Trance, Progressive>
@@ -712,35 +741,6 @@ Heavenchord - Discography 96 Releases (2015-2021) Ubertrend Records, hello▼str
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B29398E7B734B97495A30F62ACE4D1C094453B73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047498   (883567) от 10.09.2021
-
-Yagya - Discography 19 Releases (2002-2021) [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Minimal, Ambient>
-
->>След.
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Other Side Of Despair (06:55)
- 02. Distorted Dualism (06:44)
- 03. Standing Still In A River (06:45)
- 04. Two Moments (06:52)Тип издания: CD, Web, VinylЖанр: Dub Techno, Minimal, Techno, Ambient •Продолжительность: 19:53:05 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3644A45439399DDF453596981EB6BB7D2F6EED56
 ```
 
 https://mybot314.ru/tekegram_catalog/

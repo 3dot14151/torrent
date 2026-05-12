@@ -1,3 +1,61 @@
+###  Публикация: 1648908   (230718) от 25.07.2023
+
+VA - Silent Shore Trance - Summer (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joren Heelsing - Everything (Extended Mix) (05:54)
+02. Double Motion & Andy Dreamer - Light In The Dark (Extended Mix) (05:44)
+03. Joren Heelsing - Perfect Overnight (Extended Mix) (06:24)
+04. EDU BRAVO - Run Without Fear (Extended Mix) (06:06)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64AB6B6B527981AE3D3F31DAC3BC39FE685CDFA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649332   (230699) от 27.07.2023
+
+VA - 15 Years Of Enhanced Music, Mixed by Tritonal (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blonde Maze & Attom - I Think About (Original Mix) [3:47]
+02. Faodail - Bloom (Original Mix) [4:43]
+03. PRAANA - Mojave (Extended Mix) [6:24]
+04. Sound Quelle - Deep Chicken (Extended Mix) [5:57](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 06:11:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A7CD9067F824CF724CB4BB184618B1F421CB562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648937   (230693) от 25.07.2023
 
 VA - Keep It Trance Vol. 14 (2023) [MP3|320 Kbps] <Trance>
@@ -687,64 +745,6 @@ VA - Gert Records 10 Years Anniversary - (Mixed by DJ Mena) (2022) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC97F20451A2876787645178F3C1F9DF6C4741C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585231   (222703) от 21.10.2022
-
-Alexei Maslov - Best (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexei Maslov - I Don't (Original Mix)
-02. Alexei Maslov - Above The Clouds (Original Mix)
-03. Alexei Maslov - Ancient Legend (Original Mix)
-04. Alexei Maslov - Astra (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B3CA06EBF46F0B8B93A9939E100A6FF5C2EFE91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342766   (222670) от 03.12.2019
-
-VA - Fitbeats 2019 (Music For Aerobics, Fitness And Workouts) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222670.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Wrong Plane - Primera Linea (Extended Mix) (6:57)
-2.Sonar System & Bason Journe & Mad Demon - Miami 646 (2:59)
-3.JW&M - Still Connected (6:49)
-4.Bason Journe - Where Is Home (6:40)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9DB8E0A86692E79F7F9330E94768727806C7B33
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 1029717   (680067) от 27.06.2016
+
+Шаблоны - GraphicRiver - Geometric Photo Manipulation [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Geometric Photo Manipulation - Превосходный шаблон для Вашего творчества. Многие оценят его по достоинству.Формат: PSDРазрешение файлов: 2000x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03851B7EDE019A261D177E49C28C83A1BA385DBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029741   (679995) от 27.06.2016
+
+Шаблоны - GraphicRiver - Art Stick Photo Template [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Art Stick - Превосходный шаблон для Вашего творчества. Многие оценят его по достоинству.Формат: PSDРазрешение файлов: 2000x3000 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14E93C3FDF0CDD8DCBE39402B58362A2D5B1BB97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029694   (679905) от 27.06.2016
+
+Экшены - CreativeMarket - Qlilipn - Image to Parallax Video [ATN, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Qlilipn, самый первый Фотошоп экшен для Instagram видео. Создаёт видео с потрясающим эффектом параллакса из статического изображения с супер-простым шагом в фотошопе.Формат: ATN, PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:845826A3BF6D8F73047BE77E49944307702AD7E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223182   (679286) от 02.05.2018
+
+Текстуры - Creative Market - Digital papers marble effect - 1868948 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные цифровые текстуры с официальной документацией.
+Автор: la petite pruneФормат: JPGРазрешение файлов: 3602 x 3602
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BCC8DB8F98FEA76D44751BD42AC6C39A2ECB55A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223032   (679273) от 02.05.2018
 
 Текстуры - Creative Market - Marble Paper Textures Vol.3 - 1487162 [JPG]
@@ -569,112 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B7D8A7CF6965B6FB39ECF68673D729AEFEE107B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223201   (675103) от 04.05.2018
-
-Текстуры - GraphicBurger - 6 Fine Wood Textures Vol.1 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстуры под дерево.Формат: JPGРазрешение файлов: 2000 x 1333
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02A456A2955845E7C7B273C8D53EF4BCC90A4ECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223204   (675101) от 04.05.2018
-
-Текстуры - GraphicBurger - 6 Fine Wood Textures Vol.3 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстуры под дерево.Формат: JPGРазрешение файлов: 4500 x 3045 - 4508 x 3243
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:571E9A7F605B06EF91FA1031FA98FE080CBFA984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536609   (674164) от 12.03.2022
-
-Кисти + Action - Envato Elements - Envato Brush Collection Jan 2021 [ABR, BRUSH, BRUSHSET, ATN, AI, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674164.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Envato Brush Collection Jan 2021» - стильный, элегантный просто огромный пакет кистей на все случаи жизни для Вашего творчества. Создайте уникальный дизайн и получайте удовольствие, рисуя.
-Вы можете использовать эти кисти для воплощения своих самых смелых идей в дизайне. Кисти идеально подходят для создания плакатов, брендинга и упаковки, визитных карточек, дизайна (   Читать дальше...   )Формат: ABR, BRUSH, BRUSHSET, ATN, AI, PNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA2973B40B09BB5FECF98D8F79B961D7EE4BDCA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223416   (673420) от 05.05.2018
-
-Текстуры - Creative Market - 50% discount - 180 colorful Marbles! - 778176 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные фоны.
-Автор: Art of Sun.Формат: JPGРазрешение файлов: 3750x2734 - 4000x2916
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1710930624BED09D23FA504569A3FF1D82507154
 ```
 
 https://mybot314.ru/tekegram_catalog/

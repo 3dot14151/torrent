@@ -1,3 +1,32 @@
+###  Публикация: 1281409   (753368) от 07.02.2019
+
+Front Line Assembly - Wake Up The Coma (2019) [FLAC|Lossless|tracks + .cue] <Industrial, Electro-Industrial, EBM, Experimental>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eye On You (feat. Robert Görl) (04:30)
+02. Arbeit (05:02)
+03. Rock Me Amadeus (feat. Jimmy Urine) (04:14)
+04. Tilt (05:10)(   Читать дальше...   )Жанр: Electro-Industrial, EBM, ExperimentalПродолжительность: 01:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A322782F53A9C9933373EF1382E22FCA5B7169EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217040   (746126) от 02.04.2018
 
 Sonar - Volt Revisited (2003) Hands Productions [FLAC|Lossless|Vinyl|tracks] <Rhythmic Noise, Industrial, Electro>
@@ -714,35 +743,6 @@ Death Loves Veronica - Chemical (2021) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:390ADB4389BBAB0C88A0F4A701D367ED0EB62E88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545596   (609511) от 22.04.2022
-
-Death Loves Veronica - Corruption for the Insidious (2022) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Gothic, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - In the Night Comes Evil (00:02:44)
-02 - When I Was Dead (00:04:34)
-03 - Whore (00:05:20)
-04 - Hate Me (00:04:35)(   Читать дальше...   )Жанр: Darkwave, Gothic, IndustrialПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA8D04D09BBB678277EEEA1AE9A3D6BC6360AF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

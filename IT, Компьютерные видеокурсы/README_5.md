@@ -1,3 +1,32 @@
+###  Публикация: 1438289   (1041008) от 08.01.2021
+
+The StationX Cyber Security School, Aleksa Tamburkovski | Complete Python 3 Ethical Hacking Course: Zero To Mastery (2020) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041008.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом полном курсе этического взлома Python 3 вы научитесь кодировать более 10 инструментов для тестирования на проникновение с нуля!
+Вы узнаете, как настроить виртуальную среду для этичного взлома
+Вы научитесь кодировать свои собственные инструменты тестирования на проникновение
+Вы изучите основы Kali Linux(   Читать дальше...   )Производство: The StationX Cyber Security SchoolЖанр: ПрограммированиеЯзык озвучки: АнглйискийПродолжительность: 07:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B9F0BB4E8436D60178ABDD6FC4CEBFC72DCC446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438485   (1041004) от 08.01.2021
 
 Udemy, Ardit Sulce | The Python Mega Course: Build 10 Real World Applications (2020) PCRec [En / En Sub]
@@ -682,35 +711,6 @@ Udemy, Jose Salvatierra | Web Developer Bootcamp with Flask and Python  (2021) P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC965D6D52C06367607240F9056D219355B13CB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440913   (1038137) от 19.01.2021
-
-Udemy, Anton Golosnichenko | Python для начинающих на практике - парсинг вакансий [2021] (2021) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038137.jpg" />
-</div>
-
-
-###  Подробнее
-
-После прохождения этого курса вы познакомитесь с основами Python и:
-Узнаете как можно парсить вакансии с сайтов по поиску работы (хедхантер и stackoverflow)
-Сделаете сервер на Flask. После парсинга вакансий, мы будем выводить их на веб-странице и позволим пользователям скачать их в CSV-файле
-Что мы изучим:(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 06:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D3438C5AFC8E61521F93078B2E46A63053A79F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

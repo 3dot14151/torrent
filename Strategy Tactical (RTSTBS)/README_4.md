@@ -1,3 +1,29 @@
+###  Публикация: 1507818   (798048) от 06.11.2021
+
+Void Eclipse (2021) [En] (1.00) License CODEX
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Void Eclipse - пошаговая тактическая ролевая стратегия, в которой тактика карточных сражений сочетается с 4Х стратегией, с увлекательным научно-фантастическим сюжетом. Играйте за Командора с неясными воспоминаниями, который в поисках своего истинного я. Исследуйте галактику, развивайте свой флот и сражайтесь с инопланетной угрозой. Будут ли Вас бояться, восхищаться (   Читать дальше...   )Тип издания: LicenseРазработчик: Tau Ceti StudiosЖанр: Strategy (Tactical, Turn-based, 4X), RPG, Sci-FiЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD817074F87604115CDB7A286D3BEBAB8E363658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200140   (796728) от 19.01.2018
 
 Nantucket (2018) [En] (1.0a) Repack Other s
@@ -641,32 +667,6 @@ Crookz - The Big Heist (2015) [Ru/En] (1.0.0.24360) Repack R.G. Catalyst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1F8556A420AE1A73BAB5564A34A2D8939310F57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278375   (771199) от 25.01.2019
-
-Battlefleet Gothic: Armada 2 (2019) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Battlefleet Gothic: Armada 2 — это новая стратегия в реальном времени, основанная на знаменитой настольной игре компании Games Workshop и повествующая о грандиозных космических битвах во вселенной Warhammer 40,000.Тип издания: LicenseРазработчик: Tindalos InteractiveЖанр: Strategy (RTS), Sci-FiЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D39226B32FC11AE1B31C762EF977289D650131AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1000881   (855412) от 27.03.2016
+
+Gershwin - I Got Rhythm, Concerto in F, Rhapsody 2, Preludes, Cuban Overture (Haas, De Waart, Inbal) (2006) [FLAC|Lossless|tracks] <Classical, Concerto>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 I Got Rhythm, variations for piano and orhestra
+Piano Concerto in F major
+02 (1) Allegro
+03 (2) Adagio(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:11:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BC7C8BE97AC7233DB27BE04A133D1BF642A468C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001132   (855410) от 27.03.2016
+
+Liszt Ferenc Chamber Orchestra - Vivaldi: Lute Concertos & Trios (1978) LP [FLAC|Lossless|tracks] <Classical, Baroque>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855410.jpg" />
+</div>
+
+
+###  Подробнее
+
+D-dur Concerto Lantra, Vonoszenekarra Es Csembalora. F. XII.No.15
+01. I. Allegro giusto   03:55
+02. II. Largo    05:02
+03. III. Allegro    02:17Жанр: Classical, BaroqueПродолжительность: 00:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A077B6E4E1C45B4B932E949DEAB3D907CC00E64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001066   (855344) от 27.03.2016
 
 Ludovico Einaudi - Taranta Project (2015) [FLAC|Lossless|tracks + .cue] <Modern Classical, Piano>
@@ -684,64 +742,6 @@ Wolfgang Amadeus Mozart:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:165CE16FFF09D8933B6E522B048DD0656B73E689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002204   (848681) от 31.03.2016
-
-Elina Garanca - Aria Cantilena (2007) [FLAC|Lossless|image + .cue] <Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chapi - Al pensar (Las hijas del Zebedeo)  4:56
-02.  Massenet - Werther ... Werther ...qui m'aurait dit (Werther)  7:15
-03.  Offenbach - C'est  l'amour, l'amour vainqueur! (Les Contes d'Hoffmann)  3:50
-04.  Rossini - Nacqui all'affanno (La Cenerentola)  7:35(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:745596E62A72E57EBF1E935D801C2CF55B9F314D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002208   (848680) от 31.03.2016
-
-Elina Garanca - Mozart - Opera & Concert Arias (2005) [FLAC|Lossless|image + .cue] <Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chi sa, chi sa, quai sia - KV 582  3:23
-02.  La Clemenza di Tito, KV 621: 1. Akt, Nr. 2 - Deh, se piacer mi vuoi  5:59
-03.  Basta, vincesti... Ah, non lasciarmi, no - KV 486a  6:30
-04.  La finta giardiniera, KV 196: 3. Akt - Va pure ad altri  3:37(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB65A6EAA79C2A4AF0A5CDF3B47F1F3CBB93ADE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

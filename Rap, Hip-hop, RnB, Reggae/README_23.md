@@ -1,3 +1,176 @@
+###  Публикация: 952813   (353175) от 02.11.2015
+
+Noize MC - #Мэйксамнойз (2015) Single [MP3|320 кб/с]<Rap, Rap-Rock, Alternative Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый в истории группы сингл!1. Мэйк Сам Нойз (Single Edit)
+2. Мэйк Сам Нойз (Acoustic Version)
+3. Мэйк Сам Нойз (Live In Minsk)
+4. Мэйк Сам Нойз (Instrumental)(   Читать дальше...   )Жанр: Rap, Rap-Rock, Alternative Hip-HopПродолжительность: 00:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3125FFF1A13AE709BDD4FA47364E89DC7CFA094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417933   (353117) от 22.10.2020
+
+25/17 - Байки из склепа. Часть 2 (2020) EP [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Осень (feat. Женя Ефимова)
+02. Снег
+03. Оборотень
+04. Берёза(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:17:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35904B238E4BB851D66490A604864DF4929CED48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256511   (351892) от 23.10.2018
+
+6ix9ine - Day69: Graduation Day (2018) Mixtape [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy (00:01:53)
+02. Gummo (00:02:38)
+03. Rondo (Feat. Tory Lanez & Young Thug) (00:02:18)
+04. Keke (00:02:32)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71F7449A3C54514C84B31F6A0796BCAC1756D99E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579086   (347815) от 23.11.2012
+
+Не Будите Спящих - Это Рэгги-Рэп4ик (ЕР) (2011) [MP3|320 кб/с]<Reggae, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Это Рэгги-Рэп4ик
+02. Все,что есть у меня
+03. Это жаркое летоЖанр: Reggae, RapПродолжительность: 00:11:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F0F9811CAE817BB8B9DFB0EB251E0E67412C23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 257215   (345669) от 12.11.2010
+
+Rihanna - Loud (2010) [FLAC|Lossless]<R&B>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_345669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S&M (4:04)
+02. What's My Name (Feat. Drake) (4:23)
+03. Cheers (Drink To That) (4:22)
+04. Fading (3:20)(   Читать дальше...   )Жанр: R&BПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257401   (345193) от 26.10.2018
+
+Нигатив (Триада) - Жамевю (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345193.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вниз
+2. На руках
+3. Лавина
+4. Не пройди(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C4190C2BF14B59E2028AC582D5E7A227BFE05A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418865   (344105) от 26.10.2020
 
 25/17 - Байки из склепа. Часть 1-2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
@@ -569,180 +742,6 @@ Noize MC - No Comments (2018) EP [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6E7C618FCE34165CD69E5E79139D5BCA040A16D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076880   (310936) от 26.11.2016
-
-Лигалайз - Живой (2016) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Живой (feat. Misha Nuteki)
-03. Карма
-04. Мелодия души (feat. Тина Кузнецова)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8602868A7710F5C6A33C0FEAA94B36F60F9C7B26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 265700   (310459) от 03.12.2010
-
-Rihanna - 7 Albums + 6 Singles (2005-2010) [FLAC|Lossless] <R'n'B>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рианна (англ. - Rihanna, урожденная Robyn Rihanna Fenty; род. 20 февр. 1988 г.) - барбадоcская певица, автор песен, фотомодель и модный дизайнер. Является вторым артистом и первой певицей с Барбадоса, получившей премию ГрэммиСписок альбомов:
-2005 - Music Of The Sun
-2006 - A Girl Like Me
-2007 - Good Girl Gone Bad(   Читать дальше...   )Жанр: R'n'BПродолжительность: 09:37:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 266786   (303767) от 06.12.2010
-
-Black Eyed Peas - The Beginning (2010) [FLAC|Lossless]<Hip-hop, Pop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Time (Dirty Bit)
-02. Light Up The Night
-03. Love You Long Time
-04. Xoxoxo(   Читать дальше...   )Жанр: Hip-hop, PopПродолжительность: 00:54:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078236   (302167) от 30.11.2016
-
-Рем Дигга - 42/37 (2016) [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Добро пожаловать в тёмные воды
-02. Простой
-03. Give it up feat. Onyx
-04. Шахта feat. Mania(   Читать дальше...   )Жанр: RapПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70DF6B525227888749A2F6F02EAB2CBE39724583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333738   (301355) от 26.10.2019
-
-ST - ПОЭТ ДУЭТ (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301355.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Каренина (feat. 25/17, Нигатив & Качмар)
-2. Счастье любит тишину (feat. Михаил Шуфутинский)
-3. Моя вина (feat. Artik & Asti)
-4. Восьмой ряд (feat. PIZZA & Ах Астахова)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:702BAD3761D1E8252B6977203DC00436466085D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184167   (301074) от 17.11.2017
-
-ATL - Дисторшн [EP] (2017) [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ангелы
-02. Не беда
-03. Сплин
-04. Хелта Скелта(   Читать дальше...   )Жанр: RapПродолжительность: 00:15:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C3896BA3A333B35F74234151E8E2C32225FD643
 ```
 
 https://mybot314.ru/tekegram_catalog/

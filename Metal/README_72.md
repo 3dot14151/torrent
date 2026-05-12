@@ -1,3 +1,32 @@
+###  Публикация: 1068020   (383368) от 31.10.2016
+
+Roads Of Glass - Deadking (2016) [MP3|320 Kbps] <Progressive Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DK01 01:07
+02. Versus 03:02
+03. Blur 03:59
+04. Silvertongue, Pt. 1 02:20(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E97C3A6F5A0B437FB28636604FBB8977510BC096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068027   (383367) от 31.10.2016
 
 Roads To Nowhere - Lifeless (2016) [MP3|320 Kbps] <Metalcore>
@@ -716,35 +745,6 @@ Rave The Reqviem - The Gospel Of Nil (2016) [MP3|320 Kbps] <Industrial Metal, Cy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5C10BDC9FDBBA75E994271098988295AF8A56EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068183   (382641) от 31.10.2016
-
-Ophidian Spell - Nux / Hêmera (2016) [MP3|320 Kbps] <Symphonic Death Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revenge 04:30
-02. Locked 04:53
-03. Close Distance 06:42
-04. Awakening Nightmare 04:40(   Читать дальше...   )Жанр: Symphonic Death Metal, Gothic MetalПродолжительность: 00:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB75120E7C4C41C67B23D7F8E823842A10EDB5CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

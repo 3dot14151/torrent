@@ -1,22 +1,22 @@
-###  Публикация: 1378877   (799908) от 23.05.2020
+###  Публикация: 1121046   (800514) от 02.04.2017
 
-ИП Пирогова (2020) WEB-DLRip [H.264] (сезон 3, серии 1-13 из 13)
+Лидия Чарская | Грозная дружина (2017) [MP3]
 
->>Отечественные сериалы
->>нет
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800514.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С тех пор, как Вера Пирогова подписала контракт с сетью ресторанов «Бальзак Гурмэ», прошло полгода. Ее кондитерская, наконец, стала приносить хороший доход, однако строгий контроль в лице владельца сети Дениса Алексеевича не дает Вере расслабиться ни на минуту. К тому же, помощников на кухне стало меньше: сестра Саша готовится стать мамой, частенько злоупотребляя (   Читать дальше...   )Производство: Россия / "Супер Продакшн"Жанр: комедия, драма, мелодрамаРежиссер: Антон Маслов, Акаки СахелашвилиАктеры: Елена Подкаминская, Данила Дунаев, Василина Юсковец, Александр Панкратов-Черный, Ксения Теплова, Александр Константинов, Елена Валюшкина, Галина Безрук, Алиса Феоктистова, Павел Грязнов и др.Продолжительность: ~00:25:00 серия
+Приключенческая повесть увлекательно рассказывает о смелом походе казаков в XVI веке для завоевания далекой, неведомой Сибири. Смелый атаман Ермак, затеявший неслыханное, грандиозное дело, и его грозная дружина — это истинные богатыри. Их поход — подвиг почти сказочный, в духе древних русских богатырей.Покорение Сибири горстью удальцов, воодушевленных идеей завоевать (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 11:47:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D91FFC95A513E6E15F5B881E6B7D4B16437E314
+magnet:?xt=urn:btih:EC21E95571FA722E7BA5DCEFE72843940513E0A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255748   (799907) от 23.05.2020
+###  Публикация: 1121472   (800513) от 02.04.2017
 
-Папаньки (2018-2020) WEBRip (сезон 1-2, серии 1-32 из 32)
+Где логика? (2017.04.02) SATRip (сезон 4, выпуск 7)
 
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
+>>Документалистика и Телепередачи
+>>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800513.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Четверо друзей живут в одном дворе столичной многоэтажки. Кроме чисто мужских интересов, их объединяет важная тема — воспитание детей... .Производство: Украина / ICTV, Дизель СтудіоЖанр: комедияРежиссер: Ирина Васильева, Александр КанановичАктеры: Егор Крутоголов, Евгений Гашенко, Евгений Сморигин, Андрей Фединчик, Лилия Ребрик, Демьян Шиян, Ольга Арутюнян, Вероника Лукьяненко, Ольга Лукьяненко, Надежда Кондратовская и др.Язык озвучки: русскийПродолжительность: ~00:45:00 серия
+Звездные семейные пары, партнеры по съемочной площадке, просто хорошие друзья и знакомые будут вместе пытаться выстраивать логические связи между самыми, казалось бы, нелогичными событиями, предметами или фактами. Почему мы оставляем официантам на чай, но не оставляем врачам на бинты? Для чего нам мизинцы на ногах? Зачем мыть машину в ноябре? Почему существует сухое (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:49:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:77094A9D7175D10D8ED4C3B7C187846A5AF577E6
+magnet:?xt=urn:btih:2655BBFD9D8224526763C804E0907A01EC68C833
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,27 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 494826   (799906) от 23.05.2020
+###  Публикация: 1121557   (800512) от 02.04.2017
 
-Мисс Конгениальность / Miss Congeniality (2000) BDRip [H.264/1080p] [PR]
+Раба греха / La schiava del peccato (1954) DVDRip [VO]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800512.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие фильма начинается в 1982 году в Нью-Джерси. Девочка-очкарик вступается за одноклассника и задает трёпку местному хулигану. Прошли годы. И девочка Грэйси стала агентом ФБР. Её направляют на конкурс красоты «Мисс Америка», где должен появиться серийный убийца по прозвищу «Гражданин».
-
-Грэйси срочно должна стать красавицей, чтобы изнутри, как участница конкурса (   Читать дальше...   )Производство: США / Castle Rock Entertainment, Fortis Films, NPV Entertainment, Village Roadshow PicturesЖанр: боевик, комедия, криминал, мелодрамаРежиссер: Дональд ПитриАктеры: Сандра Буллок, Майкл Кейн, Бенджамин Брэтт, Кэндис Берген, Уильям Шетнер, Эрни Хадсон, Джон ДиРеста, Хезер Бёрнс, Мелисса Де Суза, Стив МонроПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 01:50:14
+Фильм поставлен по рассказу Оресте Бьянколи.Мара Гуалтьери, девушка легкого поведения, во время железнодорожной аварии спасает маленькую польскую девочку, родители которой погибли. Девочка напомнила Маре её умершую дочь. Мара хочет удочерить девочку, но она не может этого сделать, пока не устроится на работу. С трудом она находит работу на заводе. Случайно Мара встречает (   Читать дальше...   )Производство: Италия, DocumentoЖанр: ДрамаРежиссер: Раффаэлло МатараццоАктеры: Сильвана Пампанини, Марчелло Мастроянни, Камилло Пилотто, Франко Фабрици, Пауль Мюллер, Ирен Дженна, Лилиана Джераче, Олинто Кристина, Дина Пербеллини, Лаура ГорПеревод: Одноголосый закадровый (Виктор Рутилов)Субтитры: РусскиеПродолжительность: 01:38:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F89D238139B2BBFB25493F4A9E8EB514D373CC27
+magnet:?xt=urn:btih:EEB9E7430BE25372BC9330B84AE4A7709158DBED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -78,28 +76,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273567   (799905) от 02.01.2019
+###  Публикация: 1121439   (800511) от 02.04.2017
 
-Killers - Danger de vie (1986) Reissued, 1997 [APE|Lossless|image + .cue] <Heavy Metal>
+Лайза Джуэлл | Винс и Джой (2016) [FB2]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Художественная литература
+>>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800511.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Heavy Metal Kids 05:50
-02. L'assassin 06:00
-03. Bouffon 04:45
-04. Parabellum 04:17(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:00
+Помните ли вы свою первую любовь?
+А первую близость?
+Задавались ли когда-нибудь вопросом, как сложилась судьба у человека, который оставил столь глубокий след у вас в душе?
+Впервые Винс и Джой встретились еще подростками. Они провели вместе совсем немного времени – тайком, сбежав от родителей. Все оборвалось после одной чудесной и в то же время очень грустной ночи. (   Читать дальше...   )Жанр: Современные любовные романыФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:757B0B0CFB7399BA4C6DA55EEE32CFB95EF9E3EF
+magnet:?xt=urn:btih:B10F2BC6F3082461E065C6516B0F595ADBA9BA2E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -107,28 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273560   (799904) от 02.01.2019
+###  Публикация: 1120566   (800510) от 02.04.2017
 
-Herman Chittison - 1944 - 1945 (1998) Classics [FLAC|Lossless|tracks + .cue] <Stride, Swing, Piano Jazz>
+Новые сферические колеса компании Goodyear обретают искусственный интеллект
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Поговорим
+>>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_800510.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. How High The Moon [1:56]
-02. The Song Is Ended [3:19]
-03. Just One Of Those Things [2:21]
-04. Schubert's Serenade [2:05](   Читать дальше...   )Жанр: Stride, Swing, Piano JazzПродолжительность: 01:08:41
+На Женевском автосалоне (Geneva Motor Show) в прошлом году известная компания Goodyear представила всеобщему вниманию концепт сферической покрышки Eagle 360, которая предназначена для использования в автомобилях будущего с магнитной подвеской. Использование таких колес и подвески позволит автомобилю творить чудеса на дороге, двигаться в любом направлении, боком и (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82DA57329FC66C8F3356816D4448D6624F666532
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -136,28 +131,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273574   (799903) от 02.01.2019
+###  Публикация: 1121382   (800509) от 02.04.2017
 
-Wreck-Defy - Fragments of Anger (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
+VA - Schneeweiss VII (Presented By Oliver Koletzki) - 2017 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800509.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Industrial Lies 05:33
-02. Justify the Unjust 05:10
-03. Sentenced 06:48
-04. The Eternal Lie 04:14(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:10
+01. Aparde - Elias
+02. Marc Holstege - Sonorous
+03. Joachim Pastor - Millenium
+04. Reinier Zonneveld - Abstinence (Oliver Koletzki remix)(   Читать дальше...   )Жанр: Tech House, TechnoПродолжительность: 03:12:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76A80933DB47AB616DFD51B4AE8B966218BD466D
+magnet:?xt=urn:btih:9D2585241383F17BB56553D6810F7FAFDBA72A1B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -165,28 +160,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273570   (799902) от 02.01.2019
+###  Публикация: 1121633   (800508) от 02.04.2017
 
-Testor - Animal Killstinct (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
+Где логика? (2017.04.02) WEB-DL [H.264/720p-LQ]  (сезон 4, выпуск 7)
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Документалистика и Телепередачи
+>>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800508.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro 01:39
-02. Heroes to the Gallows 05:57
-03. Animal Killstinct 05:16
-04. Rise of the Cobra 04:42(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:45
+Звездные семейные пары, партнеры по съемочной площадке, просто хорошие друзья и знакомые будут вместе пытаться выстраивать логические связи между самыми, казалось бы, нелогичными событиями, предметами или фактами. Почему мы оставляем официантам на чай, но не оставляем врачам на бинты? Для чего нам мизинцы на ногах? Зачем мыть машину в ноябре? Почему существует сухое (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:49:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1138B45800A1D9E0834AEC9C5904A286E9ACCB37
+magnet:?xt=urn:btih:358D9B75D4D2EDAEE55FC5F0BC522C9187ED69E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -194,28 +186,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273562   (799901) от 02.01.2019
+###  Публикация: 1121295   (800507) от 02.04.2017
 
-Elessar - Dark Desires (2013) [FLAC|Lossless|image + .cue] <Symphonic Metal>
+Yuyushiki: Komarasetari, Komarasaretari / Формула жизни OVA [2017, OVA] BDRip 1080p raw
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Аниме с субтитрами
+>>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800507.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ice Queen
-02. A Kiss And A Rose
-03. Fate's Introduction
-04. The Lonely Warrior's Fate(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:57:28
+Три неразлучных подружки поступили в старшую школу и приготовились встречать весну юности. Гиперактивная Юдзуко просто не может жить спокойно, загадочная Юкари всегда готова ее поддержать, и только чуть более старшая (и симпатичная) Юй вносит в компанию хоть какой-то здравый смысл. Конечно, школа не детсад, для самовыражения нужна надежная база – а вот и она! Веселая (   Читать дальше...   )Производство: Kinema CitrusЖанр: комедия, повседневностьРежиссер: None foundПеревод: Rinon NinqueonЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 30 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85733DD73EE73C10EB8FEF6C8B78AAA62281A8AC
+magnet:?xt=urn:btih:F2CE64476A27A757E9EB5306046D6F382AF5AC4A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -223,28 +212,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273566   (799900) от 02.01.2019
+###  Публикация: 1121596   (800506) от 02.04.2017
 
-Imagika - And So It Burns (2001) [APE|Lossless|image + .cue] <Power Metal, Thrash Metal>
+Mars Lasar - Utopia (2017) [MP3|320 Kbps] <New Age, Ambient, Chillout>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Other Styles
+>>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800506.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro
-02. Chaos to Murder
-03. Fallen One
-04. My Dominion(   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 00:54:17
+01. Beyond Utopia
+02. As It Should Be
+03. Cosmopolitan Skies
+04. Magnetism(   Читать дальше...   )Жанр: New Age, Ambient, ChilloutПродолжительность: 00:48:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B7C63A09ECA2D3DB1D1BE682A0E4CCACF4ED1B8
+magnet:?xt=urn:btih:F3E9901E9BA12A02E943C462313974BEF4EF18F7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -252,28 +241,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273568   (799899) от 02.01.2019
+###  Публикация: 1120778   (800505) от 02.04.2017
 
-Meliah Rage - Warrior (2014) [FLAC|Lossless|image + .cue] <Power Metal, Thrash Metal>
+Медаль за победу / Medal of Victory (2016) WEB-DLRip
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800505.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Warrior
-02. I Am the Pain
-03. Stranger to Your Sympathy
-04. When We Wake(   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 00:42:00
+После случайной отправки ядерных боеголовок в Малави, солдаты Флойд и Стью уходят в самоволку. В родном городе Флойда по ошибке считают героем войны, награжденным медалью за победу, и привлекают к предвыборной гонке на пост мэра города. Комично-абсурдная ситуация вынуждает Флойда принять решение – снова сбежать или посмотреть в лицо своему прошлому и остаться домаПроизводство: США, Colony, The, Warehouse District ProductionsЖанр: Боевик, Комедия, ПриключенияРежиссер: Джошуа МуазАктеры: Ричард Рили, Клифф Чемберлен, Анна Мартемуччи, Гэри Хьюстон, Джек О’Коннелл, Одри Френсис, Хоуи Джонсон, Рич Коменич, Фрэнк Симс, Уилл БломкерПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:32:54Реклама: Присутствуют аудио и видео вставки рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:26798301527D17C423D2FC8E55DFEFA6894D923C
+magnet:?xt=urn:btih:833B497C358DC3C82BC2E55F23DDD1FB2B606818
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -281,28 +267,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273572   (799898) от 02.01.2019
+###  Публикация: 1121319   (800504) от 02.04.2017
 
-Voivod - The Nuclear Blast Recordings (2018) 2CD [FLAC|Lossless|image + .cue] <Thrash Metal>
+Сергей Алексеев | Последний штурм (1981) [PDF]
 
->>Архив торрентов
->>Архив Музыки
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800504.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 God Phones
-02 From The Cave
-03 Earthache
-04 Global Warning(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:58:11
+Детская книга рассказывает о последних днях Великой Отечественной войны, о штурме Берлина.
+Шёл последний год Великой Отечественной войны. Советская армия наступала. Немало славных побед одержали советские войска над фашистами. Но для полной победы надо было взять столицу фашистского государства город Берлин и окончательно сокрушить злого врага.
+Для детей младшего (   Читать дальше...   )Жанр: Детская прозаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F400DE625B2CE3B6E3B21961C3AE118EF44E5B9
+magnet:?xt=urn:btih:F596759EE95C23070F4A58DCF524E9DE4B71E780
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -310,28 +295,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273561   (799897) от 02.01.2019
+###  Публикация: 1120726   (800503) от 02.04.2017
 
-Circles - The Last One (2018) [FLAC|Lossless|image + .cue] <Progressive Metal>
+Раймонд Паулс - Музыка из кинофильма 'Двойной капкан' (1986) [MP3|320 Kbps] <Pop, Instrumental>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Other Styles
+>>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800503.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Winter (4:12)
-02. Breaker (3:50)
-03. The Messenger (3:28)
-04. Arrival (5:57)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:45:25
+01. Мотто
+02. Танец в баре
+03. Танец с накидкой
+04. Вдвоём(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:33:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CF0F3B8BD7A7246CF3B427F63E8E4F9EEBD4CD8
+magnet:?xt=urn:btih:CDFBE0B6BC1923465DC191C5557EA5C02073315B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -339,28 +324,167 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273542   (799896) от 02.01.2019
+###  Публикация: 1121290   (800502) от 02.04.2017
 
-VA - Selection 2018 (2018) [MP3|320 Kbps] <Progressive, Psychedelic, Trance>
+VA - Весенняя 100-ка популярных треков выпуск № 2 (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800502.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jean Brown - Увидимся В Раю 3:33
+002. Fakil - Мне Нужно 3:27
+003. Черешня - Мятный Чай 3:27
+004. Руслан Квак - Дерзкие Танцы 3:28(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE64C18053167B556A5BD924E8CADC0993BAE61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121613   (800501) от 02.04.2017
+
+Журнал | Вкусно и просто. Лучшие рецепты [Украина]. Спецвыпуск №2. Щедрая Пасха (2017) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие рецепты к вашему столу! Сборник разнообразных рецептов мясных и рыбных горячих блюд, оригинальных закусок и салатов, вкуснейшей пасхальной выпечки, легких десертов и напитков для гостеприимных хозяек.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6135E23892C9216758D11502375F42BD5EBFA9C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121285   (800500) от 02.04.2017
+
+Benjamin Wallfisch - A Cure for Wellness / Лекарство от здоровья (Original Soundtrack Album) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hannah and Volmer (04:35)
+02. Nobody Ever Leaves (01:49)
+03. Bicycle (02:00)
+04. The Rite (03:42)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DC7E4F69ED6865D7F0805897EBD5B8570FF8635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121123   (800499) от 02.04.2017
+
+А. М. Божко и др. (сост.) | Сборник произведений В. И. Ленина [6-е изд.] (1985) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник произведений В. И. Ленина предназначен для учащихся средних школ, средних профессионально-технических училищ и средних специальных учебных заведений. Он составлен в соответствии с учебными программами этих заведений. В него включены статьи, речи, письма, извлечения из статей, брошюр, книг, выступлений. Сборник снабжен примечаниями и именным указателем.Жанр: История, политология, экономика, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75D92E7237D6AF28A771D7C5798537FA1B8EA60A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121071   (800498) от 02.04.2017
+
+Nick Cave & Warren Ellis - Hell or High Water / Любой ценой (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800498.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nick Cave & Warren Ellis - Comancheria (02:05)
+02. Townes Van Zandt - Dollar Bill Blues (03:01)
+03. Nick Cave & Warren Ellis - Mama's Room (02:49)
+04. Ray Wylie Hubbard - Dust of the Chase (05:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:329E673917768170466EA41A9242B4FB551A3EF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121479   (800497) от 02.04.2017
+
+VA - Future Trance - Best Of 20 Years (2017) [MP3|320 Kbps] <Future House, Techno, Trance, Hands Up, Dance, Club>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800497.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ace Ventura - Maximum Overdrive (Lyktum Remix)
-02. Aioaska & Gipsy Soul - Natural Response (Original Mix)
-03. Altered State - Rubix (Original Mix)
-04. Audiofire (UK) - A Billion Neurons (Original Mix)(   Читать дальше...   )Жанр: Progressive, Psychedelic, TranceПродолжительность: 04:38:33
+01.  Scooter - Posse (I Need You On The Floor)  3:52
+02.  Jan Wayne meets Lena - Total Eclipse Of The Heart  3:30
+03.  Sylver - Forever In Love  2:44
+04.  Darude - Sandstorm  3:46(   Читать дальше...   )Жанр: Future House, Techno, Trance, Hands Up, Dance, ClubПродолжительность: 05:14:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8506C183A3929925CF9D99FF15892030595B9135
+magnet:?xt=urn:btih:A12C68567485A6A15D78F59DD86C4AE28F7D9502
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -368,86 +492,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273557   (799895) от 02.01.2019
+###  Публикация: 1121166   (800496) от 02.04.2017
 
-VA - Thinking of You: Soul Love Grooves (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, R&B>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sister Sledge - Thinking of You
-02. Womack & Womack - Baby I'm Scared of You
-03. George Benson - Love X Love
-04. Chaka Khan - We Got the Love (Lew Hahn Remix)(   Читать дальше...   )Жанр: Jazz, Soul, R&BПродолжительность: 02:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23941E04093302F45C4BCC76EAF08A0F8CBF6541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273644   (799894) от 02.01.2019
-
-VA - Suanda Music Year Mix 2018 (Mixed by Roman Messer) (2018) [MP3|320 Kbps] <Trance, Progressive Trance, Dance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mivase - Hypnotised (Extended Mix)
-02. Michael Milov - True Or False (Extended Mix)
-03. Tiff Lacey & Ruslan Radriges feat. Neurofunq - Wonderfull (Extended Mix)
-04. Vadim Spark - UFA (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive Trance, DanceПродолжительность: 05:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCCE79ED7CF2A8DE78F6CEE29E088DC7A72DB4B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273624   (799893) от 02.01.2019
-
-Phenomena - Innervision (1993) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+Ten Fe - Hit the Light (2017) [APE|Lossless|tracks + .cue] <Indie, Electronic>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800496.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rock House (4:19)
-02. Banzi (4:39)
-03. What About Love (5:05)
-04. Into The Fire (4:26)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:44:24
+01 - Overflow
+02 - Turn
+03 - Elodie
+04 - Twist Your Arm(   Читать дальше...   )Жанр: Indie, ElectronicПродолжительность: 00:52:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DAB8704031CCBFF95800B612DFA8AED8007E0E9B
+magnet:?xt=urn:btih:0AECBD28BFE5646BAB2E396FB4A80E0BD0305FA4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -455,83 +521,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273543   (799892) от 02.01.2019
+###  Публикация: 1121248   (800495) от 02.04.2017
 
-П. Гроза | Я видел своими глазами страну мира (1958) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799892.jpg" />
-</div>
-
-
-###  Подробнее
-
-От автора:
-
-Не раз был я гостем советского народа, официальным и неофициальным. Немало поездил по этой огромной стране, видел людей, видел их дела, которые в своей совокупности представляют не только небывалый в истории человечества опыт, но и колоссальный исторический сдвиг. Все это очень поучительно.
-(   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:236D4396A41653A06589188E1769A462F7B6BC5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273390   (799891) от 02.01.2019
-
-Marie Wulfing - Get Out Of The Boat (1990) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop, White Gospel>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side One:
-01. Cast All Your Cares On Him
-02. God Loves Me, I Don't Need More!
-03. The Storm Clouds Rumble / He Has The Victory!(   Читать дальше...   )Жанр: Pop, White GospelПродолжительность: 00:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CBCF76AFBA1CF33BC4DFA438A69B03F457F4233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506550   (799890) от 31.10.2021
-
-AOMEI Backupper Pro 6.7.0 [Multi/Ru] (акция Comss)
+AIMP 4.13 Build 1890 Final + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800495.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AOMEI Backupper Pro (Professional) – комплексная, простая и эффективная программа для резервного копирования компьютеров с ОС Windows и ноутбуков. Вы можете легко выбрать, что именно копировать, как копировать, и куда копировать. Это позволит вам защитить данные и вашу систему, и восстановить её в случае поломки.Язык интерфейса: Русский, Английский и другие
+AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B33008AC4CAC30BDA04E67870F71DA9FD9E9A784
+magnet:?xt=urn:btih:18489A09DB891A8D65AB535074E9E0AC4F797EDF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -539,25 +547,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506611   (799889) от 31.10.2021
+###  Публикация: 1121073   (800494) от 02.04.2017
 
-Агнец / Lamb (2021) WEB-DLRip [DVO]
+David Arnold and Michael Price - Sherlock / Шерлок (Collection Original Television Soundtrack) (2012-2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Was Different (03:49)
+02. Doing a Good Thing (02:17)
+03. 3 Suspects (02:11)
+04. Pick Up (05:15)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 05:02:41 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EEFD027677F901F12DB02BDEA332E5B8D19E4B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120676   (800493) от 02.04.2017
+
+Анаконда 2: Охота за проклятой орхидеей / Anacondas: The Hunt for the Blood Orchid (2004) HDTV [H.264/1080i-LQ]
 
 >>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800493.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бездетная пара фермеров проживает в туманной исландской глуши. Однажды одна из их овец приносить загадочное существо, которое супруги забирают в дом и решает растить как собственного ребёнка.Производство: Исландия, Швеция, Польша / Black Spark Film & TV, Chimney Poland, Chimney SwedenЖанр: драма, фэнтези, ужасыРежиссер: Вальдимар ЙоханнссонАктеры: Нуми Рапас, Хильмир Снайр Гвюднасон, Бьёдн Хлинур Харальдссон, Ингвар Эггерт Сигюрдссон, Эстер БибиПеревод: Профессиональный двуголосый (ViruseProject)Язык озвучки: Русский, исландскийСубтитры: Русские, английские, испанские (отдельно)Продолжительность: 01:46:27
+Научная экспедиция, спонсируемая фармацевтической компанией, отправляется на остров Борнео на поиски загадочной Черной Орхидеи. По преданиям, этот цветок обладает невероятными качествами: он продлевает жизнь и возвращает молодость. Слухи оказываются правдой: цветок существует, придает силы и продлевает жизнь обитателям джунглей… в том числе и анакондам. Эти исчадия (   Читать дальше...   )Производство: США / Screen Gems, Middle Fork ProductionsЖанр: Ужасы, Боевик, Триллер, ПриключенияРежиссер: Дуайт Х. ЛиттлАктеры: Джонни Месснер, КаДи Стрикленд, Мэттью Мэрсден, Николас Гонзалез, Юджин Бирд, Карл Йун, Салли Ричардсон, Моррис Честнат, Энди Андерсон, Николас ХоупПеревод: Дублированный, профессиональный (многоголосый, закадровый), профессиональный (двухголосый, закадровый),авторский (одноголосый, закадровый)Субтитры: Русские softsub (SRT)Продолжительность: 01:32:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C25C02C011DB20AF9B08C6651F6C9CB4CEA8F1B2
+magnet:?xt=urn:btih:F5C4331DA185D56E016D9E35FF71A2A1F3A0709E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -565,25 +602,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506484   (799888) от 31.10.2021
+###  Публикация: 1121342   (800492) от 02.04.2017
 
-Сборник - 2022 Wall Calendar A4 Printable Vector Templates [EPS, SVG, PDF, JPG, PNG]
+Холостяк (2017.04.01) WEB-DL [H.264/720p-LQ] (сезон 5, выпуск 4)
 
->>Материалы для мультимедиа и дизайна
->>Сборники
+>>Документалистика и Телепередачи
+>>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800492.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шаблон на календарь 2022 года.Формат: EPS, SVG, PDF, JPG, PNG
+11 МАРТА В 21:30 НА ТНТ НАЧНЕТСЯ НОВЫЙ СЕЗОН ШОУ «ХОЛОСТЯК»
+Грядет новый сезон самого романтичного шоу на ТНТ. Продюсеры невероятно долго и тщательно подбирали главного героя — они хотели пригласить достойного мужчину, сильную личность, человека с огоньком в глазах. И такой мужчина нашелся. Вот только не с огоньком в глазах, а с ревущим пламенем в сердце!
+С главным (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:11:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBA6A5A1D95ADEAD40F34AB5CBA99BE832A239FD
+magnet:?xt=urn:btih:6E47F01278E4385ECF4CB4A7A0B898B5223F0BBE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -591,25 +630,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506526   (799887) от 31.10.2021
+###  Публикация: 1121430   (800491) от 02.04.2017
 
-Halloween Chronicles 4: Behind the Door / Хроники Хэллоуина 4: По ту сторону двери (2021) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+Орел и решка. Рай и ад (2017.04.02) WEB-DL [H.264/1080p-LQ] (сезон 13: Адский Сан-Педро-Сула)
 
->>Win Игры
->>Adventure/Quest (Casual)
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800491.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вы с друзьями решили провести ночь на Хэллоуин за жутковатой настольной игрой. Конечно, о ней ходило много страшных историй, но вы и подумать не могли, что после первого хода откуда ни возьмись появится дух Крибен и утащит вас мир кошмаров. Бросайте кубик и отправляйтесь в мистический мир настольной игры, где не действуют законы реальности и обитают ужасные монстры. (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+После нелегкого испытания под названием «Кругосветка» ведущие Регина Тодоренко и Леся Никитюк снова вместе отправляются в путешествие. В 13-м сезоне проекта они посетят самые райские и самые адские уголки нашей планеты. Их ждут волшебные тропические курорты и самые опасные места на Земле.
+В первом выпуске шоу Орел и решка. Рай и ад Леся и Регина будут искать рай (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:53:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF178473738EB6F6295D6EE03D7B6B0436D73E6B
+magnet:?xt=urn:btih:8283C2B5B98199AC72FBD92C20C90FA0735451B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -617,25 +657,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506477   (799886) от 31.10.2021
+###  Публикация: 1121567   (800490) от 02.04.2017
 
-Проекты - VideoHive - Paper Christmas Slideshow Pan - 3426857 [AEP]
+Брачные шутки / Brachni shegi (1989) TVRip
 
->>Проекты
->>Праздничные (проекты)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800490.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Размещайте фотографии или видео, добавляйте свой текст, и получайте праздничное слайд-шоу из бумаги.Формат: AEP
+Сборник из шести "черных" комедийных новелл с эротическим уклоном о перипетиях семейной жизни. Связывает все истории передача профессора Стефанова, который пытается научить телезрителей, как нужно жить в браке. С экрана он вещает правильные слова о семейных ценностях, о необходимости понимать друг друга, но сам он в действительности давно бросил жену и (   Читать дальше...   )Производство: Болгария, Киностудия БОЯНАЖанр: КомедияРежиссер: Дочо Боджаков, Ивайло Джамбазов, Иван Андонов, Георгий Стоянов, Иванка ГрыбчеваАктеры: Георги Калоянчев, Георги Maмалев, Пенка Цицелкова, Ева-Мария Радичкова, Катерина Евро, Добринка Станкова, Павел Попандов, Петар Петров, Эльжана Попова, Николай ЦанковПеревод: Дублированный (киностудиия "Союзмультфильм")Субтитры: отсутствуютПродолжительность: 01:17:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C9434A17A6B03CEA584F6B6B4C198865E5B61E1
+magnet:?xt=urn:btih:0DDFFFD1265594516912D9C92BC135F4D0D4CA20
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -643,80 +683,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506508   (799885) от 31.10.2021
+###  Публикация: 1120968   (800489) от 02.04.2017
 
-Терри Пратчетт | Плоский мир. Городская Стража (Книга 3). На глиняных ногах (2021) [MP3, Александр Клюквин]
+Палач / The Executioner (1970) DVDRip [H.264]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800489.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Над Анк-Морпорком стелется густой осенний туман и под его покровом в городе происходит серия жестоких и бессмысленных убийств. Жертвами неизвестного преступника становятся безобидные старики, которые вели тихую и уединенную жизнь. Расследованием занимается сам начальник городской стражи – Моркоу. Следы приводят его к големам, безвольным созданиям из глины, которые (   Читать дальше...   )Жанр: ФэнтезиПеревод: Татьяна БоровиковаПродолжительность: 11:11:31
+Джон Шей, агент британской секретной службы, убеждён, что в их системе работает двойной агент. Более того, он убеждён, что это — его прежний коллега Адам Бут. Вопреки воле начальства, он отправляется на поиски улик способных доказать вину Бута.Производство: Великобритания / Ameran Films Ltd.Жанр: Триллер, ДрамаРежиссер: Сэм УонамейкерАктеры: Джордж Пеппард, Джоан Коллинз, Джуди Гисон, Оскар Хомолка, Чарльз Грей, Найджел Патрик, Кит Митчел, Джордж Бейкер, Александр Скурби, Питер БуллПеревод: Многоголосый закадровый, одноголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:50:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD78B3BA526CCFA1653DE58E92C425D0A9811E02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506493   (799884) от 31.10.2021
-
-Хоккей. НХЛ 2021-2022. Нью-Джерси Девилз - Питтсбург Пингвинз (30.10.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799884.jpg" />
-</div>
-
-
-###  Подробнее
-
-31 октября 2021, воскресенье. 02:00 МСК
-Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 17 452 зрителя (93% при вместимости 18 673)
-Главный судья: Кори Сиврет (Милгров, Канада); Главный судья: Брэд Майер (Дэйтон, США)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A61DC6CCDC2932336A84703D4B6DC187E472C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503633   (799882) от 31.10.2021
-
-Зал ожидания / The Waiting Room (1996) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый фильм трилогии Йоса Стеллинга о ситуациях с мужчиной в плаще.
-Большой вокзал, типичный для любого большого города. Пассажиры, ожидающие свой поезд, коротают время. Кто-то с любопытством наблюдает за другими, кто-то настолько погружен в свои проблемы, что ничего не замечает вокруг. Самоуверенный герой фильма, занят тем, что раздевает взглядом некоторых присутствующих (   Читать дальше...   )Производство: Германия / Regina Ziegler Filmproduktion, Westdeutscher Rundfunk (WDR)Жанр: Короткометражка, мелодрамаРежиссер: Йос СтеллингАктеры: Бьянка Кедам, Жен Бервот, Анне МалхербПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: отсутствуютПродолжительность: 00:24:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC81D742C11E71A7A629B1362933AB7FF0CE7498
+magnet:?xt=urn:btih:923B7427DC5F6568FE3EE9D84BFA6D038A8AAE97
 ```
 
 https://mybot314.ru/tekegram_catalog/

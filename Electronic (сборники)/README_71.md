@@ -1,3 +1,32 @@
+###  Публикация: 1018825   (754012) от 21.05.2016
+
+VA - Extra Trance: Bonus [06] (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aero 21 - Mallorca (Original Mix) (07:37)
+02. Rodg feat. Patrick Baker - Fire (Extended Mix) (05:53)
+03. Jeremy Rowlett - Communicate (Original Mix) (07:22)
+04. Kaimo K & Neev Kennedy - Afraid (Original Mix) (07:05)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F433BBF93111E4D215E9F97840D807328699BD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018600   (754007) от 21.05.2016
 
 VA - Dance Size Forever Moonlight (2016) [MP3|320 кб/с] <House, Club, Dance>
@@ -717,35 +746,6 @@ VA - Trance Massive 100 Tracks May (2016) [MP3|320 кб/с] <Trance, Uplifting T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDA989E749937C437240778FC78F43526BB17393
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019588   (750183) от 23.05.2016
-
-Альберт Артемьев - Вне границ (2016) [MP3|320 кб/с] <New Age>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750183.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вне границ
-2. Неземной голос
-3. В океане звёзд
-4. Осколки льда(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B97EE91B0ECF9FE818F3ADCF248FA87923EC7202
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1869528   (1068418) от 06.05.2026
+
+Dasu - LMAO (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. News
+02. Antidisestablishmentarianism
+03. 5 O
+04. Gaya Gaya, Puto Maya(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:678A5F0E5D4BAF17CBF841F185D4D1F13F8F79CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867473   (1067060) от 27.04.2026
 
 VA - Audio Testing Guide Test Machine No. 1 (2008) K2HD mastering [WAV|Lossless|tracks] <Classic, Folk, Pop>
@@ -718,35 +747,6 @@ Masayoshi Takanaka - The Rainbow Goblins (1981) 2013, Universal [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CF70A6911249D874FCA8DA52F9A936DADA0C15C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179941   (344235) от 02.11.2017
-
-Masayoshi Takanaka - Saudade (1982) 1995, Kitty Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Fair Wind [04:33]
-02. Saudade [03:43]
-03. Eona [05:38]
-04. Breakin' Loose [04:51](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E895CA5B098FC18AFFBADA837AF8F8D1F76D7AF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,87 @@
+###  Публикация: 984741   (936364) от 10.02.2016
+
+VA - Сборник видеоклипов 80х - 90х: Бабка Жжёт! (1981-1999) VHSRip
+
+>>След.
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все клипы одного разрешения, битрейта и частоты кадров001. 2 Brothers on the 4th Floor - Come Take My Hand (4:22)
+002. Backstreet boys - Show me the meaning of Beng lonely (4:18)
+003. Bon Jovi - You Give Love a Bad Name (3:42)
+004. Culture Beat - Crying In The Rain (4:04)(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 33:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C502D0842D888A92BEBFCF7796E3A0FC56D459E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 753282   (936157) от 05.02.2014
+
+Сборник клипов - VA - Various Music part. 50 (2014) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936157.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A M - Million ft. MFS 1080p (3:37)
+2. Armin van Buuren - Save My Night 1080p (3:17)
+3. Arty - Flashback 1080p (3:49)
+4. Bad Boys Blue - Come Back And Stay 2013 720p (4:18)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~05:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:275221E0C5039D89D175A42B1A3BD48B512637AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628623   (935316) от 11.03.2013
+
+Danielle - Pat It Up (2013) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ReggaeПродолжительность: 00:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35A9094AC13BF9A5BDF5232E3BBC2972AE93E09C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986418   (930596) от 14.02.2016
 
 Гимн НОВОРОССИИ. el pueblo unido jamás será vencido (2016) WEB-DLRip [720p-LQ]
@@ -621,87 +705,6 @@ Sabaton - 54 Music Videos (2006-2020) WEB-DL [h.264/V9/360p/480p/720p/1080p/2160
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07B6B03339EB3BC4DE0B076C4BD87863144D79E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367424   (915092) от 16.03.2020
-
-Сборник клипов 01 (03.2020) WEB-DLRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник зарубежных и отечественных видеоклипов за март 202001_C-BooL - Higher
-02_W&W x Lucas & Steve - Do It For You
-03_ШЕFF feat. Indigo - Я рисую!
-04_Shlakoblochina feat. Fearmuch - Новая сила киски(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 3:07:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBAC1B2D1828F68EC7A1842127415B98EEF90744
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 634136   (912961) от 24.03.2013
-
-Vanessa Hudgens vs. YLA - SSSex (2013) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: HouseПродолжительность: 00:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2A9BC5481573712DDE0DFD31670048A65D0E18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 634324   (912944) от 24.03.2013
-
-Katalina Rusu - My Name Is Love (2013) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D762673395D3CD0F98AD67CC87D842B9977C8F3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

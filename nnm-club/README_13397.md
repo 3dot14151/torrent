@@ -1,22 +1,23 @@
-###  Публикация: 536850   (512540) от 20.08.2012
+###  Публикация: 1315354   (513970) от 19.07.2019
 
-Nature Wallpapers (20.08.12) [Wallpapers]
+Николай Семёнович Лесков | Повесть о богоугодном дровоколе (2013) [PDF, DJVU]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513970.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Герои рассказов Н.С. Лескова, вошедших в эту книгу — люди простые и безыскусные, стяжавшие великое смирение. А эта добродетель украшает всех праведников, которых любит Господь (см. Пс. 145, 8), хотя часто они могут казаться окружающим безумцами.
+Для среднего и старшего школьного возраста.Жанр: Религиозное духовно-просветительское издание для детейФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:795B8E8195707181025F90547DA580BE9F1297D9
+magnet:?xt=urn:btih:4995E0679BB84961C59B683B29BD8B5CE1BC18BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +25,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 536813   (512539) от 20.08.2012
+###  Публикация: 1315310   (513969) от 19.07.2019
 
-Cityscapes Wallpapers (19.08.12) [Wallpapers]
+Мария Годунова | Фиолетовый змей (1975) [PDF]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_513969.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+О людях Афганистана, об обычаях страны.
+Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA1B395D74C37A8D1397997C7B133ED325EDC414
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +52,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 536851   (512535) от 20.08.2012
+###  Публикация: 1315302   (513968) от 19.07.2019
 
-Landscapes HD Wallpapers (20.08.12) [Wallpapers]
+VA - EDM Deejay Compilation (Summer Edition) (2019) [MP3|320 Kbps] <Progressive House, Dance, Big Room, Future House>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_513968.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Turbotronic – Automatic (4:00)
+02. FLGTT – Smalltown Boy 2K19Жанр: Progressive House, Dance, Big Room, Future HouseПродолжительность: 02:01:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B64322B21B3989E8593414E2EF1927BE362F421B
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,204 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 536840   (512534) от 20.08.2012
+###  Публикация: 1315339   (513967) от 19.07.2019
 
-Phish - Lawn Boy (1990) [MP3|320 кб/с]<Progressive rock, Jazz-Rock, Fusion, Avantgarde>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Squirming Coil (6:05)
-02. Reba (12:27)
-03. My Sweet One (2:08)
-04. Split Open and Melt (4:43)
-05. The Oh Kee Pa Ceremony (1:41)
-06. Bathtub Gin (4:29)
-07. Run Like an Antelope (9:52)
-08. Lawn Boy (2:32)
-09. Bouncing Around the Room (3:56)Жанр: Progressive rock, Jazz-Rock, Fusion, AvantgardeПродолжительность: 00:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C99D5B37065B16B43282EDAFF2CDF64642BFAA11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536814   (512533) от 20.08.2012
-
-Design and interior of the wallpaper (19.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99A4276A6EEEF875BF59BD0C1B7FF173715FFC0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537053   (512532) от 20.08.2012
-
-(The) Mist Of Avalon - 4 альбома (1998-2010) [MP3|224-320 кб/с]<Gothic rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Gothic rockПродолжительность: 00:56:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8274B43E0AD09BD16AEB505943EEEBD5D8033001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536552   (512530) от 20.08.2012
-
-PRoject OxiD - Murder Music (2012) [MP3|320 кб/с]<Alt.Rock / Nu-Metal / Rapcore / Metalcore>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Opening
-02 Waiting For (pitchup ver. of Rob Swire & Apathy)
-03 Death Place (Randy Blythe & Tech N9ne)
-04 B.A.P. (Randy Blythe & Bumpy Knuckles)
-05 Bodysnatches (Vinniez Paz & Rob Swire)
-06 Bout Ta' Bubble (Tech N9ne & Randy Blythe)
-07 Animal Rap (Jedi Mind Tricks & Kool G Rap feat Randy Blythe)
-08 Black tar Heroin (Sutter Kain)
-09 Human Consumption (Necro & Randy Blythe)
-10 T-Dot (Sutter Kain & Dustin Kensrue)(   Читать дальше...   )Жанр: Alt.Rock / Nu-Metal / Rapcore / MetalcoreПродолжительность: 01:26:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E27837787FE1E35C1DD3B70CD709A0E4AD3920C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536809   (512529) от 20.08.2012
-
-Best HD Wallpapers Pack (19.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F238DBED1B6A7AFBF7824A08965EDAA4125246E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536811   (512524) от 20.08.2012
-
-Landscapes HD Wallpapers (19.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB8CE7C094FD6587270F86509C8F82404EBF4BC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536852   (512521) от 20.08.2012
-
-VA - The Cliffhanger Project (2010) [MP3|320 кб/с]<Blues-Rock>
+Thomas Marriott - Romance Language (2018) Origin Records [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513967.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rocky Athas, Larry Samford, Robert Ware & Craig Marlow - Texas Girl (3:32)
- 02. Robert Ware, Craig Marlow & Russell Stonecypher - Big Legs, Tight Skirt (2:32)
- 03. Michael Jeffrey, Mike Mccullough, Robert Ware & Jack Miller - Nazz Are Blue (2:58)
- 04. Christian Brooks, Robert Ware & Mike Gage - What's It Gonna Be (4:29)
- 05. Jimmy Wallace, Jerry Don Branch, Robert Ware & Mike Gage - The Score (5:07)
- 06. Micheal Jeffrey, Robert Ware & Jack Miller - Only Lonely (4:16)
- 07. Robert Ware, Craig (   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:50:00
+01. Dexter's Tune [3:17]
+02. Forgiveness [4:51]
+03. I Remember Sky [4:35]
+04. Piggyback [4:30](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:44:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:678E7AAAD8ACC1A5650C5811A6F688E623D514C3
+magnet:?xt=urn:btih:914B1F0BEDDEB06A61F99743D98C796969235928
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -281,28 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562038   (512520) от 07.07.2022
+###  Публикация: 1315150   (513966) от 19.07.2019
 
-David Dundas - 2 Albums (1977, 1978) LP [MP3|320 Kbps] <Pop, Rock, Disco>
+VA - Sublime Drum And Bass (2019) [MP3|320 Kbps] <Bass, D&B, Dubstep>
 
->>Pop
->>Зарубежная поп-музыка
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513966.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лорд Дэвид Пол Николас Дандас (родился 2 июня 1945 года) - английский музыкант и актер, наиболее известный своим успехом в чартах в жанре поп-музыки в 1970-х годах, а также его дальнейшей карьерой в кино и на телевидении.01. Intro (Hallo) (0:35)
-02. New York Doll (3:48)
-03. Another Funny Honeymoon (2:55)
-04. Daisy Star (4:10)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 01:15:33
+001. L 33 - Mafia
+002. Mystix - Treble Nine
+003. Phantom Flake - Neocontrol
+004. Nohzo - 52 Sound(   Читать дальше...   )Жанр: Bass, D&B, DubstepПродолжительность: 07:24:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65ACB484FB487A06F28D7B23C034E02156EAB6D2
+magnet:?xt=urn:btih:273E279D0347CA882BA05B0DCC540B6D373A6AA0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -310,25 +137,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562046   (512519) от 07.07.2022
+###  Публикация: 1315332   (513965) от 19.07.2019
 
-Алехандро Касона | Деревья умирают стоя (1957) [MP3, Эммануил Тобиаш и др.]
+VA - Ego Night: Original Mix Electro House (2019) [MP3|320 Kbps] <Electro House, Club, Dance>
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513965.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Спектакль Ленинградского государственного театра Комедии по одноимённой пьесе испанского драматурга Алехандро Альвареса Касона в постановке Николая Акимова. Премьера спектакля состоялась на сцене театра в 1957 году. У сеньора Бальбоа есть жестокий и бессердечный внук Маурисьо, которого однажды ему пришлось выгнать из дома, что стало большим потрясением для бабушки (   Читать дальше...   )Жанр: Проза, РадиоспектакльПродолжительность: 02:46:34
+001. Loja Do Cacao - Na Mesa (Gallica Mix)
+002. Six To Six - We Need A Sign (Radio Mix)
+003. Nuvex - U & Me (Radio Edit)
+004. Alex Plug - Acid Memories(   Читать дальше...   )Жанр: Electro House, Club, DanceПродолжительность: 09:01:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E6785F78D34A4B8AC42B0F07ED7765C1DD2CA80
+magnet:?xt=urn:btih:D98B203FD0CE50811CFDB5AE80FF57C806201B2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -336,28 +166,160 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562148   (512518) от 07.07.2022
+###  Публикация: 1315312   (513964) от 19.07.2019
 
-Blind Channel - Lifestyles Of The Sick & Dangerous (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Alternative Metal>
+Шарон Крич | Хаос – это нормально (2019) [FB2]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_513964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учитель английского дал на каникулы ужасно скучные задания: ежедневно вести дневник и читать «Одиссею»! Поэтому тринадцатилетняя Мэри Лу и подумать не могла, что этим летом произойдёт хоть что-то интересное… Но приехавший из другого штата кузен перевернул и так всегда ходящий ходуном дом семьи Финни с ног на голову!
+
+«Хаос – это нормально» – летний дневник Мэри Лу (   Читать дальше...   )Жанр: Детская прозаПеревод: Татьяна Бушуева, Александр БушуевФормат: FB2
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930854   (513963) от 24.08.2015
+
+Обои - Настроения 2 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои на тему настроенияФормат: JPGРазрешение файлов: 1024x768 - 2560x1920
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED4AC48F706E0DEBCAD7BECF10F27EEDC4671EE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929003   (513962) от 24.08.2015
+
+Обои - Рендеринг [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои на тему рендерингаФормат: JPGРазрешение файлов: 1600x1200 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:331F1C04F7F669E0B95BE7B9A77E3D28C3A41125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931019   (513961) от 24.08.2015
+
+Скуби-Ду и KISS: Тайна рок-н-ролла / Scooby-Doo! And Kiss: Rock and Roll Mystery (2015) BDRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения дога по имени Скуби-Ду и его друзей детективов продолжаются. Им предстоит раскрыть новую тайну. Главные герои побывают в мире рока, так как на этот раз одними из персонажей мультфильма станут участники легендарной группы Kiss.Производство: США / Warner Bros. AnimationЖанр: мультфильм, семейныйРежиссер: Спайк Брандт, Тони ЧервонеПеревод: Профессиональный (двухголосый закадровый)Язык субтитров: Английский, Французский.Качество: BDRipПродолжительность: 01:18:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5AC2D9588DFD6B2934FD6EA80EB3F5EA65478EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928977   (513960) от 24.08.2015
+
+Обои - Абстракции 2 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои на тему абстракцийФормат: JPGРазрешение файлов: 1280x800 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:449BAC47F68A69A28E83B60276F07F2FACB1844F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930924   (513959) от 24.08.2015
+
+Radkey - Dark Black Makeup (2015) [OGG| 444-518 кб/с]<Alternative Rock, Garage Rock, Post Punk>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513959.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Opinions (3:08)
-02. Dark Side (2:58)
-03. Don't Fix Me (2:53)
-04. Bad Idea (3:13)(   Читать дальше...   )Жанр: Rap Rock, Alt.Rock, ElectronicПродолжительность: 00:35:23
+01. Dark Black Makeup
+02. Romance Dawn
+03. Love Spills
+04. Parade It(   Читать дальше...   )Жанр: Alternative Rock, Garage Rock, Post PunkПродолжительность: 00:42:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3592BE5414506842B53C23EBD30A80D567F9131F
+magnet:?xt=urn:btih:FFC810B7D586C01957B650415D539DBAD43ED9AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -365,28 +327,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561731   (512517) от 07.07.2022
+###  Публикация: 930824   (513958) от 24.08.2015
 
-Павел Кузин - Гравитация (2022) [MP3|320 Kbps] <Russian Pop-Rock>
+Журнал | Школа гастронома. Коллекция рецептов №9 (208) (2015) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513958.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Лети-лети [00:02:10]
-02 - Ты танцевала [00:02:45]
-03 - Навсегда [00:03:13]
-04 - Какое счастье [00:03:03](   Читать дальше...   )Жанр: Russian Pop-RockПродолжительность: 00:31:01
+"Коллекция рецептов" - специальный проект журнала "Школа гастронома", журнал пошаговых мастер-классов с подробнейшим поэтапным описанием приготовления блюда. Каждый шаг на пути к кулинарному шедевру иллюстрирован цветными фотографиями.Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F832C0E12FCCD0003581126768C9D0D5F897C408
+magnet:?xt=urn:btih:6735D275E6D2DC89A844B92E3C427B605497FCF2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -394,161 +353,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562121   (512516) от 07.07.2022
+###  Публикация: 930853   (513957) от 24.08.2015
 
-Сэнди Скотницки, Кристофер Шульган | Бьюти-минимализм. Чем опасен гиперуход за кожей и что делать, чтобы не навредить себе (2021) [MP3, Люба Петрова]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бьюти-индустрия переживает бум, а блогеры и инфлюенсеры каждый день рассказывают подписчикам о новых чудодейственных средствах и универсальных рецептах красоты. Однако увлечение новинками может угрожать не только вашему кошельку. Канадский дерматолог с двадцатилетним стажем Сэнди Скотницки уверена, что главный враг здоровой кожи – гиперуход, то есть злоупотребление (   Читать дальше...   )Жанр: косметика и косметологияПеревод: Анна ВласюкПродолжительность: 08:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14387AD919287A6509AA182899912D7276A61AE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561963   (512515) от 07.07.2022
-
-Bad/Love - Life Imitates Art (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512515.jpg" />
-</div>
-
-
-###  Подробнее
-
-00. Kids [00:01:24]
-00. Social Suicide (feat. Crossfaith) [00:03:55]
-00. DMU [00:03:36]
-00. Come Clean [00:03:55](   Читать дальше...   )Жанр: Post-Hardcore, Metalcore, ElectronicПродолжительность: 00:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5295522040E5365921D408996913A00CC8A3EF4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562136   (512514) от 07.07.2022
-
-Altaria - Wisdom (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Melodic Power Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wisdom (3:36)
-02. Diablo Rojo (5:12)
-03. Without Warning (3:21)
-04. Kissed by the Flame (4:54)(   Читать дальше...   )Жанр: Melodic Power Metal, Hard RockПродолжительность: 00:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0755205FF914A39B30864EE7A42740F9133D0FA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562066   (512513) от 07.07.2022
-
-Осенняя казнь / Qiu Jue / Execution in Autumn (1972) BDRip [H.264/720p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512513.jpg" />
-</div>
-
-
-###  Подробнее
-
-В древнем Китае преступников, приговорённых к смертной казни, держали в тюрьме до осени, чтобы исполнение приговора совпало с порой, когда смерть будет гармонична состоянию природы. Молодого человека из состоятельной семьи приговорили к казни за убийство. Последний год, проведённый им в тюрьме в ожидании осени, позволяет ему переосмыслить свою жизнь... Лента входит (   Читать дальше...   )Производство: Тайвань, Central Motion PicturesЖанр: драмаРежиссер: Ли СинАктеры: Чжэнь Хуэйлоу, Чоу Шаочин, Би Хуи Фу, Су Ханг, Сян Тин Ко, Стелла Ли, Вэй Ау, Тан Баоюнь, Фу Шенг Цуй, Фэй ВангПеревод: любительский одноголосый (студия Кипарис)Субтитры: английскиеПродолжительность: 01:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4F9457F2A655B842803983D55DF9FCDB01FFB4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562057   (512512) от 07.07.2022
-
-Осенняя казнь / Qiu Jue / Execution in Autumn (1972) BDRip [H.264] [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512512.jpg" />
-</div>
-
-
-###  Подробнее
-
-В древнем Китае преступников, приговорённых к смертной казни, держали в тюрьме до осени, чтобы исполнение приговора совпало с порой, когда смерть будет гармонична состоянию природы. Молодого человека из состоятельной семьи приговорили к казни за убийство. Последний год, проведённый им в тюрьме в ожидании осени, позволяет ему переосмыслить свою жизнь... Лента входит (   Читать дальше...   )Производство: Тайвань, Central Motion PicturesЖанр: драмаРежиссер: Ли СинАктеры: Чжэнь Хуэйлоу, Чоу Шаочин, Би Хуи Фу, Су Ханг, Сян Тин Ко, Стелла Ли, Вэй Ау, Тан Баоюнь, Фу Шенг Цуй, Фэй ВангПеревод: любительский одноголосый (студия Кипарис)Субтитры: английскиеПродолжительность: 01:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35609E90557D7E525649A076767BB184C2063AAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561921   (512511) от 07.07.2022
-
-Королевы Бельгии / Les reines des Belges (2020) DVB [FR / RU Sub] (эпизоды 1-2 из 2)
+Царская дорога(4серии) (2013) DVB
 
 >>Документалистика и Телепередачи
->>Личности в истории
+>>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513957.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С момента создания Королевства Бельгия в 1831 году семь королев сменили друг друга. От Луизы-Марии Орлеанской до Матильды, вот их истории.Производство: БельгияЖанр: документальный, история, биографияРежиссер: Клеман Нурри, Станислас БеррьеПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (перевод Е.Маньен, Е.Пичугиной, компания Hiventy), немецкие, нидерландские, румынские, испанские - (IDX+SUB); английские, французские - (SRT)Продолжительность: 01:37:19 + 01:41:45
+Фильм через призму Истории Государства Российского повествует о глубинной духовной связи Царской Семьи с праведным Симеоном Верхотурским.Телекомпания: О. Сас-ВетницкийЖанр: ДокументальныйПродолжительность: 00:25:27 + 00:26:04 + 00:25:08 + 00:26:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89CA47A8DEF5EF6FD9D6ACE14721CA3EB277B8E2
+magnet:?xt=urn:btih:D5C905414BE5E0CF3B485A27B5A9026082852CBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -556,29 +379,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561814   (512510) от 07.07.2022
+###  Публикация: 931009   (513956) от 24.08.2015
 
-Bruce Cockburn - Greatest Hits (1970-2020) 2 x CD, Compilation, 2021, True North [FLAC|Lossless|image + .cue] <Folk-Rock>
+Скуби-Ду и KISS: Тайна рок-н-ролла / Scooby-Doo! And Kiss: Rock and Roll Mystery (2015) BDRemux [H.264/1080p]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513956.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Брюс Кокберн (Bruce Cockburn) – музыкант вне стиля и вне времени. Его музыка стала важным вкладом в развитие таких непохожих направлений, как рок, джаз, фолк, блюз. Во всем мире он известен как один из самых плодовитых музыкантов Канады. В его арсенале 34 полноценных альбомов, его имя выгравировано на Канадской аллее музыкальной славы.
-Всю жизнь Брюса Кокберна вдохновляли (   Читать дальше...   )CD - 1:
-01. Going To The Country (1968)
-02. Musical Friends (1969)
-03. One Day I Walk (1970)(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 02:09:14
+Приключения дога по имени Скуби-Ду и его друзей детективов продолжаются. Им предстоит раскрыть новую тайну. Главные герои побывают в мире рока, так как на этот раз одними из персонажей мультфильма станут участники легендарной группы Kiss.Производство: США / Warner Bros. AnimationЖанр: мультфильм, семейныйРежиссер: Спайк Брандт, Тони ЧервонеПеревод: Профессиональный (двухголосый закадровый)Язык субтитров: АнглийскийКачество: BDRemuxПродолжительность: 01:18:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36F6849E4AFC45EE378E729C2B47F3770BDF5387
+magnet:?xt=urn:btih:6862ACB7B0A37D36F625BA7580DF05257EDB6BA6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -586,28 +405,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562044   (512509) от 07.07.2022
+###  Публикация: 930339   (513955) от 24.08.2015
 
-Black Mango - Quicksand (2022) [FLAC|Lossless|WEB-DL|tracks] <African Blues Rock, Trip-Hop>
+Ю. Самойлович | Церковь украинского социал-фашизма (1932) [DJVU]
 
->>Other Styles
->>Folk (Lossless)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513955.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Bakeina's Dream (00:04:45)
-02 - Golden Cage (00:04:22)
-03 - Quicksand Blues (00:05:29)
-04 - Mad Girl Lament (00:04:46)(   Читать дальше...   )Жанр: African Blues Rock, Trip-HopПродолжительность: 00:43:59
+В книге на большом фактическом материале рассказано о возникновении Украинской автокефальной православной церкви, ее сотрудничестве с украинскими буржуазными националистами в годы Гражданской войны и в эмиграции, контрреволюционной и антисоветской деятельности церковников.Жанр: История, религиоведение, политологияФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00952DF2E4E6A694C49814C3CEB7297494F30038
+magnet:?xt=urn:btih:09B20B5E5D234DC69B8CBB0DF02E9DF8CA8B412D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -615,28 +431,105 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559109   (512508) от 07.07.2022
+###  Публикация: 930846   (513954) от 24.08.2015
 
-Liam Gallagher: 48 Hours at Rockfield (2022) WEB-DL [H.264/1080p] [EN / En Sub]
+Вадим Сухачевский | Тайный суд (2015) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513954.jpg" />
+</div>
+
+
+###  Подробнее
+
+В тридцатые годы ХХ века в Москве действует загадочное тайное общество, на самом деле существовавшее в средневековой Германии. Итальянская мафия – лишь одно из его отделений. Тайный суд оставался единственной надеждой бедняков на справедливость. И в cоветской России, погрязшей в беззаконии и страхе, для него тоже находится работа.
+
+Сын «врага народа» получает приглашение (   Читать дальше...   )Жанр: Ужасы и Мистика, Исторические детективы, ТриллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76385DD131669DEAF91482FD13C6BF408E08B5E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930791   (513953) от 24.08.2015
+
+Baidu Browser 43.19.1000.90 [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Baidu Browser – довольно симпатичный и удобный браузер с RSS-агрегатором и поддержкой вкладок. Так, несмотря на практически неизвестность для пользователей Рунета и соответственно, меньшую популярность по сравнению со своими более именитыми конкурентами, Spark Browser обладает множеством полезных функций, делающий интернет-серфинг более простым и дружелюбным. Поддерживаются (   Читать дальше...   )Язык интерфейса: Английский, тайский и португальский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA840B6E8872CD2E9585731B372F37A3C037BC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929006   (513952) от 24.08.2015
+
+Обои - Собаки [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои с собакамиФормат: JPGРазрешение файлов: 1920x1080 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:559DFC05A260A9090B225B0A40E91FFDD3633999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930807   (513951) от 24.08.2015
+
+Военная тайна клоуна Шуйдина (2010) IPTVRip
 
 >>Документалистика и Телепередачи
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513951.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Экс-вокалист группы Oasis, Лиам Галлахер, приехал со своими сыновьями и командой на знаменитую музыкальную студию в Рокфилде - Rockfield Studios. Именно на этой студии записывался самый продаваемый и успешный альбом Oasis "(What's the Story) Morning Glory?" 1995-го года. На студии Лиам с сыновьями провели 48 часов, посвященных музыке и воспоминаниям.01. Everything's Electric
-02. Diamond in the Dark
-03. Too Good For Giving Up
-04. Once(   Читать дальше...   )Производство: ВеликобританияЖанр: Alternative, Britpop, RockПеревод: отсутствуетЯзык озвучки: АнглийскийСубтитры: английские (full, SDH)Продолжительность: 00:47:17
+Тридцать лет выступал на арене легендарный дуэт клоунов - Никулин и Шуйдин. Имя Юрия Никулина было чрезвычайно популярным благодаря его киноролям. Михаил Шуйдин такой славы не дождался. Он стеснялся сниматься в кино из-за ранений, оставивших след на его лице. Во время Великой Отечественной войны Шуйдин был танкистом, 13 раз горел. За боевые заслуги был представлен (   Читать дальше...   )Телекомпания: Россия. «Контраст»Жанр: Документальный, ТелепередачаРежиссер: Екатерина ВещеваПродолжительность: 00:39:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0048DDEF6C17FC946AF03D2BBCA12E7296538E7
+magnet:?xt=urn:btih:83A905447AE14B1CF53D1CD2B3C9ACFE80CF8319
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -644,25 +537,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561933   (512507) от 07.07.2022
+###  Публикация: 928970   (513950) от 24.08.2015
 
-Сестра, сестра / Sister, Sister (1987) BDRip [H.264/720p] [DVO]
+Обои - Hi-Tech [JPG]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513950.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сёстры Люси и Шарлотта Боннард сдают комнаты в большом особняке, унаследованном от родителей. Старинный дом хранит множество секретов, которые лучше не пытаться разгадать. Молодой парень, снявший одну из комнат, понимает это на собственном опыте...Производство: США, New World PicturesЖанр: драма, мелодрама, детектив, триллерРежиссер: Билл КондонАктеры: Эрик Столц, Дженнифер Джейсон Ли, Джудит Айви, Деннис Липскомб, Энни Питониак, Бенжамин Мутон, Наталия Ногулич, Бобби Пикетт, Джейсон СосьерПеревод: профессиональный двухголосыйСубтитры: английские SDHПродолжительность: 01:29:52
+Обои на тему Hi-TechФормат: JPGРазрешение файлов: 1280x960 - 2560x1600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86A625030CDC48687959BBC59335DE62AFA67DA1
+magnet:?xt=urn:btih:D9AC2E65E63E20E9345DF6CC42841228E16C965F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -670,28 +563,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562063   (512506) от 07.07.2022
+###  Публикация: 928991   (513949) от 24.08.2015
 
-VA - Chillout Summer Gems 2022: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+Обои - Авиация 2 [JPG]
 
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513949.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gary B - World Feel (original mix) (4:04)
-02. Beamy - Fragments (original mix) (4:48)
-03. Martin Hiska - Returning (6:34)
-04. Chillson - Don't Look Back In Anger (feat Marc Hartman) (5:13)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:18:20
+Обои на тему авиацииФормат: JPGРазрешение файлов: 1280x1024 - 2560x1600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:989A5BC1F7ACF2C16CF751C1A9EA23C9D5F3025D
+magnet:?xt=urn:btih:0AB5B9740219B1E3E511D929319AC332FBE62806
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -699,28 +589,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561701   (512505) от 07.07.2022
+###  Публикация: 930786   (513948) от 24.08.2015
 
-Barbra Streisand - Rose Of New York City: Barbra, 1961-1962 Live Recordings (2022) Remastered [MP3|320 Kbps] <Pop>
+Mozart - The Piano Sonatas, Vol.1 (Glenn Gould) (2CDs) (1990) [FLAC|image +.cue]<Classical, Classical Period, Sonata>
 
->>Pop
->>Зарубежная поп-музыка
+>>Классика
+>>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513948.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Sleepin' Bee (The Tonight Show, April 1961) (Remastered)
-02. Moon River (P.M. East, January 1962) (Remastered)
-03. When The Sun Comes Out (The Garry Moore Show, May 1962) (Remastered)
-04. Happy Days Are Here Again (The Garry Moore Show, May 1962) (Remastered)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:57
+Sonata No. 7 in C major, K. 309
+01. Allegro con spirito (03:41)
+02. Andante un poco adagio (06:28)
+03. Rondo: Allegretto grazioso (05:41)(   Читать дальше...   )Жанр: Classical, Classical Period, SonataПродолжительность: 02:01:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7326EFE759AE55AC49163F51D9F9A63A4019D6E3
+magnet:?xt=urn:btih:E5A05AEC4AFDCCEA341525A18A3F25A0B233C033
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930858   (513947) от 24.08.2015
+
+WinUtilities Professional Edition 11.44 RePack by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513947.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinUtilities - системный набор для настройки вашей системы, содержащий более 20 инструментов для увеличения и настройки производительности вашего компьютера. Программа предлагает привлекательный и легкий в использовании интерфейс, который организует все задачи по категориям и предоставляет графическую статистику там, где это возможно. В программу входят различные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41D62C33AFA5B3D9A9B37CD4C3E00E5E3626DFAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930851   (513946) от 24.08.2015
+
+Анна Князева | Роковое золото Колчака (2015) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полина Свирская как чувствовала: им не дадут спокойно отдохнуть! Они с мужем, следователем Сергеем Дуло, забрались почти на край земли – берег Байкала, но и там его настигла работа! Сергея попросили помочь местным сыщикам в расследовании дерзкого преступления: бандиты напали на машину, перевозившую золото с прииска, убили охранников, тяжело ранили водителя и похитили (   Читать дальше...   )Жанр: Современные детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:749F7CA55E4E4D9DF518A0A006CE7A5D191262E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930999   (513945) от 24.08.2015
+
+Royal Hunt - Devil's Dozen (2015) Japanese Limited Edition [MP3|320 кб/с]<Melodic Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Right So Wrong
+02. May You Never (Walk Alone)
+03. Heart On A Platter
+04. A Tear In The Rain(   Читать дальше...   )Жанр: Melodic Progressive MetalПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5015D2AFEBC99464A513481FF15F3C458DF1D0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

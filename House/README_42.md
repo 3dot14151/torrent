@@ -1,3 +1,61 @@
+###  Публикация: 1152126   (569017) от 21.07.2017
+
+VA - Ready For Summer 2017 [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tony La Porte - Out Of Thrill (original mix) (06:04)
+02. Wild Dee - Sunny (original mix) (04:29)
+03. Softmal & Rey Vercosa - Quer Danone (original mix) (06:30)
+04. Nytron & DJ MauMau - Hit The Flow! (original mix) (05:46)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:20:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C79615D25588483CE9BB969FF9BB1CC88150C095
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152269   (567591) от 22.07.2017
+
+Daviddance & Francesco Frumento & I Biz - Nextix (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567591.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Daviddance - Nextix
+2.  Francesco Frumento - Soundwaves (feat Regis)
+3.  Daviddance - Life
+4.  I-BIZ - Prophecy(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E53BCE91E5CEAB1338CC61A2D5E3C478496A39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044252   (567466) от 19.08.2016
 
 VA - Boom Dance (2016) [MP3|320 Kbps] <House, Progressive, Club>
@@ -688,64 +746,6 @@ VA - A 40 Track Compilation: Hong Kong (2019) [MP3|320 Kbps] <House, Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E246E9B124B2F4F6C76C200EC99A3AF85788FD37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045524   (559960) от 23.08.2016
-
-VA - Permanent Vacation 4 (2016) [MP3|320 Kbps] <Deep House, Chillout>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hi & Saberhagen - Spreepark [05:31]
-02. Carrot Green - Vodou [07:35]
-03. Young Marco - Dreamless [06:25]
-04. Fantastic Man - Seaside Special [05:56](   Читать дальше...   )Жанр: Deep House, ChilloutПродолжительность: 01:16:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95871ACF376AFC01E81061F91AE3C1766804C1B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045536   (559955) от 23.08.2016
-
-VA - !Kollections 01: The Club (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midland - Blush [06:25]
-02. Bicep - Just [06:13]
-03. Rodriguez Jr. - Cily [07:20]
-04. Jakwob - Feel So Good [04:18](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC05DB39235D2D87F96EC64C3A7C217B49715454
 ```
 
 https://mybot314.ru/tekegram_catalog/

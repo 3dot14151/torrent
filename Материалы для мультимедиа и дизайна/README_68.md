@@ -1,3 +1,112 @@
+###  Публикация: 1369691   (901428) от 24.03.2020
+
+Шаблоны - Creative Market - 100+ Cosmetic Mock-up Collection - 4612374 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Может использоваться в качестве косметического макета для вашего бренда. Включает в себя все, что вам нужно, чтобы сделать великолепно выглядящие макеты для вашего продукта (ов).Формат: PSDРазрешение файлов: 4928x3264-10920x7284
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:496AF1619BD1DB529C3AE9BCF6DDF9EEA99B7B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100211   (901203) от 03.02.2017
+
+Векторный клипарт - Different ice cream set 1-8 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901203.jpg" />
+</div>
+
+
+###  Подробнее
+
+8 частей всяко разного, на любой вкус и цвет - мороженого.
+Глядя на эти вкусности, как не вспомнить крылатую фразу: "Дитям — мороженое, бабе — цветы. Смотри, не перепутай!.."Формат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8052B3E9AD031683B43BABA484EAF7A94FB0CF48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492792   (900801) от 31.08.2021
+
+Векторный клипарт - Editable font effect text collection illustration design 237 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Текстовые стили
+8 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E85D26B2F3B4EFB30CF757788B3AA1F38F410D4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492798   (900778) от 31.08.2021
+
+Векторный клипарт - Editable font effect text collection illustration design 242 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Текстовые стили
+8 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B96830831FFA941484D3DB5145B60CDA0F12A5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492795   (900736) от 31.08.2021
 
 Векторный клипарт - Editable font effect text collection illustration design 239 [EPS]
@@ -593,118 +702,6 @@ Gif Valentine Animated Snow Globe - с помощью данного экшен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C9B4432E4B77B7C8F16B09FFF84742194CFA444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493105   (899001) от 01.09.2021
-
-Векторный клипарт - Trash Cans and Cleaning Utenstils [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-мусорные баки и чистящие средства
-5 EPS +PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A4C092679532FE8B4AB99DD9CDACCFA2F308C7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493091   (898999) от 01.09.2021
-
-Векторный клипарт - Vector Animal Collection #9 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-животные
-25 AI +PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50DDAF02C98130EC00B88BFD7D1A141237FCF0CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493094   (898998) от 01.09.2021
-
-Векторный клипарт - Vector Animal Collection #10 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-животные
-25 AI +PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F034DF481830557A3C4AB97E1E276735DDEDD3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493096   (898994) от 01.09.2021
-
-Векторный клипарт - Vector Animal Collection #12 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-животные
-25 AI +PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C8D00156504C8F7B1D5F536167ADB8C1C366151
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 984916   (934092) от 12.02.2016
+
+VA - Lo Mejor Del Folklore Canario (2008) [FLAC|Lossless|tracks + .cue] <Folklore, Latino>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tasaigo - Coplas Pal Vino (4:50)
+02. Los Sabandenos - Tanganillo de Estevanez (2:11)
+03. Tasaigo - Andres (3:00)
+04. Achaman - Polca Envenenada (5:33)(   Читать дальше...   )Жанр: Folklore, LatinoПродолжительность: 01:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B6C8A1DB9AC02A9D5A4457E816BB4A5F17F5A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093165   (933897) от 15.01.2017
+
+Chinmaya Dunster - Gaia's Garden (2017) [MP3|320 Kbps] <World, Instrumental, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ocean Emotions
+02. Rainstorm
+03. Blessing from the Ancient Trees
+04. Springing from the Mountains(   Читать дальше...   )Жанр: World, Instrumental, New AgeПродолжительность: 00:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B1FA8F73C60A24305308C1D5FA7A3671233E99F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 285786   (933499) от 22.01.2011
+
+Гаятри Мантра - Мантра Богатства и Знания (2003) [FLAC|Lossless|image] <New Age, Meditative , Mantra>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гаятри Мантра считается самой священной и наиболее могущественной мантрой Вед. Эта универсальная мантра упоминается во всех четырех Ведах, а также в тантрах.
+
+Гаятри Мантра - мантра Великого Освобождения.
+Практика этой мантры дает все цели человеческого существования. "Дхарма" - жизненная тропа и духовный путь.(   Читать дальше...   )01. Гаятри Мантра (00:47:48)Жанр: New Age, Meditative , MantraПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C88CBE799F049ECE1D9C82D8B8122AC926BA895D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093178   (933478) от 15.01.2017
+
+VA - Hans Zimmer: The Classics (2017) [MP3|320 Kbps] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lindsey Stirling - Main Theme (From 'The Dark Knight Rises')  4:22
+02.  The Piano Guys - Themes (From 'Pirates of the Caribbean')  6:19
+03.  Lang Lang - Gladiator Rhapsody (From 'Gladiator')  4:38
+04.  Till Bronner - Main Theme (From 'Crimson Tide')  4:02(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7FDA6BCCAAEC2BCD6334ACAF2806EE468B489A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093923   (932433) от 16.01.2017
 
 Donna Stewart - Meditations to Heal Your Life (2013) [FLAC|Lossless|WEB-DL|tracks] <Meditative, Spoken Word>
@@ -629,128 +745,6 @@ Nick Skachkov - Baba Yaga: Terror of the Dark Forest / Яга. Кошмар тё
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFCA2F8F835CBDD57ABBCADAF4E55D00C52C1C42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366096   (925636) от 10.03.2020
-
-Nick Skachkov - Baba Yaga: Terror of the Dark Forest / Яга. Кошмар тёмного леса (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925636.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:29| 01. The Legend
-|01:46| 02. Bad Dream
-|03:33| 03. Beginning of Strange Things
-|01:19| 04. Everything Is Great(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFAD2AFE36D6A679D0225379D648CD73C371EE6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489506   (925382) от 16.08.2021
-
-Louis Landon - Provocative Piano (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Same Old Story (4:26)
-02. Beacon (3:04)
-03. Waiting (4:09)
-04. Somber (3:46)(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75B545FCA1A3A06066C720DFA9035ACEB71F3C19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593751   (924753) от 17.03.2013
-
-Messiah Project - (2 альбома) (2012-2013) [MP3|320 кб/с]<Enigmatic,New Age,Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life Goes On - Reprise
-02. Error Maya Life Goes On.(21.12.12)
-03. Close Encounters
-04. Lost Generation
-05. Parallel Universe
-06. Yesterday,Today,Tomorrow
-07. Teach Me
-08. Touch Of The God
-09. Journey Continues(Twenty Years)
-10. Pour Le Bien De L,Amour (Die In For You)(   Читать дальше...   )Жанр: Enigmatic,New Age,ElectronicПродолжительность: 02:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91FA69BDED22330654311DAA8AFAA26244423D20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987930   (924325) от 18.02.2016
-
-VA - Star Wars Headspace (2016) [MP3|320 кб/с] <Electronic, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C-3P0’s Plight - Kaskade
-02. Help Me! - GTA
-03. Force - TroyBoi
-04. Cantina Boys - Baauer(   Читать дальше...   )Жанр: Electronic, SoundtrackПродолжительность: 01:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F428762AD90767312BCD54CA6783A3694E233E17
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,116 @@
+###  Публикация: 757926   (911782) от 19.02.2014
+
+The Freddie Mercury Tribute Concert for AIDS Awareness (1992) Blu-Ray [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911782.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Freddie Mercury Tribute Concert for AIDS Awareness (Концерт памяти Фредди Меркьюри для информирования о СПИДе) - концерт состоялся под открытым небом в пасхальный понедельник, 20 Апреля 1992 года, на стадионе «Уэмбли» в Лондоне, с аудиторией в 72 000 человек.01.Intro
+02. Brian May, Roger Taylor, John Deacon — Introduction
+03. Metallica — Enter Sandman
+04. Metallica — Sad But True(   Читать дальше...   )Жанр: RockРежиссер: David MalletЯзык субтитров: English, German, Spanish, French, ItalianПродолжительность: 03:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC12293967EDE7E0619E33FA2DB94D2D33CDEE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096679   (911761) от 28.01.2017
+
+Машина Времени - Концерт в Киеве 2012 (2014) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911761.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Ваших руках не просто очередной концерт «Машины Времени». По утверждению самих музыкантов – это их лучшая съемка за все времена. Очень рад, что к этой записи имеют отношение команды «Авторадио» в России и на Украине, наш любимый режиссер Герман Садченков и его профессионалы. Посмотрите внимательно этот концерт. Вслушайтесь в тексты песен, вглядитесь в лица людей. (   Читать дальше...   )Производство: CD LAND/Sintez RecordsЖанр: МузыкаРежиссер: Герман СадченковПродолжительность: 01:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F59C4EDA4CC40472CCE5121E44DCD63B323F7216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990445   (911715) от 25.02.2016
+
+Shania Twain - UP! Close & Personal (2004) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911715.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	I'm Gonna Getcha Good!
+2	Ain't No Particular Way
+3	From This Moment On
+4	Whose Bed Have Your Boots Been Under?(   Читать дальше...   )Жанр: Country Rock, Pop RockПродолжительность: 01:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09BB855D5E16B4EE367A2BBE179DA9126A5DA44E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989610   (911625) от 25.02.2016
+
+Shania Twain - LIVE (1999) Come On Over, DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911625.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Man! I Feel Like A Woman!
+2	Honey, I'm Home
+3	You Win My Love
+4	Whose Bed Have Your Boots Been Under?(   Читать дальше...   )Жанр: Country Rock, Pop RockПродолжительность: 01:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:243AEB90D0BA91E864008650CA168BF66B44524E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990195   (911616) от 25.02.2016
 
 Shania Twain - The Platinum Collection (2001) DVD5
@@ -599,117 +712,6 @@ Vocal Dj Esther - Crazy For You (2013) [H.264/1080p] WEB-DLRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B9F9FE7FBBF669BB785F4E3E9E1551BFE38D7DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635882   (907713) от 27.03.2013
-
-Austin Mahone Say You're Just A Friend ft Flo Rida (2013) [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D3C73FF636A416008265E8A671E8CA6A4ACA47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635887   (907649) от 27.03.2013
-
-Justin Timberlake Suit & Tie (Official video) ft JAY Z (2013) [H.264/1080p WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8224B7D5D11788926A0F46C398C70A6218080BB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635833   (907461) от 27.03.2013
-
-Louna - Проснись и Пой! (live) (2013) 2*DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907461.jpg" />
-</div>
-
-
-###  Подробнее
-
-DVD1:
-01. Проснись и пой
-02. Кризис Крайст Суперстар
-03. Время Х(   Читать дальше...   )Жанр: КонцертПродолжительность: 02:28:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990276   (907446) от 27.02.2016
-
-VA - Коллекция клипов в авто (ZAP_part4) (2DIN) (2015 - 2016 + бонус) DVDRip,HDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение коллекции клипов в авто.Часть 4.
-Клипы на весь экран для автомагнитол, так же планшетов и тд.Keida - Ganja Tea.avi
-Kelis - Acapella.avi
-Kelly Clarkson - Heartbeat Song.avi
-Kelly Clarkson - Stronger.avi(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 40:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3FE3F34B5682060791BA0AE90945CCE3BDFB066
 ```
 
 https://mybot314.ru/tekegram_catalog/

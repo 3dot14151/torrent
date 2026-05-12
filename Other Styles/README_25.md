@@ -1,3 +1,120 @@
+###  Публикация: 235773   (908437) от 20.03.2020
+
+VA - The Best Of Piano (2009) [FLAC|Lossless|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omar Akram - Surrender     (06:43)
+02. Isaac Shepard - Before Dawn   (03:58)
+03. Robin Spielberg - Circle of Life   (04:10)
+04. Love Theme From Romeo & Juliet   (02:52)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 01:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD5CA38D0D7987E6C8C52DE1B6C1E1E60D59CAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099020   (907211) от 31.01.2017
+
+Dennis Michael Tenney - Night Of The Demons /  Ночь демонов (1988) 2015 / Lunaris Records [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Of TheDemons Theme
+02. Suzie Hides The Lipstick
+03. The Burn
+04. Henry Jogs(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C75EB9E42B8B51854ECE31C6050055F2260AFA46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 292382   (907002) от 07.02.2011
+
+Cornelius + Cretu - Cornelius + Cretu (1992) [FLAC|Lossless]<Downtempo, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cornelius + Cretu - совместная работа Peter Cornelius и Michael Cretu.
+Michael Cretu в представлениях не нуждается, а Peter Cornelius - австрийский музыкант, певец и композитор, участвовавший в создании второго и третьего альбомов Enigma.01. Nur Die Hoffnung Nicht
+02. Nichts Ist Vollkommen, Nicht Mal Das Gluck
+03. Rettungsringe Sterben Aus
+04. Alcatraz(   Читать дальше...   )Жанр: Downtempo, EnigmaticПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368449   (905644) от 22.03.2020
+
+Henri Seroka & Ralph Benatar - Akhnaton Pharaoh (Myths And Legends) (1997) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Beyond Infinity (10:06)
+02.Green Planet (10:04)
+03.Milky Way (10:11)
+04.Deep Probe (10:37)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A2AA8688D5B4791A57CF38ECEBBFAC65B05A99B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369060   (905386) от 22.03.2020
 
 Leonard Cohen - The Future (1992) [FLAC|Lossless]<Contemporary folk, Soft rock, Singer/Songwriter>
@@ -629,122 +746,6 @@ VA - Acoustic R&B Chill Playlist. Eighteen Smooth and Chilled Tracks (2017) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F2CB32F32045DE2043605D9A013341CB3F47CBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100007   (901397) от 03.02.2017
-
-Wychazel - In Search of Lemuria (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Hidden World [00:11:48]
-02. Sands of Time [00:10:56]
-03. The Crystal Path [00:08:52]
-04. Lemuria [00:10:40](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE8171BB1499E16E71F98C9893DCF7533EAF63CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 867186   (901369) от 09.02.2015
-
-VA - Ешь богатых / Eat the Rich (1987) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Motorhead - Eat The Rich
-02. Simon Brint - Terrorists
-03. Motorhead - Built For Speed
-04. Danny Eccleston - Nosher In The Bar(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D04A1F19936D29B538B65D58510C7BADA9230B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099996   (901314) от 03.02.2017
-
-Vicente Amigo - Apasionadas Cuerdas del Alma (2015) [FLAC|Lossless|image + .cue] <Flamenco, Acoustic, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bolero A Los Padres (4:23)
-02 - Campos De San Gregorio (4:23)
-03 - Bolero a Marcos (5:40)
-04 - Rio De La Seda (9:43)(   Читать дальше...   )Жанр: Flamenco, Acoustic, GuitarПродолжительность: 01:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C881B6FD91BF013D89073CC49B0F9C24407DA2A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 867779   (901039) от 09.02.2015
-
-John Carpenter - Lost Themes (Deluxe) (2015) [FLAC|Lossless|WEB-DL]<Soundtrack, Ambient>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vortex (4:44)
-02. Obsidian (8:24)
-03. Fallen (4:44)
-04. Domain (6:33)(   Читать дальше...   )Жанр: Soundtrack, AmbientПродолжительность: 01:18:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE02309A8ABC3A2F912C629728775DAE6445D89
 ```
 
 https://mybot314.ru/tekegram_catalog/

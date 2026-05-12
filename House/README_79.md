@@ -1,3 +1,61 @@
+###  Публикация: 1764478   (102708) от 07.12.2024
+
+VA - Christmas Dance Party 2024-2025 (Best of Dance, House & Electro) (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JLUIS - Parachute (02:48)
+02. Rene Rodrigezz, Basslovers United & Dan Winter - Wherever You Go (02:17)
+03. Stephan F & Ya-Ya - No Broken Heart (03:09)
+04. Dropix DJ - Far in Love (02:34)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:22:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED5C54E61910ECDA845E0F72F2DA4936E3372B61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764521   (102706) от 07.12.2024
+
+VA - Ibiza Winter 2025 (Deep-House Smoothies from the Heart) (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steen Thottrup & Eva Scolaro - Deeper Love (Calmabohain Remix) [03:22]
+02. Nykoluke - Summer '04 [02:23]
+03. Seumas Norv - Baby (Radio Edit) [03:11]
+04. Kay Portman - Deep Down [03:02](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:659F0883A8A61E3DFA9311B384339AA859051FFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764513   (101564) от 07.12.2024
 
 VA - Deep Focus (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
@@ -754,76 +812,6 @@ DJ JIM - Spring Colors (2012) [MP3|320 кб/с] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05B2346876707875E86D7E55BFB0674AE2A32572
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459541   (79141) от 29.02.2012
-
-VA - Anjunadeep 04 (Mixed by Jaytech & James Grant) (2012) [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79141.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 Mixed by James Grant [01:16:31]
-01. Dusky - Stick By This [3:39]
-02. Martin Roth - Beautiful Life [5:30]
-03. Vincenzo - Get To Know You [6:13]
-04. Laura Jones - Love In Me (Maceo Plex Remix) [4:39]
-05. Andrew Bayer - You [6:57]
-06. Paronator - No Gravity (Tom Middleton Liquatech Mix) [5:24]
-07. Dusky - Lost Highway [4:37]
-08. Above & Beyond - Prelude (Andrew Bayer & James Grant Remix) [6:24]
-09. Full Tilt - Take Me Away (Andrew Bayer & James Grant Remix) [5:23](   Читать дальше...   )Жанр: HouseПродолжительность: 02:33:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B87646B79AA462D70BBDD7CDE0D43AB824B1FD87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454869   (77284) от 20.02.2012
-
-VA - More Than Miles: Dream House '96 (1996) [MP3|320 kbps]<Dream House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robert Miles - Fable (Dream radio)
-02. Zhi-Vago - Celebrate (The Love)
-03. Dj Dado - X-Files (Radio edit)
-04. Cyclone Tracy - Piano In Trance (Radio mix)
-05. Groove Solution - Magic Melody ('96 Trance Goa mix)
-06. Imperio - Cyberdream (Dream version)
-07. Zyon - No Fate (Edit)
-08. Scooter - Rhapsody In E
-09. Nylon Moon - Sky Plus (Over The Sky radio edit)
-10. Protect System - Simplicity (House mix)(   Читать дальше...   )1996Жанр: Dream HouseПродолжительность: 01:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FFCFEA3F9D35E6470F4E537963408761E252E1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

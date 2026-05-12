@@ -1,25 +1,24 @@
-###  Публикация: 1032255   (647904) от 06.07.2016
+###  Публикация: 1541085   (648779) от 01.04.2022
 
-Lee Morgan - Midtown Blues (1957, 1960) 2CD, 2011, Not Now Music[FLAC|Lossless|image + .cue] <Hard Bop>
+Марцин Мортка | Викинг Таппи и праздничный торт [Сборник] (2018) [PDF]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648779.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1 - The Cooker:
-01.A Night In Tunisia [09:25]
-02.Heavy Dipper [07:07]
-03.Just One Of Those Things [07:19](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:18:24
+Редакция «Вилли Винки» представляет!
+Отважного викинга Таппи снова ждут захватывающие приключения, которые ему даже не снились! Ему предстоит встретиться с зимними драконами, вечно голодными троллями и капризными великанами. Хватит ли тебе смелости узнать, справится ли добродушный викинг со всеми напастями?
+Автор Марцин Мортка обожает скандинавскую культуру. Он пишет (   Читать дальше...   )Жанр: Детская литература, СказкиПеревод: Гаянэ Мурадян, Елена БарзоваФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A56F9CD0B9F641251A66FE81959E7ED07EDE1F02
+magnet:?xt=urn:btih:D30EBE27406EC2F98BA9DCC7AE86ABE85C6B14FE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +26,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031820   (647903) от 06.07.2016
+###  Публикация: 517125   (648778) от 30.06.2012
 
-VA - 1995 Grammy Nominees (1995) Series Grammy Nominees [APE|Lossless|image + .cue] <Folk Rock, Pop Rock, Blues Rock, Soul>
+[Xbox 360] Steel Battalion: Heavy Armor (XGD2) (RegionFree) [KINECT] [ENG] (2012)
+
+>>След.
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Steel Battalion: Heavy Armor – продолжение серии симуляторов боевых роботов. События игры разворачиваются в 2082 году, хотя визуально все больше напоминает времена Второй Мировой Войны. Только вот в этом варианте виртуального мира в войнах используются огромные боевые роботы
+
+В игре будет использоваться гибридная система управления. При помощи стандартного контроллера вы будет осуществлять перемещение, прицеливание и вести огонь. Другие же функции (запуск двигателя, использование вторичного оружия и др.) будут закреплены за жестами и движениями тела игрока. Также вы будете использовать жесты для общения с членами подразделения на поле боя.Разработчик: From SoftwareЖанр: ActionЯзык интерфейса: ENG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F5A7ACFED16CF148F11531F27889CB283AE0170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541003   (648777) от 01.04.2022
+
+Colonel Petrov's Good Judgement - Hypomaniac (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Experimental>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648777.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Boyz II Men - I’ll Make Love to You
-02. Mary Chapin Carpenter - He Thinks He’ll Keep Her
-03. Sheryl Crow - All I Wanna Do
-04. Bonnie Raitt - Love Sneakin’ Up on You(   Читать дальше...   )Жанр: Folk Rock, Pop Rock, Blues Rock, SoulПродолжительность: 00:59:19
+01 - Hypomaniac (00:03:48)
+02 - Black Swan (00:06:51)
+03 - Mating Season (00:04:48)
+04 - Pendulum (00:05:31)(   Читать дальше...   )Жанр: Progressive Rock, ExperimentalПродолжительность: 00:40:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:954AAB94CE9228B054299EBF8B4C6D8AC1D1F495
+magnet:?xt=urn:btih:A69D02A6CFE0FE1729FD12E73EF7CBBB2204251D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +83,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032205   (647902) от 06.07.2016
+###  Публикация: 515700   (648776) от 30.06.2012
 
-VA - Best of Lounge, Ambient and Chill Out, Vol. 3 (2013) [MP3|320 Kbps] <Balearic, Downtempo>
+Эдвин Лефевр | Воспоминания биржевого спекулянта [2011] [MP3]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648776.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sylvering - Sunday Bloody Sunday [04:16]
-02. Guenter Haas - Lost in a Dream [06:39]
-03. Metaharmoniks - From Soul to Soul [03:17]
-04. Simon Le Grec - Crying Souls [11:21](   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:59:49
+Книга была издана еще в 1923 году и до сих пор остается одной из самых популярных книг в области финансовой литературы. В ней Эдвин Лефевр описал биографию Джесси Ливермора - одного из величайших трейдеров в истории человечества. Изображение рынков и психологии инвестирования обогатило жизнь нескольких поколений инвесторов. До сих пор книга "Воспоминания биржевого (   Читать дальше...   )Жанр: Бизнес
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99EDFEF0FD8BE56732ECC12FB8C310844A7D0ABC
+magnet:?xt=urn:btih:1863820CE9E8730A8B02F43DA208C06775BBB1F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,137 +109,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032153   (647901) от 06.07.2016
+###  Публикация: 1541162   (648775) от 01.04.2022
 
-VA - Sexy Chillout Cafe (2016) [MP3|320 Kbps] <Lounge>
+Texpad 1.9.9 U2B [En]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_648775.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Counting Clouds - Footprints (Beach Mix)
-02. Lady Tut - Nothing Is for Certain - Ibiza Mix
-03. Heni Lasut - Miracle
-04. Lamar Ensemble - Tonal Colors(   Читать дальше...   )Жанр: LoungeПродолжительность: 11:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C16230835669CD62F1FE2624410FC7F0AEC7C19E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032195   (647900) от 06.07.2016
-
-VA - Outline Deep House (2016) [MP3|320 Kbps] <Club, Deep House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647900.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Amirali - Chromatic Dreams
-002. Damon Paul - Rhythm Is a Dancer (Patricio Amc Luna Mix)
-003. Sante - Awake Feat. J.U.D.G.E (Agoria Remix)
-004. Danky & Brain - Chasing Cars (R.I.C.K. Remix)(   Читать дальше...   )Жанр: Club, Deep House, Electro HouseПродолжительность: 09:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A4302D05F45E6FD7BD6FDF28EB7756F8F564503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032181   (647899) от 06.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 67 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fake - Frogs In Spain ( 1984 )
-02. Scala - Macchina Nera ( 12'' Version 1989 )
-03. Cherry ( Lian Ross ) - If You Believe ( Cherry Mix 1999 )
-18. Dr. Alban - It's My Life ( 1992 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C34B06630E52BEA727121214001067DDE09B4D17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032154   (647898) от 06.07.2016
-
-Stonerider - Hologram (2016) [MP3|320 Kbps] <Classic Rock, Psychedelic Rock, Timeless Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleepwalking Awake
-02. Hologram
-03. Dayrunner
-04. War, Traffic, and Blind Faith(   Читать дальше...   )Жанр: Classic Rock, Psychedelic Rock, Timeless RockПродолжительность: 00:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F769438B73CDD6876394FA139A77F839A8E09CAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031511   (647897) от 06.07.2016
-
-CERN начинает испытания технологии, которая имеет шансы стать будущим физики элементарных частиц
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_647897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из вещей, которые вы наверняка можете знать относительно экспериментов из области физики элементарных частиц, это то, что во всех подобных экспериментах используются поистине огромные научные установки. Длина туннеля Большого Адронного Коллайдера (БАК), самого мощного ускорителя частиц в мире, составляет 27 километров, а длина самого большого линейного ускорителя (   Читать дальше...   )
+Texpad это редактор LaTeX предназначен для простой навигации проектов любого размера. Когда Texpad открывает документ, сканирует через него, ища латексные команды структуры и любые включенные файлы, тогда он выдает Вам представление схемы, с которым Вы можете быстро переместиться по всему проекту.Тип издания: macOS SoftwareРелиз состоялся: 01.04.2022Разработчик: © 2011-2022 Valletta Ventures (UK) LtdПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
@@ -227,134 +135,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031873   (647896) от 06.07.2016
+###  Публикация: 516603   (648774) от 30.06.2012
 
-VA - Cascades Of Life (2016) [MP3|320 Kbps] <Downtempo, Goa, Twilight>
+Autodesk AutoCAD 2013 x32[original] + автономная справка 2013 [Русский]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_648774.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Imba - 604 Revolution  -  [11:24]
-02 - Profetia - Rage Against The Crashing  -  [8:17]
-03 - Colin OOOD & Goa Travellers - 100 Billion Neurons  -  [8:47]
-04 - BlackStarrFinale - Siege Of Phobos  -  [8:24](   Читать дальше...   )Жанр: Downtempo, Goa, TwilightПродолжительность: 01:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9419CD70FF187BF279C71729204FF87CF2432356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032187   (647895) от 06.07.2016
-
-VA - Electrodance Latino (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kike Puentes - Shake That (Original Mix)
-02. Clase-A - Pa Que Bailes (Original Mix)
-03. Fran Garzziak - El Que Te Daba Era Yo (feat Sergio Requena - Radio Edit)
-04. Charly Rodriguez & Tarek Dollar-T - Ella Es (Original Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 02:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F480981038710B6C8290E6040A1773FE5F21E8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031629   (647894) от 06.07.2016
-
-Таня Славянская - Любовь и разлука (2006) [FLAC|Lossless|image + .cue] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. С днем рождения, любимый 03:53
-02. Бригада (дуэт с Сергеем Паради) 04:20
-03. Любовь и разлука 03:40
-04. БабанькиЖанр: ChansonПродолжительность: 00:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80DA6805D37C2FB6F1A0B404B2C05C13631C4D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031648   (647893) от 06.07.2016
-
-Александр Сегень | Поп (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман посвящен тяжелой, но светлой судьбе русского священника Псковской православной миссии в годы фашистской оккупации. Едва ли не впервые в нашей литературе так подробно раскрывается образ священнослужителя, оказавшегося между атеистических жерновов большевистской и гитлеровской власти. Эту книгу Александр Сегень написал по особому и весьма почетному заказу, поступившему (   Читать дальше...   )Жанр: РоманПродолжительность: 09:24:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2DA41F128D7BB75B3CDF8D75C991A2873F2354F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031810   (647892) от 06.07.2016
-
-Автономные автобусы-роботы выходят на дороги городов в Швейцарии
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_647892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совсем недавно Швейцария присоединилась к группе стран, в которых проводятся испытания электрических автобусов-роботов. Первым швейцарским городом, на улицы которого вышли опытные электрические автобусы-роботы, стал небольшой город Сьон (Sion), население которого составляет порядка 33 тысяч человек. Пара автобусов-роботов будет постоянно курсировать по одному из маршрутов в рамках программы испытаний, которая продлится два года.(   Читать дальше...   )
+AutoCAD  2013  -  самая  популярная  в  мире среда автоматизированного проектирования,  избранная  многими разработчиками в качестве базовой графической  платформы для создания машиностроительных, архитектурных, строительных, геодезических программ и систем инженерного анализа.
+AutoCAD  — разработка компании Autodesk — самая распространенная САПР, функционирующая в среде MS Windows.
+AutoCAD   —   это   традиционные,   проверенные  временем  инструменты инженерной   графики,   трехмерного   моделирования   и  визуализации, постоянно   дополняемые   новыми   возможностями.   Платформа  AutoCAD обеспечивает  впечатляющее  повышение производительности труда в любой области  деятельности,  связанной  с точным графическим представлением результатов,  —  от  астрономических  наблюдений  до  раскроя  одежды.
+Функционал    AutoCAD    дополняют   более   5000   специализированных программ-приложений для самых разнообразных отраслей.Название программы: Autodesk AutoCAD 2013 x32 RUSЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
@@ -366,28 +164,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032183   (647891) от 06.07.2016
+###  Публикация: 1541015   (648773) от 01.04.2022
 
-VA - Зарубежная Дискотека ХХ Века - 68 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+VideoProc Converter 4.7 [Multi]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648773.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fancy - Bolero ( Hold Me In Your Arms Again 1986 )
-02. Scooter - Let Me Be Your Valentine ( 1996 )
-03. Eurythmics - The First Cut ( 1984 )
-04. Baby's Gang - Happy Song ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:20:01
+VideoProc - новая усовершенствованная версия прежнего MacX HD Video Converter, теперь более мощная, многофункциональная программа все-в-одном для обработки видео, предназначена для редактирования, вырезания, кадрирования, слияния, настройки, конвертирования и сжатия (4K) видео с полным аппаратным ускорением.Тип издания: macOS SoftwareРелиз состоялся: 28.03.2022Разработчик: © 2022 Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский, Немецкий, Итальянский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B733B3B16BF899D5E851680682E58B159D4C162
+magnet:?xt=urn:btih:6060EB4DD725103C8ADA26F5D6F00CE9F5872A24
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -395,24 +190,78 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 679487   (647888) от 14.07.2013
+###  Публикация: 1541093   (648772) от 01.04.2022
 
-Faith No More - Greatest Hits (2001) [FLAC|Lossless]<Alternative>
+Катя Матюшкина | Приключения Трикси-Фикси [Сборник] (2014) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_647888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648772.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Care a Lot (Original Version) [4:05]
-02. Introduce Yourself [1:35]
-03. From Out of Nowhere [3:23]
-04. Epic [4:54](   Читать дальше...   )Жанр: AlternativeПродолжительность: 01:18:12
+Как-то раз ночью в игрушечном Звёздном городе возник таинственный особняк… Он был такой кривой и перекошенный, что казалось удивительным, как он тут же не развалился! Окна и двери были разбросаны в самых неподходящих местах; над крышей поднималось несколько печных труб, а из окон лился призрачный свет…
+Это еще не всё! Как только особняк появился, прямо над ним повисла (   Читать дальше...   )Жанр: Детская литература, Сказки, ГоловоломкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E223AE9D5761D2E58DE2037EF88FC40969F4393
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541060   (648768) от 01.04.2022
+
+GoodTask 6.9.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648768.jpg" />
+</div>
+
+
+###  Подробнее
+
+У многих из нас каждый день настолько плотный график, такое количество важных задач, которые нужно выполнить, что ненароком, можно о чем-то случайно забыть.
+GoodTask — это элегантная и мощная «напоминалка», которая прекрасно взаимодействует со стандартным приложением Reminders и Календарем. Какую бы заметку вы в нем не оставили, она тут же будет отображаться в GoodTask. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.03.2022Разработчик: © 2022 haha interactiveПоддерживаемая ОС: OS X 10.13+Язык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB267530FB746F66E4C22303A0B0DD6B129D455
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516486   (648767) от 30.06.2012
+
+Autodesk AutoCAD 2013 x64 [original] + автономная справка 2013 [Русский]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_648767.jpg" />
+</div>
+
+
+###  Подробнее
+
+AutoCAD  2013  -  самая  популярная  в  мире среда автоматизированного проектирования,  избранная  многими разработчиками в качестве базовой графической  платформы для создания машиностроительных, архитектурных, строительных, геодезических программ и систем инженерного анализа.
+AutoCAD  — разработка компании Autodesk — самая распространенная САПР, функционирующая в среде MS Windows.
+AutoCAD   —   это   традиционные,   проверенные  временем  инструменты инженерной   графики,   трехмерного   моделирования   и  визуализации, постоянно   дополняемые   новыми   возможностями.   Платформа  AutoCAD обеспечивает  впечатляющее  повышение производительности труда в любой области  деятельности,  связанной  с точным графическим представлением результатов,  —  от  астрономических  наблюдений  до  раскроя  одежды.
+Функционал    AutoCAD    дополняют   более   5000   специализированных программ-приложений для самых разнообразных отраслей.Название программы: Autodesk AutoCAD 2013 x64 RUSЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
@@ -424,28 +273,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 905859   (647836) от 07.06.2015
+###  Публикация: 1539586   (648766) от 01.04.2022
 
-Neuschwander - Neuschwander (2015) [MP3|320 кб/с]<Progressive Rock, Psychedelic Rock>
+Андрей Макаревич, Оркестр креольского танго - Штандер (2013) [AAC|~316 Kbps] <Rock, Pop, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лет 30 тому назад (4:03)
+02. Из-за угла (5:05)
+03. Вдалеке от высоких холмов (3:13)
+04. Было не с нами (Посвящение А. Пилявину) (4:26)(   Читать дальше...   )Жанр: Rock, Pop, JazzПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC2A62B23B403E23BF27AC5645C88EC296C44519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540837   (648764) от 01.04.2022
+
+Satan - Earth Infernal (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648764.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.Introduction 02:31
-2.The Thin Air 05:40
-3.Blame It On 04:26
-4.Righteous Universe 06:01(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic RockПродолжительность: 00:51:06
+01. Ascendancy (5:04)
+02. Burning Portrait (5:51)
+03. Twelve Infernal Lords (5:16)
+04. Mercury's Shadow (2:50)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61460A1B676478D1FAE4478069053970CAE6F482
+magnet:?xt=urn:btih:7502B94B659A400F925BBDE01E6CC01683EE32A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -453,28 +331,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 905807   (647835) от 07.06.2015
+###  Публикация: 517278   (648763) от 30.06.2012
 
-Monsteras Bluesband - 40 Years: Live (2015) [MP3|320 кб/с]<Modern Electric Blues>
+Президент Линкольн: Охотник на вампиров / Abraham Lincoln: Vampire Hunter (2012) [H.264] CamRip *PROPER*
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_648763.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Baten (Feat. Calle Engstrom) (5:43)
-02. Darfor Star Jag Har Och Glor (Feat. Calle Engstrom) (4:30)
-03. You Ought To Be Ashamed (Feat. Eric Engstrom) (5:55)
-04. The Crawl (Feat. Eric Engstrom) (4:40)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 01:18:32
+Сюжет фильма раскрывает тайную жизнь Величайшего Президента Америки Авраама Линкольна — любящего мужа и отца днем и беспощадного убийцу вампиров ночью. Армия кровопийц, которым он бросил вызов, растет с каждым днем. Сможет ли президент великой страны противостоять полчищам вампиров и спасти свою семью и народ от неминуемой гибели?..Жанр: Боевик, Ужасы, ФэнтезиРежиссер: Тимур БекмамбетовПродюсер: Тимур Бекмамбетов, Тим Бёртон, Джим ЛемлиАктеры: Бенджамин Уокер, Доминик Купер, Энтони Маки, Мэри Элизабет Уинстэд, Руфус Сьюэлл, МартонЧокаш, Джимми Симпсон, Джозеф Моул, Робин МакЛиви, Эрин УоссонПеревод: ДублированныйПродолжительность: 01:33:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9801123FDEFA941C823755EC7108D6878232A25E
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -482,28 +357,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 905801   (647834) от 07.06.2015
+###  Публикация: 1540851   (648762) от 01.04.2022
 
-Kinski - 7 (or 8) (2015) [MP3|320 кб/с]<Psychedelic Rock, Experimental, Post-Rock>
+Wolf - Shadowland (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648762.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.Detroit Trickle Down
-2.Flight Risk
-3.I Fell Like A Fucking Flower
-4.The Needle's Fine(   Читать дальше...   )Жанр: Psychedelic Rock, Experimental, Post-RockПродолжительность: 00:43:49
+01. Dust (4:43)
+02. Visions for the Blind (5:38)
+03. The Time Machine (6:11)
+04. Evil Lives (3:34)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:54:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DD78F0A382E1CD14D418DC130F18867AB7A76CD
+magnet:?xt=urn:btih:7AAB7299FCE37F3392AF7887702F73FC045A8971
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -511,25 +386,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 906004   (647833) от 07.06.2015
+###  Публикация: 130670   (648761) от 30.06.2012
 
-Чрезвычайное происшествие. Обзор за неделю (07.06.2015) SATRip
+Мисс Марпл Агаты Кристи / Agatha Christie's Miss Marple (1984 - 1992) DVDRip (серии 01-12 из 12)
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>След.
+>>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_648761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр передачи можно назвать "журналистикой инцидента". Его особенности в том, что программа, по сути, представляет собой не просто криминальную сводку или уголовную хронику, а показывает реальную жизнь без прикрас. Когда на НТВ возникла идея итоговой программы о происшествиях, работать пришлось в авральном режиме. Окончательное решение созрело за две недели (   Читать дальше...   )В выпуске: Милосердное надувательство: шарики, шоколадки, браслеты.… Как мошенники грабят сердобольных прохожих, прикрываясь тяжелобольными детьми?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:43:59
+Дотошная и обаятельная мисс Джейн Марпл впервые появилась в произведениях Агаты Кристи в 1930 году и практически сразу завоевала симпатии читателей. Пожилая сельская леди умудряется распутывать головоломные преступные комбинации, перед которыми пасуют даже профессиональные сыщики. В памяти мисс Марпл хранятся неисчерпаемые запасы историй из жизни её соседей - остаётся (   Читать дальше...   )Жанр: ДетективРежиссер: Narizzano Silvio, Stone Normanс и др.Актеры: Hickson Joan, Watford Gwen, Watson Moray, Dyall Valentine, Foley Karin, Jaeger Frederick, Horovitch David, Cruickshank Andrew, Madden Ciaran, Conrad Jess, Styler Trudie, Walters Hugh, Smee Anthony, Arnold Debbie, Higgins Colin, Bardon John, Rutter Anne и др.Перевод: Многоголосый закадровыйПродолжительность: 12 серий по 00:50:00-01:30:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4981E4B73D08DB4308B42197E33409A035E6CDAE
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -537,28 +412,202 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 905865   (647832) от 07.06.2015
+###  Публикация: 1541047   (648760) от 01.04.2022
 
-Vitor Bacalhau - Brand New Dawn (2015) [MP3|320 кб/с]<Blues Rock>
+Advanced Duplicate Cleaner 1.5 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используйте Advanced Duplicate Cleaner, чтобы просканировать систему и найти как повторяющиеся, так и похожие файлы. Кроме того, чтобы удалить эти файлы, вы выбираете их вручную или можете использовать функцию автоматической метки, чтобы приложение могло выбирать дубликаты, как и вы.
+Это великолепно продуманное приложение. Он сканирует каждый уголок вашего Mac на (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.03.2022Разработчик: © 2022 Tweaking Technologies Private LimitedПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFCFA631FF1084E30C69CB8F144D595DDEDDC30E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541123   (648758) от 01.04.2022
+
+Vintage Culture - Live @ Carnaval, Warung Beach Club, Brazil (2022-02-26) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vintage Culture - Space
+02. ID - ID
+03. KC Lights ft. Tailor - Fall (Club Mix)
+04. Arude & Sincz - Become Immortal And Then Die(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 06:07:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:833C71F665AFE3613475D1A35D2A402E2A3E99E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516895   (648757) от 30.06.2012
+
+Mac OS X Lion - 10.7.4 Intel & AMD
+
+>>3
+>>23
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_648757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mac OS X Lion - операционная система от компании Apple, пришедшая на смену Mac OS X Snow Leopard. Корпорация Apple подчеркивает, что в сравнении с предыдущей версией Mac OS X Lion содержит более 250 новых функций. Ключевыми новшествами являются поддержка полноэкранного режима в приложениях, новые жесты "мультитач", функции Mission Control для просмотра запущенных на компьютере программ в одном окне, панель Launchpad и новый почтовый клиент.
+Сам же дистрибутив Mac OS X Lion доступен в Mac App Store.
+
+ВНИМАНИЕ: прежде чем начинать какие-то действия, ВНИМАТЕЛЬНО прочитать мануал по установке.
+АМД ниже.
+
+Новые возможности операционной системы:
+ Launchpad – Управление (папки, рабочие столы) и запуск ваших приложений в стиле iOS
+ Полноэкранные приложения
+ Mission Control – Объеденяет в себе Dashboard и Expose, и становится центром управления окнами приложений, рабочими столами итд.(   Читать дальше...   )Тип издания: MacOS X (osx86project/hackintosh)Язык интерфейса: английский + русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292134   (648756) от 28.03.2019
+
+Cardhop 1.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648756.jpg" />
+</div>
+
+
+###  Подробнее
+
+До сих пор управление и взаимодействие с вашими контактами было настоящим разочарованием. Магический синтаксический анализ Cardhop невероятно интуитивно понятен, позволяя вам искать, добавлять, редактировать и взаимодействовать с вашими контактами с помощью простого предложения!
+
+Просто введите «John G» и карта Джона немедленно появится. Или введите «Sarah Smith (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.03.2019Разработчик: Flexibits Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:619266D0E832DAE4F9F7422A4CDEDC79A05F00DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292255   (648755) от 28.03.2019
+
+VA - Les Inrockuptibles: La bande-son du printemps 2019 (2019) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Malik Djoudi - Epouser la nuit [3:37]
+02. Fontaines D.C. - Roy's tune [3:00]
+03. These new puritans - Into the fire [3:42]
+04. The psychotic monks - Closure [3:49](   Читать дальше...   )Жанр: PopПродолжительность: 01:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0444D29082C6E72618F887E33E789704ECFF776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292233   (648754) от 28.03.2019
+
+Газета | Война и отечество №4 (37) (2019) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648754.jpg" />
+</div>
+
+
+###  Подробнее
+
+В каждом номере журнала "Война и Отечество" оригинальные версии событий военной истории России. Постоянные темы нашего журнала - Война, Родина, Героизм, Патриотизм, Архивная информация и комментарии именитых специалистов. Самое главное в журнале "Война и Отечество" нет никаких выдумок! Все, о чём пишут наши журналисты – это достоверные проверенные (   Читать дальше...   )Жанр: популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C9070D4C538BCC0CF86FF3B44813710F0FBE7B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292229   (648753) от 28.03.2019
+
+Ravanna - АМОК (2019) [MP3|320 kbps] <Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mean Woman (4:05)
-02. Gone Too Soon (4:06)
-03. Too Much Of A Good Thing (3:06)
-04. Nicotine (4:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:19
+01. Пыль (feat. Treya) (02:56)
+02. Порталы (feat. Тони Раут) (02:57)
+03. Небо солнце (04:05)
+04. Сопротивление (feat. Кэш) (03:58)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:29:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B12D77108D373C6B0A8CD9C861413A13BF6CDBD
+magnet:?xt=urn:btih:845CD339C3915A9008EBF0B9DEB3F8EE9098E8E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -566,86 +615,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 905817   (647831) от 07.06.2015
+###  Публикация: 1292183   (648752) от 28.03.2019
 
-Reanimator - Horns Up (2015) [MP3|320 кб/с]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electric Circle Pit
-02. Rush for the Mosh
-03. Tempted By Deviance
-04. Thieves of Society(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A364A83065F2186413427AE81FE06840EA30C3F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905809   (647830) от 07.06.2015
-
-The Lachy Doley Group - Conviction (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Betcha I'll Getcha (02:42)
-02. Conviction (05:31)
-03. Make It Up (04:38)
-04. Back In Black (04:48)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D6F8776C4DAA407ED01562AD04D72A773007DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905960   (647829) от 07.06.2015
-
-VA - Lounge Underground Paris Edition (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+Koan - Briar Rose Side A (2019) [MP3|320 Kbps] <Electronic, Downtempo, Ambient>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648752.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blue Wave - Diving Delights [05:50]
-02. Chiffre 100 - All I Need - Vocal Mix [05:22]
-03. El Nicoya - Andando [05:42]
-04. Retrosynco - Catch the Beat [05:32](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:58:50
+01. Koan - Introus (2:10)
+02. Koan - Briar Rose (8:09)
+03. Koan - Dream in Kaiser Gardens (8:47)
+04. Koan - Ardenne Forest (5:30)(   Читать дальше...   )Жанр: Electronic, Downtempo, AmbientПродолжительность: 01:10:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:908097078660FDBAE167D6B790A92171B0FF3CED
+magnet:?xt=urn:btih:275D4D05C3BEA6FEC7D943923EF1B147C564B3DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -653,28 +644,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 905856   (647828) от 07.06.2015
+###  Публикация: 1292240   (648751) от 28.03.2019
 
-Sintonia Distorta - Frammenti D'incanto (2015) [MP3|320 кб/с]<Progressive  / Hard Rock>
+Журнал | Ирэн №4 (2018) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock
+>>Журналы
+>>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648751.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Anthemyiees 9.04
-02. Il cantastorie 5.34
-03. Menta e Fragole 5.22
-04. Il suono dei falsi dei 6.07(   Читать дальше...   )Жанр: Progressive  / Hard RockПродолжительность: 01:07:58
+Первый в России журнал, посвященный французской вязаной моде, представленной уникальными разработками французских модельеров и дизайнеров, а также производителей пряжи. Каждый номер демонстрирует эксклюзивную коллекцию вязаной одежды для каждого сезона, выполненную из высококачественной элитной пряжи. Силуэты элегантны, детали точны. Все модели, публикуемые в журнале (   Читать дальше...   )Жанр: вязаниеФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D9104F96A2C63EBCBFFCBE5756734DCA7F9FBC8D
+magnet:?xt=urn:btih:54767DC13422D16177D900FF447E75F1CAFD3C03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -682,28 +670,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 905940   (647827) от 07.06.2015
+###  Публикация: 1292058   (648750) от 28.03.2019
 
-Crimson Stone - Crimson Stone (2015) [MP3|320 кб/с]<Hard Rock, Stoner>
+Leon Vynehall - DJ-Kicks (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Techno, House>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648750.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Revelations of Cain
-02. Stoner Knight
-03. Chango Loco
-04. Pessimist Boogie(   Читать дальше...   )Жанр: Hard Rock, StonerПродолжительность: 01:08:13
+01. Leon Vynehall – Who Loved Before (02:02)
+02. Kemikal – Genie (02:59)
+03. Tomaga – Giant Bitmap (05:11)
+04. De Fabriek – Loopy (02:15)(   Читать дальше...   )Жанр: Electronic, Techno, HouseПродолжительность: 01:17:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65DE807E3C8019CA7098996F9A3463E2850FFEDD
+magnet:?xt=urn:btih:854888A76EEE672CCCCA459140DF84707E6E4E1A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -711,28 +699,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 906007   (647826) от 07.06.2015
+###  Публикация: 1291958   (648749) от 28.03.2019
 
-Jaga Jazzist - Starfire (2015) [FLAC|tracks + .cue] <Electronic, Jazz, Rock, Future Jazz, Experimental>
+VA - Colorful Downbeats Vol​.​2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Progressive Chill, Downtempo, Downbeat>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648749.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Starfire (8:47)
-02. Big City Music (14:07)
-03. Shinkansen (7:43)
-04. Oban (12:41)(   Читать дальше...   )Производство: Ninja Tune – ZEN223CDЖанр: Electronic, Jazz, Rock, Future Jazz, ExperimentalПродолжительность: 00:49:53
+01. GMO - Journey into Sound (7:24)
+02. Zen Baboon - Full Moon (Nibana Remix) (9:22)
+03. Kill The Geek - High and Low Places (5:48)
+04. Koan - Dazed (6:56)(   Читать дальше...   )Жанр: Chillout, Progressive Chill, Downtempo, DownbeatПродолжительность: 01:14:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09781602C9126C0DC40BF9E0432A3A1DEEBD8E27
+magnet:?xt=urn:btih:57479722ECE30D6DCC3A99D7DD975FC2AD02D5AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

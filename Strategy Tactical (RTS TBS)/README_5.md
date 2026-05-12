@@ -1,3 +1,29 @@
+###  Публикация: 1278375   (771199) от 25.01.2019
+
+Battlefleet Gothic: Armada 2 (2019) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Battlefleet Gothic: Armada 2 — это новая стратегия в реальном времени, основанная на знаменитой настольной игре компании Games Workshop и повествующая о грандиозных космических битвах во вселенной Warhammer 40,000.Тип издания: LicenseРазработчик: Tindalos InteractiveЖанр: Strategy (RTS), Sci-FiЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D39226B32FC11AE1B31C762EF977289D650131AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278497   (771196) от 25.01.2019
 
 Valkyria Chronicles 4 (2018) [Multi] (1.0/dlc) License CODEX
@@ -644,32 +670,6 @@ War Mongrels — это изометрическая тактическая иг
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C7B72D1FB4B459A1C14F160CD3C0704CC053587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128163   (729287) от 23.04.2017
-
-Halo Wars (2017) [Ru/En] (1.12033.2.0hf) Repack R.G. Revenants [Definitive Edition]
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729287.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Halo Wars: расширенное издание» - дополненная версия классической стратегии в реальном времени Halo Wars, в которую можно играть и на PC. Действие игры разворачивается в начале войны между Ковенантом и ККОН, о которой мы узнали из известных шутеров Halo. В «Halo Wars: расширенное издание» вы взглянете на это противостояние несколько иначе, а на поле боя появятся (   Читать дальше...   )Тип издания: RepackРазработчик: Ensemble Studios, Behaviour Interactive, 343 IndustriesЖанр: Strategy, Real-time, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEDB54B86CC891C4F9DD71AC9A6BA4E4E0CF4042
 ```
 
 https://mybot314.ru/tekegram_catalog/

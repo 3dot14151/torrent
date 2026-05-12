@@ -1,3 +1,61 @@
+###  Публикация: 1392052   (769798) от 24.06.2020
+
+Jef Martens - Evenings on Instagram, Pt. I-III (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Solo Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something I Said (1:02)
+02. Pretty Sure We've Met Before (1:01)
+03. Almost But Not Quite (1:02)
+04. I Will Walk You Home (2:11)(   Читать дальше...   )Жанр: Modern Classical, Solo Piano |Продолжительность: 00:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285C8A2D38A326E205DE06E850A23A811558DEEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125473   (767752) от 15.04.2017
+
+Wataru Sato - midnight solitude (2017) [FLAC|Lossless|WEB-DL|tracks] <Piano, Ambient, Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No title  (05:16) 
+02. Cuddle  (03:31) 
+03. Stream  (03:25) 
+04. Circus  (03:10) (   Читать дальше...   )Жанр: Piano, Ambient, ClassicalПродолжительность: 00:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79ED2E7545E8EF6708A7A8A06548A0FD8333114E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278958   (767671) от 27.01.2019
 
 Vangelis - El Greco (1998) [FLAC|Lossless|image + .cue] <Modern Classical>
@@ -679,65 +737,6 @@ Yann Tiersen - All (2019) [MP3|320 Kbps] <Neo-classical, Contemporary>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64EAB42500168E3871FA4533ED53565329D7011A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 784140   (740716) от 07.05.2014
-
-VA - Pure... classical (2011) Box Set, 4 CD [FLAC|Lossless]<Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сравнить этот сборник, пожалуй, можно с прогулкой по Эрмитажу. Что не картина (трек) - то шедевр. Из разных эпох и стран, и оркестровые и соло, прелюдии, фуги, концерты - все в прекраснейшем обрамлении (исполнении).
-Из семи цветов состоит весь белый свет, а классическая музыка из бесчисленного количества оттенков, настроений и  переживаний. Почувствуйте все это у (   Читать дальше...   )01. Glenn Gould - Prelude No. 1 in C Major from 'The Well Tempered Clavier', Book I, BWV 846, f...  (2:25)
-02. Alicia De Larrocha - III. Rondo alla turca. Allegretto from Sonata No. 11 in A Major for Piano, K....  (3:44)
-03. Vladimir Spivakov - Orchestral Suite No. 3 in D, BWV 1068: Air on the G-String  (5:42)
-04. Sir Thomas Beecham;John McCarthy - Messiah: Hallelujah! (   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B87B256B61956535AE0DDAD9A418C7C19DBD4293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397486   (739831) от 21.07.2020
-
-Dirk Maassen - Ocean (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feather (4:41)
- 02. Fjara (3:22)
- 03. Peace of Mind (4:24)
- 04. Eternal (mvmt. I) (3:17)(   Читать дальше...   )Жанр: Modern Classical, PianoПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC8873B47B354AE0B56CA56368C7A07C96E3AC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

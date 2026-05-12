@@ -1,3 +1,61 @@
+###  Публикация: 916419   (304794) от 29.11.2015
+
+Scorpions - Moment of Glory (Live with the Berlin Philharmonic Orchestra) (2000/2013) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт воссоединившейся группы Scorpions, исполнившей свои хиты 22 июня 2000 года в своём родном городе Ганновере с Берлинским филармоническим оркестром.01. Hurricane 2000
+02. Moment Of Glory
+03. You And I
+04. We Don't Own The World(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, Symphonic RockПродолжительность: 01:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62DE6566A41C531D7757661F647B4ADF7A395C5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 730412   (304202) от 04.12.2013
+
+The Rolling Stones: Sweet Summer Sun - Hyde Park Live (2013) BDRip [1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304202.jpg" />
+</div>
+
+
+###  Подробнее
+
+1) Start Me Up
+2) It s Only Rock n Roll
+3) Street Fighting Man
+4) Ruby Tuesday(   Читать дальше...   )Производство: Великобритания / JA Digital, Eagle Rock EntertainmentЖанр: Classic RockРежиссер: Пол ДагдэйлПродолжительность: 01:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B75FB2C41D84A85B928D96E49B6D0324B2EA0DF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 846015   (303670) от 01.12.2014
 
 Depeche Mode - Alive In Berlin (2014) WEB-DL 1080p
@@ -669,64 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:141B7EA7D88508EFCA0D5F8428364C667CC62EA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 733657   (285105) от 13.12.2013
-
-Europe - Live at Sweden Rock: 30th Anniversary Show (2013) Blu-Ray [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro / Riches To Rags
- 02. Firebox
- 03. Not Supposed To Sing The Blues
- 04. Scream Of Anger(   Читать дальше...   )Жанр: МузыкаПродолжительность: 02:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96DD3B1CAB70C4CAFE991343DADBD6AD37AC624F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 733711   (285022) от 13.12.2013
-
-Muse: Live at Rome Olympic Stadium (2013) Blu-Ray [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Intro"
- 02. "Supremacy"
- 03. "Panic Station"
- 04. "Plug In Baby"(   Читать дальше...   )Режиссер: Matt AskemПродолжительность: 01:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED3F3536BADE9C4C413701A9C4C399A9137C1BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

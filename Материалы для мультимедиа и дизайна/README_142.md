@@ -1,3 +1,109 @@
+###  Публикация: 1026823   (701953) от 16.06.2016
+
+Экшены - GraphicRiver - Creative Art Photoshop Action [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Creative Art - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF06292B28AE6E88BC440403418044A4BE900986
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026749   (701949) от 16.06.2016
+
+Шаблоны - GraphicRiver - Artistic Photo Manipulation 05 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Artistic Photo Manipulation 05 - данный шаблон поможет превратить ваши фотографии в настоящее произведение искусств.Формат: PSDРазрешение файлов: 2000 x 3000 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57FEDA7AC89292FCB056A843D52EAC63EC394E53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026834   (701945) от 16.06.2016
+
+Экшены - GraphicRiver - Dynamic Sketch Photoshop Action CS3+ [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dynamic Sketch - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D8D0B69CFDC62E592CBF5400C80E102B3CDDF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402444   (701579) от 14.08.2020
+
+Векторный клипарт - Whole and chopped fruit in chocolate splash realistic illustrations 2 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Целые и нарезанные фрукты в шоколадной глазури
+9 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF4E821D1B82D877D1D46D760B6C945FFB1C7D61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402442   (701569) от 14.08.2020
 
 Векторный клипарт - Sweet candy landscape of plasticine 3d realistic illustrations [EPS]
@@ -571,114 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41CF6C243FBA8C620EC4D12330F079EFDBE480D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221164   (696633) от 23.04.2018
-
-Текстуры - Design Bundles -  100 Real Wood Textures [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные текстуры с официальной документацией.Формат: JPGРазрешение файлов: 3000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:676A5940546EAEC9D5F0723547A8E4E6F646B239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133009   (696467) от 11.05.2017
-
-Футажи - VideoHive - Light Leaks Pack [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Light Leaks Pack - это уникальный набор элементов, которые можно сложить как конструктор в ненавязчивые и красивые световые утечки, которыми вы сможете украсить ваше видео.
-Поместить их на ваше видео. Измените режим наложения. Так же можно использовать эффект размытия для мягкости. Эти элементы могут быть использованы отдельно или в сочетании друг с другом.
-Используются (   Читать дальше...   )Формат: MOVРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64309F5EE633D51FD0E0E743DBA967DBDB015A11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403096   (695571) от 17.08.2020
-
-Звуковые библиотеки - Mango Loops - All About Tabla [Kontakt, AIFF]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695571.jpg" />
-</div>
-
-
-###  Подробнее
-
-All About Tabla, от Mango Loops предлагает вам 1000, Tabla Loops в формате KONTAKT,
-предназначенном для оживления современных ритмов из таких жанров,
- как хип-хоп, трэп, дабстеп, RnB или Future Bass.Формат: Kontakt: NICNT, NKC, NKI, NKR, NKX; AIFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65DA874F1DB7308CBE64EE4CD0B53E47365F832A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221409   (695095) от 24.04.2018
-
-Текстуры - Jeans Textures X 6 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные текстуры.Формат: JPGРазрешение файлов: 1920 x 1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E670138C0FFD47926A6D5E1CB9D018B75991D76
 ```
 
 https://mybot314.ru/tekegram_catalog/

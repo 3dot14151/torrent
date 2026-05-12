@@ -1,3 +1,56 @@
+###  Публикация: 963326   (288678) от 07.12.2015
+
+Проекты - MotionMile - Vintage Horror Intro [AEP]
+
+>>Проекты
+>>Трейлеры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект - интродукция в стиле ужасов.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF984C73FA5DCC009835A1D058EA319AE10E59D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080552   (287985) от 07.12.2016
+
+Проекты - VideoHive - Halloween Opener - 18495828 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Halloween Opener - вы можете использовать этот проект домашнего видео Хэллоуин, костюмных вечеринок, трейлера фильма ужасов или любого другого кинематографического видео.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0897A6FF7DDAAB2FAC31A8628158B1166954BB98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080658   (287971) от 07.12.2016
 
 Проекты - VideoHive - Christmas Memories - 3573339 [AEP]
@@ -623,59 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90B1DF0A331AEA2C5FE31DAB6689524ACD9C3AB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963487   (286981) от 08.12.2015
-
-Проекты - FluxVFX - Deluxe Contact Sheet [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания фото-видео слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E8BE9D2B616121732FF65977AF7F857176A41A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963486   (286974) от 08.12.2015
-
-Проекты - Pond5 - Accent - Crystal Modern Slideshow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот шаблон идеально подходит для дефиле, танцевальных вечеринок, различных презентаций и других мероприятий. Вы можете использовать этот проект также в качестве портфолио модели. Можно выбрать цвет 9 пресетов для ваших изображений. Имеются две версии проекта - без плагинов Prerenders, и с использованием Particular.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA167BAD3083B5CB796D2F08B47DA33CA9E06203
 ```
 
 https://mybot314.ru/tekegram_catalog/

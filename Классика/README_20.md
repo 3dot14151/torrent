@@ -1,3 +1,62 @@
+###  Публикация: 784140   (740716) от 07.05.2014
+
+VA - Pure... classical (2011) Box Set, 4 CD [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сравнить этот сборник, пожалуй, можно с прогулкой по Эрмитажу. Что не картина (трек) - то шедевр. Из разных эпох и стран, и оркестровые и соло, прелюдии, фуги, концерты - все в прекраснейшем обрамлении (исполнении).
+Из семи цветов состоит весь белый свет, а классическая музыка из бесчисленного количества оттенков, настроений и  переживаний. Почувствуйте все это у (   Читать дальше...   )01. Glenn Gould - Prelude No. 1 in C Major from 'The Well Tempered Clavier', Book I, BWV 846, f...  (2:25)
+02. Alicia De Larrocha - III. Rondo alla turca. Allegretto from Sonata No. 11 in A Major for Piano, K....  (3:44)
+03. Vladimir Spivakov - Orchestral Suite No. 3 in D, BWV 1068: Air on the G-String  (5:42)
+04. Sir Thomas Beecham;John McCarthy - Messiah: Hallelujah! (   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B87B256B61956535AE0DDAD9A418C7C19DBD4293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397486   (739831) от 21.07.2020
+
+Dirk Maassen - Ocean (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feather (4:41)
+ 02. Fjara (3:22)
+ 03. Peace of Mind (4:24)
+ 04. Eternal (mvmt. I) (3:17)(   Читать дальше...   )Жанр: Modern Classical, PianoПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC8873B47B354AE0B56CA56368C7A07C96E3AC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1398035   (736641) от 24.07.2020
 
 Dirk Maassen - Avalanche (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, New Age>
@@ -687,64 +746,6 @@ Vanessa Mae - My New Classic (2012) [MP3|320 кб/с]<Pop, Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D03A717E11F27309EE7B1A8533C12C747446F51C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 793183   (702271) от 06.06.2014
-
-Vivaldi J.S. Bach A. Marcello Telemann-Concertos for oboe and orchestra Vladimir Kurlin (1971, 1977)/(2000)[FLAC|Lossless]<Baroque>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702271.jpg" />
-</div>
-
-
-###  Подробнее
-
-АНТОНИО ВИВАЛЬДИ (1678-1741)
-Концерт для гобоя и струнного оркестра ля минор
-1.	I. Allegro	4:07
-2.	II. Larghetto	4:40(   Читать дальше...   )Жанр: BaroqueПродолжительность: 00:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22831F7DDACCEF675622671004AB3D055321A321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 895311   (700854) от 05.05.2015
-
-David Garrett - Caprice (2014) [FLAC|Lossless]<Classical Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caprice No.24
-02. Ma Dove Sei (ft. Andrea Bocelli)
-03. La Campanella
-04. Io Ti Penso Amore (ft. Nicole Scherzinger)(   Читать дальше...   )Жанр: Classical CrossoverПродолжительность: 01:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A056E496E26077C1F1B7D07995DF4EBFEB0AA5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

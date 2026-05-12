@@ -1,22 +1,25 @@
-###  Публикация: 504400   (260226) от 01.06.2012
+###  Публикация: 1193892   (261807) от 23.12.2017
 
-Алексей Волков |Бомбовоз Его Высочества [2011] [FB2][TXT][JAVA (jar+jad)]
+Anson Funderburgh & The Rockets - Blast Off: The Best Of Anson Funderburgh & The Rockets (2006) [MP3|320 Kbps] <Electric Blues>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261807.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга из серии "Обитаемый остров"2011.Формат: FB2,TXT,JAVA (jar+jad).
+01. Tell Me What Have I Done Wrong? (03:09)
+02. A Man Needs His Loving (03:40)
+03. Come On (02:47)
+04. Rambling Woman (03:03)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:58:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C70826DD2D272E53CBFFA77B01AB7851A04A5D4A
+magnet:?xt=urn:btih:B33D353D6F44DFD779C521907BB5C51B13AA9F6D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,26 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 504371   (260224) от 01.06.2012
+###  Публикация: 1193950   (261806) от 23.12.2017
 
-Майкл Вуд | Троя. В поисках Троянской войны [2007] [PDF]
+План электрификации РСФСР [2-е изд.] (1955) [DJVU]
 
 >>Научная и техническая литература
->>Военная литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261806.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На протяжении тысячелетий людей манили сказания о Трое. Ахилл и Гектор, Парис и знаменитая красавица Елена до сих пор остаются любимыми персонажами искусства и литературы. Но действительно ли эти необыкновенные люди ходили по нашей земле? Была ли на самом деле осада Трои?
-В глубоком исследовании комплекса археологических, литературных и исторических данных историк Майкл Вуд принимает в расчет последние важнейшие достижения в поисках легендарного места. Рассказывая об обнаружении в Москве так называемых «сокровищ Елены» и проводимых повторных раскопках Трои, дарящих нам новые сведения об историческом городе, книга предлагает по-новому взглянуть на одни из самых волнующих открытий в археологии.2007Формат: PDF
+В 1920 г. Государственная Комиссия по электрификации России (ГОЭЛРО), в обстановке не окончившейся еще иностранной военной интервенции и гражданской войны, в условиях глубочайшей хозяйственной разрухи в нашей стране, разработала рассчитанный на 10—15 лет великий государственный план переустройства народного хозяйства Советской республики на основе крупной машинной (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E995BC346D02ACBA6E81A0AE38EC856993262B19
+magnet:?xt=urn:btih:688C25ACDF9A727C2AC61A2DD1EE4D641C8DF672
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,25 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 504319   (260217) от 01.06.2012
+###  Публикация: 1193679   (261805) от 23.12.2017
 
-[Wallpapers]Wonderful Nature HDWallpapers06
+VA - Italo Disco: The Lost Legends Vol.9 (2017) [MP3|320 Kbps] <Italo-Disco>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261805.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола.
+01.  Tom Dollar  -  Love Is Something  6:44
+02.  C'Zar  -  I Remember (Look Me Baby)  6:29
+03.  Steve Martin  -  Roxide  6:30
+04.  Laura Angel  -  lf You Want  4:29(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6995638DF4474DB43421343B721CE1A5BDCEBFB2
+magnet:?xt=urn:btih:81EB32E2CC724313D6FAB7245068AF0D2F4060EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,192 +82,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 504498   (260215) от 01.06.2012
+###  Публикация: 1194082   (261804) от 23.12.2017
 
-О.Н.Трюхан | Блюда из овощей и грибов [2007] [FB2]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260215.jpg" />
-</div>
-
-
-###  Подробнее
-
-У разумной хозяйки всегда имеются под рукой такие незаменимые продукты, как грибы и овощи. Ароматный грибной суп со специями, зразы из говядины с шампиньонами, тонкие блинчики с овощной начинкой и многие другие блюда, рецепты которых приводятся в этой книге, понравятся всем любителям вкусно и сытно поесть.2007Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18BF86490286815200C074F80866180835A3403C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504290   (260212) от 01.06.2012
-
-Неонилла Самухина | Телохранитель. Сборник [2009] [MP3]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260212.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник петербургской писательницы Неониллы Самухиной "Телохранитель" вошли повесть "Бодигард" (Телохранитель), а также несколько рассказов: "Здравствуй, Машенька!", "Одиночество", "Ноктюрн", "Фонтан Аленби" и "История одного падения".
-Стиль, в котором пишет Неонилла Самухина, можно было бы назвать "светлой прозой на фоне черного бытия", что наиболее ярко проявилось в повести "Бодигард". Жесткую и динамичную повесть "Бодигард", завлекающую читателя мгновенно, с первых строк и уже не отпускающую до самого последнего момента, можно назвать криминальной повестью, потому что в ней присутствуют и охранник, и бандитские разборки, и тайна, автор вообще любит ошарашивать читателя нежданным поворотом сюжета, нетрадиционной историей или деталью. Однако красной линией в ней проходит пронзительная история любви, побеждающая даже там, где царит Безысходность.Жанр: Проза
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:272A9F3AAC31E7CDC19FB57334AB01A3F408F1B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504249   (260211) от 01.06.2012
-
-Журнал | PH magazine №20 [июнь 2012] [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260211.jpg" />
-</div>
-
-
-###  Подробнее
-
-PH magazine является ежемесячным изданием в мире фотографии, коллектив издателей убежден, что хорошая фотография не нуждается в "великих" именах по обе стороны от камеры и их единственный критерий — качество.июнь 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBF00F1DCDEF33D456ECB15935599CC51D300420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504483   (260205) от 01.06.2012
-
-Смотреть всем! (2012.06.01) SATRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти видеоролики увлекли миллионы людей в Интернете! Снятые на мобильные телефоны, фотоаппараты и любительские камеры – они собрали больше просмотров, чем любой из кинохитов сезона. Программа «Смотреть всем!» разберется, как сложилась судьба создателей и участников этих видеороликов: для кого они стали сказкой, а для кого – кошмарным уроком.Жанр: ЮморПродолжительность: ~ 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE03F526CA4659B54C832308245CA77B2140AEA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504325   (260193) от 01.06.2012
-
-[Wallpapers]Music Wallpapers Pack1
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:041D373086B85F0E9B15684B680AA9BF6C09B582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504182   (260192) от 01.06.2012
-
-VA - Последние новинки в мире музыки от Vanovlad vol.18 50/50 (2012) [MP3|128-320 кб/с]<Pop, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ваня Чебанов - Я За Тебя Умру
-02.Mandinga - Te Quiero
-03.Stacy - Убегаю
-04.Mihai Ristea - When The Sun Is Going Down (Radio Edit)
-05.MainstreaM One - Джага-Джага
-06.Daddy Yankee - Pasarela
-07.Шима - Без Тебя
-08.DJ Robert.T & AdYan Dj - Love Dancer (Original Version)
-09.Нелюбовь (ex. Арбат) - Ночь
-10.Inna - Tu Si Eu (Radio Version)2012Жанр: Pop, DanceПродолжительность: 05:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42DC24EC442C147C1191A68F4930F1292F6B0EFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504376   (260189) от 01.06.2012
-
-Журнал | АиФ. Спецвыпуск. Дача №8 [2012] [PDF]
+Журнал | Дачный спец №12 (декабрь 2017) [PDF]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261804.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Редкий сад обходится без однолетних растений. Даже неопытному садоводу они помогают почувствовать себя уверенно, проявить талант дизайнера, порадовать себя и близких цветочным изобилием. Летники украшают балконы и террасы, увивают беседки, бушуют на клумбах, благоухают в саду. Они кружат нас, точно в пестром хороводе.
-Этот номер полностью посвящен однолетникам. Северное лето коротко. Мы спешим насладиться им, увидеть в саду как можно больше ярких красок. Какие летники для этого посадить, откуда они родом, как за ними правильно ухаживать - ответы ведущих специалистов на наших страницах.2012Формат: PDF
+Журнал для тех, кто стремится вести свое хозяйство грамотно, с умом. В каждом выпуске вы сможете найти для себя полезную информацию от известных ученых, агрономов-практиков, садоводов-опытников.Жанр: Садоводство, растениеводство, огородничестваФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8FD8A2CAB454D1B15C38440797C8DFA6712BE876
+magnet:?xt=urn:btih:46A91F4455D93BE79FE8B4CD576ED7D28B34EF80
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -270,25 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 504169   (260187) от 01.06.2012
+###  Публикация: 1193802   (261803) от 23.12.2017
 
-[Wallpapers] Abstract HD Wallpapers (31.05.12)
+VA - Euro Disco - The Lost Legends Vol. 2 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261803.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Bam Boo - Foreign East Love (5:42)
+02. Claudia Benn - Mister Hasta La Vista (6:14)
+03. Alberto D'Arco - Dai Dai Dai (Dolce Vita) (6:21)
+04. Nadia Dorine - Help Is On It's Way (5:53)(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:16:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2C5FC85FAA5664E994F4B9B6712BDAD2C325787
+magnet:?xt=urn:btih:B490F9AF53D014881030C8521433567474F8B585
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -296,34 +137,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 504259   (260179) от 01.06.2012
+###  Публикация: 1193903   (261802) от 23.12.2017
 
-Алекс - В Небо (2012) [MP3|320 кб/с]<Heavy Metal>
+Расширенное заседание коллегии Министерства обороны России (22.12.2017) WEB-DL [H.264/720p-LQ]
 
->>Архив торрентов
->>Архив Музыки
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261802.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Буч
-2. В Небо
-3. Детство
-4. Государство
-5. Безымянные Могилы
-6. Последняя Осень
-7. Нарекаю Тебя Рок
-8. Дорожная Валькирия
-9. Королева Минета
-10. Крутые Бобры(   Читать дальше...   )2012Жанр: Heavy MetalПродолжительность: 00:50:07
+Владимир Путин посетил Военную академию Ракетных войск стратегического назначения имени Петра Великого (ВА РВСН), где принял участие в ежегодном расширенном заседании коллегии Министерства обороны Российской Федерации.Производство: Президент.РФЖанр: ПолитикаПродолжительность: 01:03:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A19B190E6A65E989384677BC47F1169FD1C5B23B
+magnet:?xt=urn:btih:7F29C7834034E29D4467701DD4CC997608E5AD83
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -331,199 +163,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 504203   (260178) от 01.06.2012
+###  Публикация: 1194093   (261801) от 23.12.2017
 
-[Wallpapers 16+] Wallpapers Sexy Girls Pack (01.06.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 3888x2592
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5742B7DF87EE1AA179C575C810F20C0D4CBF259A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504206   (260176) от 01.06.2012
-
-[Wallpapers 16+] Girls Wallpapers (01.06.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 3872х2581
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06348D1DCF77A4663047AAFA6DF6DDDA159B88E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504174   (260175) от 01.06.2012
-
-[Wallpapers 16+] Wallpapers Sexy Girls Pack (31.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5945120AEEB230FEA269A4EAFEC8726EECDBBBC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504168   (260174) от 01.06.2012
-
-[Wallpapers] Best HD Wallpapers Pack (31.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA9AB7DE1F43BBC6FBAABCE4F088DD912A2738C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504202   (260172) от 01.06.2012
-
-[Wallpapers 16+] Sexy Girls Pack Wallpapers (01.06.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A3335BED7D7C908E31F7BD97F44C5215836A39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504235   (260166) от 01.06.2012
-
-VA - Клубные Новинки Vol.85 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deadmau5 feat. Chris James - The Veldt (8 Minute Edit)
-02. Liquid Soul - Devotion (Protoculture remix)
-03. Colombo - Folding (Original Mix)
-04. Cromby - Feed Those Hoes (Original Mix)
-05. Chris Schweizer - When Love Is Not Enough (Original Mix)
-06. Tommy Vee & Miss Patty - Press Play (Federico Scavo Remix)
-07. ATB - Apollo Road (ATB with Dash Berlin)
-08. Allure feat. Emma Hewitt - Stay Forever (Nitrous Oxide Remix)
-09. Orjan Nilsen feat. Kate Louise Smith - The Thunder (Album Mix)
-10. Solarstone feat. Clare Stagg - Jewel (Original Mix)2012Жанр: Club, DanceПродолжительность: 05:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19B98A0D22A2105098B74B872C92DDC964A95604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504231   (260165) от 01.06.2012
-
-VA - Зарубежные Новинки Vol.53 from AGR (2012) [MP3|320 кб/с]<Pop>
+VA - The Official UK Top 40 Singles Chart 22.12.2017 [MP3|192-320 Kbps] <Alternative, Synthpop, Other>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261801.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. B.o.B feat. Morgan Freeman - Bombs Away
-02. Jennifer Lopez feat. Flo Rida - Goin' In
-03. Far East Movement feat. Bill Kaulitz - If I Die Tomorrow
-04. Ellise - Follow My Dreams (Dance Version)
-05. 3OH!3 - Do Or Die
-06. Karmin - Brokenhearted (Mixin' Marc & Tony Svejda Radio Edit)
-07. Andrea feat. Gabriel Davi - Only You (Radio Edit)
-08. Adam Lambert - Chokehold
-09. Coldplay feat. Rihanna - Princess Of China (Invisible Man Remix)
-10. Daniele ft. David Ferrari & Yazz - Tunnel Of Time.2012Жанр: PopПродолжительность: 02:51:49
+01. Ed Sheeran - Perfect 4:23
+02. Eminem - River (Feat. Ed Sheeran) 3:41
+03. Wham! - Last Christmas 6:49
+04. Mariah Carey - All I Want For Christmas Is You 3:58(   Читать дальше...   )Жанр: Alternative, Synthpop, OtherПродолжительность: 02:27:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B64AF37504BD9A97BC6B3C83024C521282675F98
+magnet:?xt=urn:btih:7BD29143272D3BD971146608C9C48C7BA725DD8D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -531,25 +192,141 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 504198   (260164) от 01.06.2012
+###  Публикация: 1193887   (261800) от 23.12.2017
 
-[Wallpapers] Interior Wallpapers (01.06.12)
+Marla Singer - Center Of Subconscious (2017) Nachtstrom Schallplatten [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Complex Chemistry (06:15)
+ 02. Morning Rain (06:18)
+ 03. Lost In The Jungle (07:03)
+ 04. Low Center Of Gravity (06:56)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7117753AFC579D5D39A3150890FA000F21FB5C5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193865   (261799) от 23.12.2017
+
+VA - Euro Disco: The Lost Legends Vol.7 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Elvin  -  Luggi, Luggi, Ludwig  5:26
+02.  First Cut  -  Tell Me Tell Me  7:14
+03.  Thai Break  -  Flowers In The Rain  5:38
+04.  Kenny Masters  -  Time To Fly (Sing My Song)  6:02(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0E59EF46014199B3F35BA633370448FB027BC66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193923   (261798) от 23.12.2017
+
+Журнал | Загадки истории №51 (2017) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8034EEAABE0E4333ECA3F952311AEED78950E786
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193894   (261797) от 23.12.2017
+
+Faydee - Patterns (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. More (3:16)
+ 02. Friendzone (feat. Demarco) (3:15)
+ 03. Patterns (3:29)
+ 04. When I'm Gone (3:13)(   Читать дальше...   )Жанр: Pop, HouseПродолжительность: 00:16:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33E5C4B145A30DD995E3D0574AFEDC9227669A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193904   (261796) от 23.12.2017
+
+Плавание. Чемпионат Европы на короткой воде 2017. Копенгаген (Дания). 5-й День Финалы (2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261796.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+17 декабря 2017 года
+Чемпионат Европы по плаванию на короткой воде 2017 года.
+Копенгаген (Дания). Финалы
+5-й День(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:30:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8BB249E9F6AD1170B812DDD2B13DF2C9AF1CB3D
+magnet:?xt=urn:btih:FDAFDCB268171A1901CCA9513C1149FE1DD48350
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -557,34 +334,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 502831   (260162) от 01.06.2012
+###  Публикация: 1193690   (261795) от 23.12.2017
 
-Sennen - Lost Harmony (2012) [MP3|~281 кб/с (V0)]<Indie Rock>
+VA - Italo Disco: The Lost Legends Vol.10 (2017) [MP3|320 Kbps] <Italo-Disco>
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261795.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Colder
- 02. Learn To Love The Dark
- 03. Wasted Heart
- 04. Vultures
- 05. Not Coming Back
- 06. No Love Song
- 07. I Got Nothing
- 08. Standing Still
- 09. St Jude
- 10. Our Lost History(   Читать дальше...   )2012Жанр: Indie RockПродолжительность: 00:38:21
+01.  Tony Moore D.J.  -  Tonight  7:06
+02.  Paciscopi  -  Love's Harmony  6:40
+03.  David Gray  -  I Wanna Fly (Only For DJ)  5:33
+04.  F & M  -  Te Gusta  5:26(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E081DF319FDFA31C7C926CF1B7A30DCAEA2857B
+magnet:?xt=urn:btih:AD3A03AEA876B14764B099DF42AD1B9A01155CAC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -592,25 +363,167 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 504173   (260158) от 01.06.2012
+###  Публикация: 1193987   (261794) от 23.12.2017
 
-[Wallpapers 16+] Sexy Girls Pack Wallpapers (31.05.12)
+VA - Club Night Vol.4 (2017) [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Kings - Don't Call (Original Mix)
+02. Andy S - Getcha (Original Mix)
+03. Starley - Been Meaning To Tell You (Leeyou & Danceey Club Mix)
+04. DJ Valdi Ft. Elena - Hot Bhangra (Original Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD6DE6E06925EC303943526DE2892BCF105AF5A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194058   (261793) от 23.12.2017
+
+Эллен Датлоу | Легенды о призраках (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мрачные и захватывающие, эти двадцать рассказов о привидениях заставят вас дрожать от ужаса! Все истории о призраках написаны в традиционном стиле, но при этом каждый рассказ является уникальным переложением страшных городских легенд со всего мира. Лауреат множественных премий Эллен Датлоу и номинант нескольких премий, автор и редактор Ник Маматас соединили в одну (   Читать дальше...   )Жанр: МистикаПродолжительность: 10:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C2FB355847CF962AF6A937DD031D8232D3AC1C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193979   (261792) от 23.12.2017
+
+VA - Disco Italo: Emotional Party (2017) [MP3|192-320 Kbps] <Italo Disco, Remix>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261792.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Angelico - Forever Love (Bcr Extended New Generation Mix)
+002. Mflex feat. Fresh - Йn is imбdlak
+003. Nick Festari - Web kiss the radio (Extended Mix)
+004. Stylove Feat. Naoky - Tango In The Night (Original Mix)(   Читать дальше...   )Жанр: Italo Disco, RemixПродолжительность: 14:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA5736BCE489D7F47E0DBD04ECF956528D3ECF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193872   (261791) от 23.12.2017
+
+VA - Euro Disco: The Lost Legends Vol.8 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Phantom Of The Blue  -  Silent Killer  6:08
+02.  The Back Bag  -  Dial My Number  5:35
+03.  Good News  -  You Turn Me On (Girl You Drive Me Crazy)  7:31
+04.  Scala  -  The Perfume Of Love  6:57(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:19:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BCBFDD3ABB55168446A20BF54EC33573EFB449F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194127   (261790) от 23.12.2017
+
+VA - Record Super Chart #517 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alan Walker  -  The Spectre  3:14
+02.  Joe Stone  -  Let's Go Together  4:12
+03.  EKTONIX  -  Vuono Matyn  2:30
+04.  Twoloud vs. DJ Kuba & Ne!tan  -  Mirror On The Wall  2:30(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:521E4BC259EA93B3C704CAE3C83875895C75AD8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193963   (261789) от 23.12.2017
+
+Открытый микрофон (2017.12.22) WEB-DLRip (сезон 2, выпуск 19 - Финал)
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261789.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
+18 августа на ТНТ начнется 2-ой сезон оригинального юмористического шоу талантов – «Открытый микрофон». Участниками проекта станут молодые (и не очень), никому неизвестные стендап-комики, которые будут бороться за возможность попасть в основной состав одного из самых популярных комедийных шоу в России – Stand Up на ТНТ. Несмотря на то, что многие участники «Открытого (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:11:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46AE974E79E9854EBD34B48511CABA75CA25202F
+magnet:?xt=urn:btih:CB8D730D10161F5801020D09878FACF20134B40C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -618,78 +531,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 503835   (260156) от 31.05.2012
+###  Публикация: 1193884   (261788) от 23.12.2017
 
-Патрик Макнейл | Веб-дизайн. Идеи. Секреты. Советы [2012] [PDF]
-
->>След.
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет - динамично развивающаяся среда, работая в которой дизайнеры должны следить за новейшими тенденциями. Патрик Макнейл, создатель популярного блога для веб-дизайнеров designmeltdown.com, собрал и упорядочил тысячи примеров сайтов, самые лучшие из которых попали в данную книгу.
-В издании объясняются базовые принципы веб-дизайна, подробно рассматриваются типы сайтов, элементы дизайна, стили и темы, структурные стили и структурные элементы сайтов. Книга включает более 650 примеров веб-сайтов, упорядоченных тематически, благодаря чему вы сможете легко отыскать креативные образцы для использования в своей работе.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9A17E60D6D33C49DB9753B81EE6C1D3AF9732AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503909   (260152) от 31.05.2012
-
-Железное небо / Iron Sky (2012) [1080p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа ученых под руководством офицера СС Ханса Каммлера добилась серьезных успехов по части антигравитации. Когда исход Второй Мировой войны стал очевиден, с антарктической базы гитлеровцы запустили несколько космических кораблей, чтобы их экипаж на темной стороне Луны основал секретную военную базу Schwarze Sonne (Черное Солнце). План Германии состоял в возведении мощной армады для решающего удара по Земле с последующим завоеванием планеты. И в 2018 году Четвертый Рейх перешел в наступление.Жанр: Фантастика, Боевик, КомедияРежиссер: Тимо ВуоренсолаАктеры: Юлия Дитце, Удо Кир, Пета Сержант, Ким Джексон, Гёц Отто, Стефани Пол, Кристофер Кирби, Моника Госсманн, Джим Нобелок, Юки ИвамотоПеревод: Одноголосый закадровый, любительскийПродолжительность: 01:32:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503915   (260150) от 31.05.2012
-
-Железное небо / Iron Sky (2012) [1080p] BDRemux
+Critical Event - Fifth Move (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261788.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Группа ученых под руководством офицера СС Ханса Каммлера добилась серьезных успехов по части антигравитации. Когда исход Второй Мировой войны стал очевиден, с антарктической базы гитлеровцы запустили несколько космических кораблей, чтобы их экипаж на темной стороне Луны основал секретную военную базу Schwarze Sonne (Черное Солнце). План Германии состоял в возведении мощной армады для решающего удара по Земле с последующим завоеванием планеты. И в 2018 году Четвертый Рейх перешел в наступление.Жанр: Фантастика, Боевик, КомедияРежиссер: Тимо ВуоренсолаАктеры: Юлия Дитце, Удо Кир, Пета Сержант, Ким Джексон, Гёц Отто, Стефани Пол, Кристофер Кирби, Моника Госсманн, Джим Нобелок, Юки ИвамотоПеревод: Одноголосый закадровый, любительскийПродолжительность: 01:32:33
+01. Critical Event - 5th Move (05:02)
+ 02. Incident & Critical Event - Nostalgia (05:47)
+ 03. Critical Event & Conrad Subs - Silhouettes (05:01)Жанр: Drum & BassПродолжительность: 00:15:50
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:45615D1C976157EB43B6846E0D97C01ED0462199
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -697,33 +559,164 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 503800   (260148) от 31.05.2012
+###  Публикация: 1193893   (261787) от 23.12.2017
 
-No-Man - 18 albums (1993-2012) [FLAC/APE|Lossless] <Progressive Rock, Ambient, Art Rock, Abstract, Experimental>
+VA - Euro Disco: The Lost Legends Vol.10 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kerim Khan  -  Seaside Rendezvous  5:54
+02.  Avenue  -  Voices Of Animals  6:09
+03.  Rio  -  Beside You  5:43
+04.  Anouschka Renzi  -  Robot Love  6:49(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:19:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EF0A09168543DD34FD9E325EAE7D70F967288F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194045   (261786) от 23.12.2017
+
+Jon Richards - The Sacred Tree (2012) [FLAC|Lossless|image + .cue] <New Age>
 
 >>Other Styles
->>Other (Lossless)
+>>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261786.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. My Revange on Seattle (06:02)
-02. Time Travel in Texas (04:50)
-03. All the Blue Changes (06:10)
-04. Pretty Genius (03:58)
-05. Lighthouse (08:15)
-06. Beaten by Love (03:57)
-07. Wherever There Is Light (05:08)
-08. Mixtaped (09:27)
-09. Things Change (08:24)Жанр: Progressive Rock, Ambient, Art Rock, Abstract, ExperimentalПродолжительность: 00:56:14
+01. Song of the Seasons
+02. The Triple Goddess
+03. Lady of the Forest
+04. The Sacred Tree(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:22
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:0279908A35900E11DEAFA800A62447A75E7065BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193851   (261785) от 23.12.2017
+
+VA - Alternative Range: New Age Relaxing Groove (2017) [MP3|256-320 Kbps] <New Age, Relaxing Instrumental, Ambient>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261785.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Molly Valentine - Luchia
+002. Jill Garcia - Heaven Is Real
+003. Gabriel V4C - Erminig
+004. Mars Lasar - Beyond Utopia(   Читать дальше...   )Жанр: New Age, Relaxing Instrumental, AmbientПродолжительность: 09:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A48CA131380F42FDA6A3CBB94905C5B4BECEC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193959   (261784) от 23.12.2017
+
+Comedy Woman (2017.12.22) WEB-DLRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Развлекательное шоу, в котором пресловутая женская логика оказывается как нельзя кстати. Девушки с выдающимся юмором и не менее выдающимися формами не позволят заскучать самому закоренелому снобу и накажут смехом даже законченного шовиниста. Сomedy Woman - место, в котором приятно побывать и не стыдно об этом вспомнить! Особенно зажигательные танцы, очень смешные (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-Шоу, юморАктеры: Наталья Еприкян, Екатерина Скулкина, Екатерина Варнава, Мария Кравченко, Полина Сибагатуллина, Татьяна Морозова, Надежда Сысоева, Надежда Ангарская, Марина Федункив.Субтитры: ОтсутствуютПродолжительность: ~ 00:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EDF97DAB302EF68CB46E0AA71613CC4FFA24213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194026   (261783) от 23.12.2017
+
+Студия Союз (2017.12.21) HDTV [H.264/1080p-LQ] (выпуск 20)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Участники шоу «Студия СОЮЗ» будут меряться музыкальностью, чтобы сделать зрителю очень смешно. По задумке сценаристов, на шоу работают постоянные ведущие, а также регулярно приглашаются другие звезды ТНТ. Их задача: обсудить и максимально удачно высмеять популярную в данный момент песню. На обсуждение выносится все до мелочей: текст, музыка, манера исполнения и другие (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: ТВ-шоу, юмор, импровизацияСубтитры: ОтсутствуютПродолжительность: ~ 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A85E3EFCB12E215AB393A831A44E26DB55BA8C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193961   (261782) от 23.12.2017
+
+Камеди Клаб в Барвихе / Комеди Клаб / Comedy Club (2017.12.22) WEB-DLRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261782.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Гарик Мартиросян, Вадим Галыгин, Павел Воля, Тимур Батрутдинов, Александр Ревва, Гавр, Олег Верещагин, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Алексей Лихницкий, Роман Юнусов, Антон Лирник, Андрей Молочный, Александр Незлобин, Дмитрий Хрусталёв, Васильев Виктор, Сергей Бессмертный, Игорь Меерсон, Семён Слепаков, Михаил Галустян и др.Субтитры: ОтсутствуютПродолжительность: ~ 00:24:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:345B51575640F07382EF7CAE03A4C04F729CC77B
 ```
 
 https://mybot314.ru/tekegram_catalog/

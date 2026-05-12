@@ -1,3 +1,32 @@
+###  Публикация: 1280027   (474782) от 03.09.2020
+
+Forrest Fang | Sans Serif - Discography 18 Releases (1982-2020) Ominous Thud, Projekt [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Tribal, Minimal, Experimental, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Henon's Aurora (13:20)
+ 02. Chant Of Urm (08:52)
+ 03. Lost Oracle (12:09)
+ 04. A Silver Season (12:29)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient, Tribal, Minimal, Experimental, Drone •Продолжительность: 21:39:43 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:000D6AE5B119C126031155CC348F425A0517D862
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245213   (474101) от 05.09.2018
 
 Steve Hauschildt - Dissolvi (2018) Ghostly International [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno Ambient>
@@ -706,32 +735,6 @@ Frore - Discography 12 Releases (2009-2018) Relaxed Machinery, Spotted Peccary, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A86CCDE50E5878EC87EDDD336BD9C5B027B8CF0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753281   (415380) от 30.09.2020
-
-Tom Day - Discography 38 releases (2011-2020) [FLAC|Lossless|WEB-DL]<Ambient, Modern Classical, Downtempo, House, Broken Beat>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Southerly (04:45)Жанр: Ambient, Modern Classical, Downtempo, House, Broken Beat •Продолжительность: 10:13:21 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8976C4D106D4F0A935C8D7500D93F72F962F941
 ```
 
 https://mybot314.ru/tekegram_catalog/

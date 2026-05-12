@@ -1,25 +1,25 @@
-###  Публикация: 1144778   (625247) от 23.06.2017
+###  Публикация: 909868   (626121) от 18.06.2015
 
-VA - Ferry Corsten presents Corsten’s Countdown June (2017) [MP3|320 Kbps] <Trance>
+Silence Lies Fear - Future-The Return (2015) [MP3|128 кб/с]<Modern Melodic Death Metal>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Re-Locate vs. Robert Nickson & Afternova - Leaving Earth (Extended Club Mix)  7:02
-02.  Fisherman & Hawkins - Virus (Solid Stone Extended Remix)  6:48
-03.  pureNRG - Cala Blanca  7:53
-04.  Stoneface & Terminal - North Cape (Original Mix)  4:12(   Читать дальше...   )Жанр: TranceПродолжительность: 01:02:03
+1. Beyond Reality
+2. The Return
+3. Facing The Creator
+4. Prophet(   Читать дальше...   )Жанр: Modern Melodic Death MetalПродолжительность: 00:49:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12EB52D2DB8E8736C415CC051D7275179F0F7D93
+magnet:?xt=urn:btih:66B0DBA903D5B90BDF3F32EB4E77A885D907FF7E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,51 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 520890   (625246) от 12.07.2012
+###  Публикация: 909647   (626120) от 18.06.2015
 
-[Wallpapers 16+] Gilrs Wallpaper (09.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1680х1050 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D121788F3DCD21C749A7A93F855FCE5D69B9795
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144838   (625245) от 23.06.2017
-
-SamDrivers 17.6 LAN [Multi/Ru]
+Windows Firewall Control 4.5.0.2 [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Версия SamDrivers только с драйверами для сетевого оборудования (сетевых LAN и беспроводных Wi-Fi/WLAN устройств). В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специальные программы: DriverPack Solution 16.17.6 / DriverPack Solution 17.7.56 / Drivers Installer Assistant 8.02.20 (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Windows Firewall Control - утилита, с помощью которой, вы получите доступ к наиболее часто используемым опциям встроенного брандмауэра операционных систем Windows. После инсталляции программа располагается в системном трее и дает возможность эффективно управлять различными параметрами при помощи контекстного меню, например можно быстро разрешить/запретить другим (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC58D44951791440C75A7639EFEE81583CF2CE60
+magnet:?xt=urn:btih:15050050351C1902E7E63E64EC48A61159B47D3A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144785   (625243) от 23.06.2017
+###  Публикация: 909631   (626119) от 18.06.2015
 
-Конг: Остров черепа / Kong: Skull Island (2017) HDRip [H.264]
+Al Di Meola - Elysium (2015) [MP3|320 кб/с]<Jazz Fusion>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Jazz, Blues, Soul
+>>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626119.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На неизвестный остров в Тихом океане попадает команда ученых, военных и искателей приключений. Они вторгаются во владения могучего Конга и тем самым развязывают сражение между человеком и природой. Очень скоро исследовательская миссия превращается в игру на выживание, ее участники вынуждены буквально прорубать себе путь к спасению.Производство: СШАЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Джордан Вот-РобертсАктеры: Том Хиддлстон, Сэмюэл Л. Джексон, Джон Гудмен, Бри Ларсон, Тянь Цзин, Тоби Кеббелл, Джон Ортис, Кори Хоукинс, Джейсон Митчелл, Ши УигхэмПеревод: Дублированный (лицензия)Субтитры: Русские, английские, украинскиеПродолжительность: 01:58:23
+1. Adour
+2. Cascade
+3. Babylon
+4. Purple and Gold(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:05:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1418F9B984EC31D3FA2F72B34476DC77FDAFAEF
+magnet:?xt=urn:btih:053891927E9B99FB0D6E8B6B41F733F9CCCA683C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,32 +82,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 521665   (625242) от 12.07.2012
+###  Публикация: 909646   (626118) от 18.06.2015
 
-Chaosweaver - Enter the Realm of the Doppelganger (2012) [MP3|224 кб/с]<Industrial / Symphonic black metal>
+Карл Вадасфи | Пропавшая без следа (2015) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это случилось в день, когда Джон собирался сделать предложение любимой женщине. Остановив машину, он отлучился на пять минут, а когда вернулся, Дженни бесследно исчезла. С этого момента его жизнь превратилась в сплошной кошмар. Джон нигде не мог отыскать следов Дженни. Номер ее телефона перестал существовать, в доме, где она жила, в офисе, где работала, все отвечали, (   Читать дальше...   )Жанр: Современные детективы, Полицейские детективы, Зарубежные детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A81F6252CEB2D7A612280607B2454A4AF4EE1FDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294699   (626117) от 09.04.2019
+
+A.G. (AG of DITC)  - The Taste of AMbrosia (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Underground Hip-Hop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626117.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. A Red Dawn Rises
-2. Wings of Chaos
-3. Maelstorm of Black Light
-4. The Great Cosmic Serpent
-5. Infected 6. A Requiem for a Lost Universe
-7. Crystal Blue
-8. Repulsion
-9. Ragnarok SunsetЖанр: Industrial / Symphonic black metalПродолжительность: 00:48:51
+01. Night Of Fire ft. President Ella (3:19)
+02. Everything Is Backward (3:20)
+03. Magical World (3:25)
+04. What You Talkin' Bout ft. Diamond D (3:13)(   Читать дальше...   )Производство: MEGATRON BRONXЖанр: Hip-Hop, Underground Hip-HopПродолжительность: 00:51:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3375EFBC7E20884F7772F6D0DD285A6619948686
+magnet:?xt=urn:btih:F8006F3FA2A4D9558807579203099FE8DE317DF5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -138,25 +137,170 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144656   (625241) от 23.06.2017
+###  Публикация: 1294623   (626116) от 09.04.2019
 
-Adobe Muse CC 2017.0.3 Multilingual
+VA - German Top 50 Party Schlager Charts 08.04.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrea Berg - Mosaik
+02. Kerstin Ott - Regenbogenfarben
+03. Maite Kelly - Heute Nacht für immer
+04. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:00:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E457BB8EF5F53C54ED8735D3F8454B0B86675A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294843   (626115) от 09.04.2019
+
+Christopher Cross - Doctor Faith (2011) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey kid 3:34
+02. I'm too old for this 4:17
+03. When you come home 4:28
+04. Dreamers 4:03(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:410FA9AA8298946BBE6C0D7AB57D0887EEB7872F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294710   (626114) от 09.04.2019
+
+Quelle Chris - Guns (2019) [FLAC|Lossless|tracks + .cue] <Hip Hop, Conscious>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spray and Pray (01:38)
+02. Guns (03:12)
+03. Color of the Day (00:25)
+04. Mind Ya Bidness (03:35)(   Читать дальше...   )Жанр: Hip Hop, ConsciousПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:569DA32239E21C9A4FD59C94BE796BFB753363B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294871   (626113) от 09.04.2019
+
+Sworn Enemy - Gamechanger (2019) [MP3|320 kbps] <Hardcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:18)
+02. Prepare for Payback (03:07)
+03. Seeds of Hate (03:48)
+04. Coming Undone (03:37)(   Читать дальше...   )Жанр: Hardcore, MetalcoreПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:915A7C6A4FCB06AEFF7CF6CA15547635A39459DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294857   (626112) от 09.04.2019
+
+Владимир Панченко - Побудь со мной (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А ты его ждёшь 3:48
+02. Ты плачешь по ночам 3:43
+03. Запиши мой номер (DJ Alfred Newman Remix) 4:11
+04. Незнакомка 3:32(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA5285BC7BD46F8AEF644242BDA250E94B517FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294862   (626111) от 09.04.2019
+
+Photo Supreme 4.3.3.2054 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626111.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adobe Muse CC 2017 – визуальный конструктор сайтов, функционирующий по принципу "отображение внесённых изменений в реальном времени". Таким образом, разработчику не требуется открывать HTML-код сайта - панель редактирования позволяет работать с веб-страницей, как с изображением. Очевидно, что такой подход ориентирован на создание среды разработки, доступной (   Читать дальше...   )Язык интерфейса: Английский / Голландский / Датский / Испанский / Итальянский / Китайский (традиционный) / Китайский (упрощенный) / Корейский / Немецкий / Норвежский / Польский / Португальский / Русский / Турецкий /  Финский / Французский / Чешский / Шведский / Японский
+Photo Supreme - вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF48964CDE2AF39D788A1449E74BC0EDEC9821FD
+magnet:?xt=urn:btih:A69FC084803C2BF7BCE37A1E0F77AA03EE026A2A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -164,25 +308,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144619   (625239) от 23.06.2017
+###  Публикация: 1294809   (626110) от 09.04.2019
 
-Говорящие с ветром / Windtalkers (2002) BDRemux [Theatrical Cut] [H.264/1080p]
+Captain & Tennille - Song Of Joy (1976) CD, Album, Remastered, 2005, Universal Music Special Markets [MP3|320 Kbps] <Pop, Soft Rock, Blues Rock>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626110.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вторая мировая война. Америка ведет ожесточенные бои с японцами в Тихом океане. В течении этой войны японцы искусно расшифровывают секретные американские радиограммы. Это обстоятельство заставило американское правительство завербовать несколько сотен индейцев Навахо, чтобы использовать их родной язык в качестве кода для секретных сообщений. Морскому пехотинцу Джо (   Читать дальше...   )Производство: США, Metro-Goldwyn-Mayer (MGM)Жанр: Боевик, военный, историяРежиссер: Джон ВуАктеры: Николас Кейдж, Адам Бич, Петер Стормаре, Ноа Эммерик, Марк Руффало, Брайан Ван Холт, Мартин Хендерсон, Роджер Уилли, Фрэнсис О’Коннор, Кристиан СлэйтерПеревод: Дублированный, Многоголосый, АвторскийСубтитры: Русские, АнглийскиеПродолжительность: 02:14:19
+01. Song Of Joy
+02. Lonely Night (Angel Face)
+03. Mind Your Love
+04. Smile For Me One More Time(   Читать дальше...   )Жанр: Pop, Soft Rock, Blues RockПродолжительность: 00:37:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D9A7F8C101D48087FB744019884D8D2CBFA53F60
+magnet:?xt=urn:btih:8D7A0832FBFA5F9ED9942D38F711F4B95451422A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -190,25 +337,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 521912   (625238) от 12.07.2012
+###  Публикация: 1294836   (626109) от 09.04.2019
 
-Газета | Сезон у дачи №12 (109) (2012) [DJVU]
+Газета | Моя грядка изобилия №4 (77) (апрель 2019) [PDF]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626109.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Формат: DJVU
+Газета профессиональных советов от севера до юга предназначена широкому кругу читателей.Жанр: садоводство, огородничествоФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:032412D832E02E07F541C2532F7DA6DD7C696FD9
+magnet:?xt=urn:btih:831CCDA362CA6BBF50F77F5C9FFBA1F9D0676741
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -216,67 +363,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 521535   (625237) от 12.07.2012
+###  Публикация: 1294821   (626108) от 09.04.2019
 
-Vintersorg - Orkan (2012) [FLAC|Lossless]<Progressive Metal/Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_625237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Istid (5:52)
-02. Ur Stjarnstoft Ar Vi Komna (7:08)
-03. Polarnatten (7:25)
-04. Myren (5:04)
-05. Orkan (5:14)
-06. Havets Nad (6:39)
-07. Norrskenssyner (6:08)
-08. Urvadersfangen (7:03)Жанр: Progressive Metal/Viking MetalПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521656   (625234) от 12.07.2012
-
-Amadou & Mariam - Folila (2012) [MP3|320 кб/с]<African Blues,World>
+Zoner Photo Studio X 19.1904.2.141 RePack by KpoJIuK [Ru/En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_625234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626108.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 – Dougou Badia
-02 – Wily Kataso
-03 – Oh Amadou
-04 – Metemya
-05 – Africa mon Afrique
-06 – C’est pas facile pour les aigles
-07 – Wari
-08 – Sans toi
-09 – Mogo
-10 – Another Way(   Читать дальше...   )Жанр: African Blues,WorldПродолжительность: 00:46:47
+Zoner Photo Studio - приложение, созданное для качественной обработки цифровых снимков. Одной из функций программы является извлечение из снимков информации о местонахождении фотографа во время совершения съемки и соотношение этих данных с картографическими программами. PhotoStudio работает с самыми различными моделями цифровых камер и содержит средства для редактирования (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:975A1CA5182E87B9E1941C685BE9A10C617B6E25
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -284,34 +389,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 522080   (625233) от 12.07.2012
+###  Публикация: 1294879   (626107) от 09.04.2019
 
-Billy Taylor - It's A Matter Of Pride (1994) [FLAC|Lossless]<Bop>
+Beatfarmer - Speaking with the Wind (2019) [FLAC|Lossless|WEB-DL|tracks] <Psydub, Glitch Hop, Tribal>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_625233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626107.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. At La Caroussel (5:56)
-02. Picture This (4:51)
-03. It's A Matter Of Pride (5:13)
-04. His Name Was Martin (6:07)
-05. Titoro (5:04)
-06. Back Home (8:45)
-07. Lookin' Up (6:06)
-08. Paraphrase (7:30)
-09. I'm A Lover (4:48)
-10. If You Really Are Concerned (5:54)(   Читать дальше...   )Жанр: BopПродолжительность: 01:04:11
+1. Imagine [06:00]
+2. Bubble and Squeak [05:29]
+3. Speaking with the Wind [04:35]
+4. Jedi Shake [05:03](   Читать дальше...   )Жанр: Psydub, Glitch Hop, TribalПродолжительность: 00:29:00
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:A8279A70747D0E836EFAE3F998635C0836E7C620
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -319,34 +418,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 521376   (625232) от 12.07.2012
+###  Публикация: 1294777   (626106) от 09.04.2019
 
-VA - The Dance Cube XLIX 4CD (2012) [MP3|320 кб/с]<Trance>
+Band Of Light - Total Union (1973) CD, Reissue, Remastered, 2006, Aztec Music [MP3|320 Kbps] <Classic Rock, Blues Rock, Hard Rock>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626106.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD 1. Время звучания: 01:14:10
-01 - Kaimo Kerge - Iremember (Original Mix)
-02 - Oliver V. - She Love the Rainfall (Original Mix)
-03 - Stephen Kirkwood - Forever After Original Mix
-04 - Tangle & Mateusz - Avalon (Original Mix)
-05 - MaRLo - Underneath (Original Mix)
-06 - Miroslav Vrlik - Outside (Purple Stories Remix)
-07 - Tellur & Sound Quelle - Our Pad (Original Mix)
-08 - Cold Blue - The Pessimist (Original Mix)
-09 - Lange & Gareth Emery - This Is All Out..Heatbeat vs Andy Moor Remix..Lange Mashup(   Читать дальше...   )Жанр: TranceПродолжительность: 04:48:09
+01. My First Home
+02. Free Them from Hunger
+03. Spaces of Time
+04. If(   Читать дальше...   )Жанр: Classic Rock, Blues Rock, Hard RockПродолжительность: 01:01:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:496E7BE20FC4D733F75C0A1E4AD6431A8D863E95
+magnet:?xt=urn:btih:5991178B3B8492F363102ED29EC1C56C9C5222E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -354,25 +447,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 522114   (625231) от 12.07.2012
+###  Публикация: 1294891   (626105) от 09.04.2019
 
-Преподобный Иустин (Попович) | Православная Церковь и экуменизм [2006] [DOC]
+Газета | Великие открытия №3 (2019) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626105.jpg" />
+</div>
+
+
+###  Подробнее
+
+При просмотре различных роликов на тему «дорожных войн» порой поражаешься, насколько неистово некоторые люди реагируют на незначительные ДТП, а порой и просто на непонравившихся им чем-то автолюбителей. А ведь перед получением водительских прав все проходят медкомиссию, в том числе и у психиатра. Или мы уже настолько все психически больны, что такое поведение стало (   Читать дальше...   )Жанр: популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE823F1FB20D6AF54809FFE1AAE78B11AD72067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294835   (626104) от 09.04.2019
+
+Герр Антон - Одинокий мужчина и другая честная попса (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Одинокий мужчина (3:30)
+02. А он её (3:15)
+03. Так тому и быть (3:33)
+04. Пухленькие девушки (3:37)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA91040D58F83CA6EE11308AA9E8E689E5EA4DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294854   (626103) от 09.04.2019
+
+Журнал | История от "Русской Семёрки". Альманах №2 (6) (2018) [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626103.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга выдающегося сербского богослова преподобного Иустина (Поповича) «Православная Церковь и экуменизм» может быть названа лучшей из того, что написано об экуменизме и против экуменизма на основе святоотеческого Предания. Преподобный Иустин, сопоставляя постулаты экуменизма с православным вероучением, приходит к очевидному и нелицеприятному выводу: экуменизм отторгает человека из ограды единой истинной Церкви, в которой всецело пребывает Богочеловек Христос, совершающий Своей благодатью и Таинствами спасение (   Читать дальше...   )Формат: DOC
+Журнал «История от «Русской Семерки»» - уникальный журнал, охватывающий все аспекты истории мировой цивилизации. Исторический журнал нового поколения, позволяющий узнать о ключевых событиях российской и мировой истории в доступной, современной и развлекательной форме. Журналисты проекта по-новому раскрывают известные исторические события, исторические фигуры, открывают (   Читать дальше...   )Жанр: популярный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CA0B4FE4B766F942F22090C21719E8AC81B1F04
+magnet:?xt=urn:btih:E12F3BF57EE48A1870E9539DBBD4DEBB17280F0F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -380,34 +528,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 521653   (625228) от 12.07.2012
+###  Публикация: 1294700   (626102) от 09.04.2019
 
-Blinddog Smokin - Start Packin' (1999) [MP3|~256 кб/с ]<Blues>
+Газета | Разносолы зимой согреют №4 (апрель 2019) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уют в любом доме создают не только хорошо убранные и со вкусом обставленные комнаты, но также и домашние заготовки, которым и посвящен этот журнал. В нем вы найдете только самые вкусные рецепты, проверенные методики, и процесс приготовления еды будет правильным и качественным.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F11454F7AB3EA6E531EE1E8E196F9C10B7D5254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294464   (626101) от 09.04.2019
+
+VA - The World of Neo Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <Soul, R&B>
 
 >>Jazz, Blues, Soul
->>Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626101.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. It's All Right
-2. The Dog Can't See
-3. Start Packin'
-4. Outfox The Foxes
-5. Eye Of A Needle
-6. Blues For Breakfast
-7. Black Magic
-8. Help Me
-9. Boob Job
-10. Mother Of Pearl(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:16
+01. Donny Hathaway - Giving Up
+02. Meshell Ndegeocello - Grace
+03. Eric Benet - Sometimes I Cry
+04. Leela James - My Joy(   Читать дальше...   )Жанр: Soul, R&BПродолжительность: 01:50:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49D29FBF28C8786F4CC51FB64540343312FE3989
+magnet:?xt=urn:btih:BC0BDD9550E58C56653BF8A3FA782C531D511185
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -415,25 +583,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 521701   (625227) от 12.07.2012
+###  Публикация: 1294804   (626100) от 09.04.2019
 
-Степан Кайманов | Практическая антимагия [2009] [FB2]
+MONOЛИЗА - Ни черта (2019) [MP3|320 Kbps] <Rock>
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626100.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Когда-то Анхельм был счастливым отцом и верным мужем, когда-то его дом был полон радости и смеха, а о его редком даре никто и не знал. Но колдуны Эленхайма забрали у него все, чем он так дорожил. Жену, дочь, свободу. И теперь его имя наводит ужас на любого из творцов волшбы, а его необычный дар стал для них истинным проклятием. Месть в его крови! Ненависть в его сердце! Смерть в его руках! И ни великая армия, ни крепкая темница, ни магическая сила не помешают ему спасти дочь из колдовского плена…Формат: FB2
+1. Сандалi
+2. Небо
+3. Ни черта
+4. Признайся (feat. Дарья Клименко)(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92B8BF7657CCA2399FD98DCCADDBA58F5692645E
+magnet:?xt=urn:btih:1A695C00D35510A08B82DA67937A3EAC8EDF67F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -441,34 +612,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 521957   (625225) от 12.07.2012
+###  Публикация: 1294877   (626099) от 09.04.2019
 
-VA - Down Home Blues Classics: Memphis & The South 1949-1954 (2007) 2CD [MP3|320 кб/с]<Blues>
+Алина Секвенция - Лучшие ремиксы (2003) [FLAC|Lossless|image + .cue] <Trance, Progressive Trance, Progressive House>
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>Electronic
+>>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626099.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Joe Hill Louis - Don't Trust Your Best Friend (2:48)
-02. Lightnin' Slim - Bugger Bugger Boy (2:04)
-03. Schoolboy Cleve - She's Gone (2:13)
-04. Jerry McCain - Stay Out Of Automobiles (2:32)
-05. J.D. Horton - Why Don't You Let Me Be (2:24)
-06. Little Sam Davis - Going Home To Mother (2:34)
-07. Big Joe Williams - She's A Jiving Woman (2:47)
-08. Lost John Hunter - Y M & V Blues (3:02)
-09. Country Jim - Phillipine Blues (2:21)
-10. Lightnin' Slim - Bad Luck (2:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 02:23:55
+01. Shannon – Give Me Tonight ‘2003 (Sequence Radio Edit) (4:28)
+02. Alina Sequence – Stars (Freedom ‘2001 Sequence Mix) (6:59)
+03. Лика Star – Я вспоминаю тебя, как снег (Sequence Remix) (3:55)
+04. Melo-Dy – Облака (Sequence Tandem Remix) (8:17)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 01:13:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:703DBFF64B7ECB060046D3D20FC4C7D1D9E1DBED
+magnet:?xt=urn:btih:78D2A9FF442718F6AF83C0704E0F0C6D34A4B1A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -476,34 +641,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 522071   (625224) от 12.07.2012
+###  Публикация: 1294827   (626098) от 09.04.2019
 
-Billy Pierce - One For Chuck (1991) [FLAC|Lossless]<Jazz>
+Аурика Ротару - Счастье - свободная птица (2006) [FLAC|Lossless|image + .cue] <Pop>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Pop
+>>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_625224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626098.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chuck's Groove (B. Pierce) (6:31)
-02. Strictly Taboo (J. King) (6:19)
-03. Second Thoughts (M. Miller) (7:35)
-04. Woodworks (W. Shaw) (6:02)
-05. All the Way (J. Van Heusen - S. Cahn) (6:58)
-06. There's a Small Hotel (R. Rodgers - L. Hart) (6:54)
-07. Wayne's World (B. Mobley) (8:03)
-08. From This Moment On (C. Porter) (6:34)
-09. Thelma's Heart (B. Pierce) (6:23)
-10. Tryst (J. King) (4:35)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:13:07
+01. Счастье - свободная птица (3:20)
+02. Двi голубки (3:25)
+03. Сентiменте (4:48)
+04. Сопiлка (3:31)(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:12
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:144C094C57712EE94E7F082D166C21B29B3323B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -511,192 +670,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 521832   (625223) от 12.07.2012
+###  Публикация: 1543936   (626097) от 13.04.2022
 
-Wise Disk Cleaner 7.55 Build 504 + Portable [Multi(Rus)]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_625223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wise Disk Cleaner - программа для быстрого и лёгкого освобождения свободного места на жёстком диске. Утилита удаляет ненужные мусорные файлы, которые не используются программами, установленными в вашей системе. Программа может определять более 50 типов мусорных файлов, и вы можете сами добавлять любые типы файлов, которые считаете мусором. После того, как программа просканирует систему на наличие мусорных файлов, можно индивидуально посмотреть каждый файл и подробную информацию о нём, после чего решить, стоит ли его удалять.
-
-Wise Disk Cleaner с его интуитивно понятным и удобным интерфейсом поможет вам легко избавиться от мусорных файлов. Существует два способа удаления файлов: если вы начинающий пользователь компьютера, то вы можете воспользоваться помощником (мастером) и использовать предустановленные настройки. Если вы пользователь с достаточными знаниями, то вы можете настроить программу более целенаправленно. Вы можете вручную выбрать папки для удаления, можете выбрать для удаления файлы с теми или иными (   Читать дальше...   )Название программы: Wise Disk CleanerЯзык интерфейса: Multi(Rus)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 219150   (625209) от 18.07.2010
-
-Conjure One - I Dream In Colour (2010) [M4A|271-283] <New Age/Meditative/Relax>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_625209.jpg" />
-</div>
-
-
-###  Подробнее
-
-[04:19] 01 - i dream in colour (radio edit) 44 kHz/283 kbps/8,74 Mb
-[03:46] 02 - i dream in colour (vegas baby rad 44 kHz/283 kbps/7,63 Mb
-[07:07] 03 - i dream in colour (vegas baby dub 44 kHz/279 kbps/14,20 Mb
-[07:57] 04 - i dream in colour (vegas baby clu 44 kHz/275 kbps/15,62 Mb
-[06:47] 05 - i dream in colour (dub chill remi 44 kHz/276 kbps/13,38 Mb
-[06:02] 06 - places that don't exist 44 kHz/272 kbps/11,76 Mb
-[06:32] 07 - i dream in colour 44 kHz/275 kbps/12,90 MbЖанр: New Age/Meditative/RelaxПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909499   (625202) от 18.06.2015
-
-Золушка / Cinderella (2015) WEB-DL [H.264/1080p-LQ] [Line]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отец молодой девушки по имени Элла, овдовев, женится во второй раз, и вскоре Элла оказывается один на один с жадными и завистливыми новыми родственницами — мачехой Леди Тремэйн и ее дочерьми — Анастасией и Дризеллой. Из хозяйки дома она превращается в служанку, вечно испачканную золой, за что и получает от своих сварливых сводных сестриц прозвище — Золушка. Несмотря (   Читать дальше...   )Производство: США, Великобритания / Allison Shearmur Productions, Beagle Pug Films, Genre FilmsЖанр: фэнтези, драма, мелодрама, семейныйРежиссер: Кеннет БранаАктеры: Лили Джеймс, Кейт Бланшетт, Ричард Мэдден, Хелена Бонем Картер, Нонсо Анози, Стеллан Скарсгард, Софи МакШера, Холлидей Грейнджер, Дерек Джекоби, Бен ЧаплинПеревод: профессиональный (полное дублирование)Субтитры: отсутствуютПродолжительность: 01:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6662511C9F8544A6AB1C0CF012C376DA302505C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909718   (625201) от 18.06.2015
-
-DxO Optics Pro 10.4.1 Build 600 Elite (x64) [Multi]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625201.jpg" />
-</div>
-
-
-###  Подробнее
-
-DxO Optics Pro - профессиональное приложение, способное улучшить и скорректировать вашу коллекцию цифровых фотографий. DxO Optics Pro содержит множество прогрессивных технологий, с помощью которых можно настроить яркость, контрастность, цветовой баланс, избавиться от искажений и повысить четкость изображений, исправить цвета и экспозицию по краям и в углах фотографии, (   Читать дальше...   )Язык интерфейса: Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D0FE28D9735FD5CE54ACF159C340123E3E9A3A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 158706   (625200) от 18.06.2015
-
-Н.И. Фельдман-Конрад | Японско-русский учебный словарь иероглифов [1977] [DJVU]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_625200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий словарь выходит вторым изданием, переработанным и дополненным (первое издание было выпущено в 1956 г.).
-Словарь содержит около 5000 иероглифов. Словарю предпосылается статья "Иероглифы в современной японской письменности". В качестве приложения к словарю даются "Иероглифические указатели", которые облегчают нахождение иероглифов в словаре. (   Читать дальше...   )Жанр: Японский язык, Словари и разговорникиФормат: DJVU
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908144   (625199) от 18.06.2015
-
-Adguard 5.10.2035.6350 [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adguard - утилита для блокировки интернет-рекламы. Работает со всеми браузерами: Internet Explorer, Mozilla Firefox, Google Chrome, Opera, Safari, Maxthon, Avant Browser, Netscape Navigator, Flock, Lunascape, SeaMonkey. Удаляет рекламный спам, блокирует всплывающие окна, порно-баннеры, видеорекламу, рич-медиа и другие необычные виды рекламы. Ускоряет загрузку страниц (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F719C914AF29E8E40A86E2DDDA29AE11B90AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909811   (625198) от 18.06.2015
-
-Perfectly Clear Plugin for Photoshop and Lightroom 2.0.1.20 [En]
+Integrity Pro 12.2.3 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626097.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Photoshop от компании Athentech Imaging из серии "сделайте мне быстро и красиво", позволяющий всего в пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-
-В цифровых камерах есть ограничения, которые приводят к таким (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 июня 2015Разработчик: Athentech Imaging Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+Приложение Integrity Pro  основано на Integrity Plus. У него есть новый механизм сканирования v9, оно проверяет ссылки и создает карту сайта со всеми функциями поиска, фильтрации и экспорта версии Plus. Добавляет детали SEO и проверку орфографии. Не предназначено для замены Scrutiny и имеет промежуточное положение между Integrity Plus и Scrutiny, более доступными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.04.2022Разработчик: © 2007-2021 S P DixonПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский и Французский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF87248F5E5A9A7124AB4E60991BC0FB783D6EDE
+magnet:?xt=urn:btih:0A17B4FCF61ABAE52F35581FDF74A1E407973899
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -704,51 +696,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 909965   (625197) от 18.06.2015
+###  Публикация: 1543933   (626096) от 13.04.2022
 
-Проекты - VideoHive - The Ultimate HUD Builder - 10848371 [AEP]
+Integrity Plus 12.2.3 [En]
 
->>Проекты
->>Элементы (проекты)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626096.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Ultimate HUD Builder - содержит 1100 HUD особых элементов, 170 из которых - сложные элементы, 900 модульных элементов и другие классные hud элементы с различными функциями. Перенося мир HUD на совершенно новый уровень, этот шаблон дает вам абсолютную свободу, помогающую достигнуть наилучшего опыта при работе с  HUD, используя, создавая новые, сочетая, изменяя (   Читать дальше...   )Формат: AEP
+Integrity - приложение в помощь Web-мастерам и предназначено для проверки наличия изображений и целостности ссылок на вашем сайте. Проверка начинается с главной страницы и будет продолжена внутрь сайта (от новых страниц к более старым) следуя внутренним связям ресурса.
+Досконально проверяется каждая ссылка и анализируется ответ сервера. Вся информация выводиться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.04.2022Разработчик: © 2007-2021 S P DixonПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский и Французский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F38E010F9306E557B0E129433071898A021091B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 898505   (625196) от 18.06.2015
-
-Прежде чем я уйду / Just Before I Go (2014) BDRip [H.264/1080p] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь Теда потрепала его так, что стал задумываться о самоубийстве. До такого решения мужчина шел долгое время, ведь еще с самого детства он ощутил на себе, что такое неприятности. Когда он был подростком, то его постоянно терзали и оскорбляли хулиганы, а учитель математики и вовсе любил унижать Теда перед остальными учениками. Со временем детские обиды поутихли, (   Читать дальше...   )Производство: США / Coquette Productions, New Artists AllianceЖанр: Драма, КомедияРежиссер: Кортни КоксАктеры: Шонн Уильям Скотт, Оливия Тирлби, Гаррет Диллахант, Кейт Уолш, Кайл Галлнер, Роб Риггл, Ивэн Росс, Клео Кинг, Мисси Пайл, Элиша КатбертПеревод: Одноголосый закадровый, любительский (Paul Bunyan)Субтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA7E4C0EA9EE6B89BDE020B8916CEDC36370DBF7
+magnet:?xt=urn:btih:31FFDBC16E473F5A8B20A1BFD61FFCA05BF00A20
 ```
 
 https://mybot314.ru/tekegram_catalog/

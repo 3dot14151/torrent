@@ -1,3 +1,30 @@
+###  Публикация: 1053694   (495811) от 18.09.2016
+
+Balsamiq Mockups For Desktop 3.4.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495811.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Balsamiq Mockups» — создание макетов сайтов, мобильных и веб-приложений (прототипа будущего приложения).
+Balsamiq Mockups будет полезна для project managers, designers, developers. Использовать Mockups для прототипирования еще проще, чем рисовать на бумаге - вы можете переделать любую выбранную часть и тотчас получить отличный результат. Создавайте и демонстрируйте (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 31 августа 2016Разработчик: Balsamiq Studios LLCПоддерживаемая ОС: Mac OS X 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5741CF3F081BF58E291FCDCE732287357DA88EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158010   (495427) от 14.08.2017
 
 Live Home 3D St 3.2.2 [Multi/Ru]
@@ -670,32 +697,6 @@ WiFi Scanner 2.7.9 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBCA2B41EC5975E35A37ACD8AD0D57584B169173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 699022   (492939) от 10.09.2013
-
-Война миров Z / World War Z  (2013) [Unrated Cut] BDRip [720p] ATV [Line]
-
->>След.
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сотрудник ООН Джерри Лэйн наперегонки со временем пытается остановить заражение, способное полностью истребить человечество.Производство: США, Мальта / © Apparatus Productions, GK Films, Hemisphere Media Capital, Latina Pictures, Paramount Pictures, Plan B Entertainment, Skydance ProductionsЖанр: ужасы, фантастика, боевик, триллер, драмаПеревод: Русский дублированныйСубтитры: вшитые отключаемыеЯзык субтитров: Русский, АнглийскийПродолжительность: 02:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27912C887331B36EC9E83D1CFAE3783DB8EF97A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

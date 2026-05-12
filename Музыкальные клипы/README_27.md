@@ -1,3 +1,84 @@
+###  Публикация: 949575   (377040) от 23.10.2015
+
+VA - Осенний марафон № 199 / Видеоклипы (Свежие Новинки с Мира Хитов) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (23.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Ana Criado - Dancing Sea (Moonnight remix) (00:03:29)
+02. Anastacia - Take This Chance (Official Video) (00:04:10)
+03. Andreas - Время (ПРЕМЬЕРА!) (00:03:11)
+04. Aram MP3 ft. The Sunside Band - You're My Sunshine (Official Video) (00:03:34)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Dubstep, Soul, Relax, Chill OutПродолжительность: 01:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C55427B2FB958C316B33A97868E2DF2ED90F7F9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574079   (376421) от 12.11.2012
+
+Billy Hlapeto And Kristo Feat. Lexus - Are Dai Pak (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7839D1ED8D9EBF650AD86275FBAB21E2DF36956E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574078   (376072) от 12.11.2012
+
+M. O. B feat. Alex T - Make You Scream (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CA2B97E422267E8FCA7BD42133B7205324C2FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 574221   (375342) от 12.11.2012
 
 Глэм Рок / Glam Rock -T.Rex. S.Quatro.Nazareth.Sweet and more.. (2003) DVDRip
@@ -624,84 +705,6 @@ Nelly Furtado - Parking Lot (2012) [H.264/1080p]  HDTVRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:476216F79F2C2E8CBEC31896C820B6F8FEC6060F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577878   (358348) от 19.11.2012
-
-Прохор Шаляпин - Дубинушка (2012)  [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4667F177E2A8E840975A4743FC6412E9AB7CD17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577883   (358345) от 19.11.2012
-
-Юлия Войс - Ненавижу любя (2012)  [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:488EEF6FFAAC2B7B534612798A87F9553DD400BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577454   (358335) от 19.11.2012
-
-Kelly Clarkson - Catch My Breath (2012) [H.264/1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:946C98579EA9B841903BA25270836D64F7B0C2FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

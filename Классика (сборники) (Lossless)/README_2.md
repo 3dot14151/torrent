@@ -1,3 +1,38 @@
+###  Публикация: 539371   (502009) от 30.08.2012
+
+VA - The Top 100 Masterpieces Of Classical Music: 1685-1928 (1991) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Also Sprach Zarathustra - Fanfare [01:31]
+Orchestra – Hungarian State Orchestra Written-By – R. Strauss
+02. Symphony No. 5 - Adagietto [09:42]
+Orchestra – Budapest Festival Orchestra Written-By – Mahler
+03. Finlandia [08:58]
+Conductor – Rouslan Raychev Orchestra – Plovdiv Philharmonic Orchestra Written-By – Sibelius
+04. Dance Of The Bunble Bee [01:45]
+Cello – Miklos Perenyi Piano – Zoltan Kocsis Written-By – Rimsky-Korsakov
+05. Meditation, From "Thais"[05:05]
+Orchestra – Budapest Philharmonic Orchestra Written-By – Massenet(   Читать дальше...   )Жанр: ClassicalФормат: 10 CD BoxSetПродолжительность: 01:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF198D54050AAE1F29390D91B3412EEB76E5C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244137   (481795) от 01.09.2018
 
 VA - Russian Legends (Legendary Russian Soloists Of The 20-th Century) (100 CD  Box Set) (2007) [WavPack|Lossless|image + .cue] <Classical>
@@ -711,35 +746,6 @@ Ennio Morricone - Ennio Morricone: Winter Walks (2024) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBE5C1E2E7A04DC550AE005A85287884C689131E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693579   (121176) от 24.01.2024
-
-VA - The Best Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
-02. Denis Shapovalov, Alexander Vershinin - 14 Romances, Op. 34 No. 14, Vocalise (Arr. for Cello and Piano) (5:26)
-03. Sergey Bryukhno - Sonnet in C Major (1:25)
-04. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:12:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FB33BF7266D84E59C71022F47965061171D3DEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,59 @@
+###  Публикация: 1048581   (546311) от 02.09.2016
+
+Проекты - Проект ProShow Producer -  В стиле ретро [PSH]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект слайд шоу в ретро стиле для PSP-6 and above.
+Очень простой в редактировании, обычная замена файлов.
+Автор: R.S..Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:345EC503EC1106608A388922F15CD3E013416A3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048571   (546310) от 02.09.2016
+
+Проекты - Проект ProShow Producer -  Вся жизнь... [PSH]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект слайд шоу для PSP-6 and above.
+Очень простой в редактировании, обычная замена файлов.
+Автор: LF.Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A54B8CA911A65D613A147EB4F4108460607030A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048661   (546301) от 02.09.2016
 
 Проекты - VideoHive - Atomic Fire Light Logo - 77308 [AEP]
@@ -623,58 +679,6 @@ Fashion Promotion - элегантный и стильный проект для
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DAF59C86EFE21B8739C4E913E3BA0A4015F5A51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049675   (543583) от 05.09.2016
-
-Проекты - VideoHive - Infinity Logo Revealer - 1566896 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстрации Вашего логотипа. Создайте волшебную атмосферу для ваших зрителей!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF7C7A087AC10A30B10A83FCD874FEBE2DA4315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049530   (543582) от 05.09.2016
-
-Проекты - Motion Array - Minimal Lower Thirds - 15563 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет надписей и заголовков для Вашего творчества.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F9466B605F1CDC0AE75F492AA8223795151823D
 ```
 
 https://mybot314.ru/tekegram_catalog/

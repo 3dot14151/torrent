@@ -1,109 +1,25 @@
-###  Публикация: 1624145   (242471) от 04.04.2023
+###  Публикация: 1626756   (243484) от 16.04.2023
 
-Silver Convention - Success (1976) LP, Compilation feat Penny McLean, Ramona Wulf, Linda G. Thompson [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник включает некоторые композиции первых альбомов группы Silver Convention и независимые синглы её трёх участниц.01. Silver Convention - Fly, Robin, Fly (5:24)
-02. Linda G. Thompson - Ooh What A Night (2:36)
-03. Silver Convention - Always Another Gir (3:41)
-04. Penny McLean - Wizard Bump (3:23)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C584C5C3B814463C5D0450A8B64F1996AFCC587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543450   (242470) от 11.04.2022
-
-VA - National Pop Dance Music (Vol.33) (2022) [MP3|320 Kbps] <Pop, Dance, Shlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Вам очередной 33-й релиз проекта "National Pop Dance Music", в котором вы сможете найти для себя самые лучшие и самые признанные хиты европейской популярной национальной музыки уходящего месяца. Только самая качественная танцевальная музыка весеннего сезона ждет Вас на треках позитивного лонгплея!001. Freya - Du Hast Mich Tausendmal Belogen
-002. Everglow - Don't Speak
-003. Faren - Sors De Ma Vue
-004. A.Takalo & Takavalot - Tabula Rasa(   Читать дальше...   )Жанр: Pop, Dance, ShlagerПродолжительность: 08:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72A04557B85978A4A5379BA9F34A34FAA7AEE796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627938   (242469) от 21.04.2023
-
-Следуй за мной / Follow Me (1972) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история Чарльза, успешного, но довольно скучного бизнесмена, который встречает и женится на Белинде, свободолюбивой американке. Через некоторое время он считает, что у нее роман, потому что она проводит долгие часы вдали от дома в течение дня. Чарльз нанимает частного детектива, чтобы тот проследил за его женой.Производство: Великобритания / Hal Wallis ProductionsЖанр: драма, комедияРежиссер: Кэрол РидАктеры: Миа Фэрроу, Тополь, Майкл Джейстон, Маргарет Роулингс, Аннетт Кросби, Дадли Фостер, Майкл Элдридж, Майкл Баррингтон, Нил МакКарти, Дэвид БаттлиПеревод: Одноголосый любительский (Мика Бондарик)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78953CEA35C49655F49D91D5BE8C167BAA469ABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616661   (242468) от 03.03.2023
-
-Beneath My Feet - In Parts, Together (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
+Alase - A Matter of Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Progressive Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243484.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Caught In A Hurricane [00:03:46]
-02. Dig My Grave [00:02:52]
-03. When Both Our Worlds Collide [00:03:55]
-04. Dead & Equal [00:04:16](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:46:34
+01 - Understanding the Waves (05:11)
+02 - Clear Sky Is Not a Curse (03:33)
+03 - Fate's Intervention (04:21)
+04 - Unburden (04:27)(   Читать дальше...   )Жанр: Atmospheric Progressive MetalПродолжительность: 00:43:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FE03C90CE1335FCF6964927B2D9AE5AF0E07662
+magnet:?xt=urn:btih:5D4CE6604B7C7A9ECBAF2586743A62D8B9AC611F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,25 +27,114 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624666   (242467) от 06.04.2023
+###  Публикация: 1078019   (243483) от 01.12.2016
 
-Sandboxie plus 1.8.3 [Multi/Ru]
+Oliver Lake - Compilation (1990) Bluemoon Recordings[APE|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.'63 Impala [06:45]
+ 02.C Piece [05:34]
+ 03.Gano Club [04:26]
+ 04.Sad Louis [03:22](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88DDBED88A10E463A7ED30C41F704224F54394FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612994   (243482) от 18.02.2023
+
+Pat Martino - Strings! (1967) 1991, Original Jazz Classics [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop. Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strings [5:53]
+02. Minority [9:20]
+03. Lean Years [8:38]
+04. Mom [7:24](   Читать дальше...   )Жанр: Hard Bop, Post-Bop. Guitar JazzПродолжительность: 00:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FA8A1C9D793B2B392D33758EC797A594B380752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633234   (243481) от 14.05.2023
+
+Billy Drummond & Freedom Of Ideas - Valse Sinistre (2022) Cellar Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Melonae [4:57]
+02. Never Ends [7:01]
+03. Valse Sinistre [6:13]
+04. Laura [3:29](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7237C37CE14A1765FC130080A306429F4A62DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542538   (243480) от 07.04.2022
+
+DxO PureRAW 2.0.1 Build 1 [Multi]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Sandboxie plus - это продолжение Sandboxie с открытым исходным кодом - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Создавайте более качественные файлы RAW, прежде чем ретушировать их в Adobe Photoshop, Lightroom или других программах, благодаря эксклюзивным технологиям демозаики, шумоподавления и коррекции дефектов линз DxO.
+
+С программным обеспечением DxO PureRAW легко и просто улучшить файлы RAW, улучшайте свои фото в формате RAW, чтобы открыть еще больше возможностей с помощью (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DFAAAA3BE9D1BDDEC1DAED65BCDB46F2178FE671
+magnet:?xt=urn:btih:9616004D9C96FE1903A7DABA08B3805A17FD92D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,28 +142,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362647   (242466) от 24.02.2020
+###  Публикация: 1340427   (243479) от 23.11.2019
 
-Serenity - The Last Knight (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Metal>
+AweEraser 3.7 [En]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243479.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Last Knight (02:03)
-02. Invictus (04:19)
-03. Set the World on Fire (04:26)
-04. Keeper of the Knights (04:43)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:51:45
+AweEraser - это безопасный «ластик» данных Mac. Он может безопасно и навсегда удалить данные с жесткого диска / носителя, окончательно удалить файлы Mac, стереть жесткий диск и стереть уже удаленные данные в Mac OS. Он также предлагает инструменты для пакетного удаления приложений на вашем Mac и очистки истории браузеров, кэшей, конфиденциальности и т. д.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: MagoshareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:769857E11B9772999DAB35CC7F48B140F510040F
+magnet:?xt=urn:btih:60A2C7E9FBB0CEB07DCFA174C710EEF74F1F0001
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,25 +168,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457875   (242465) от 27.03.2021
+###  Публикация: 1626960   (243478) от 16.04.2023
 
-Наталья Александрова | Печать Иоганна Гутенберга (2021) [MP3, Оксана Шокина]
+Алексей Игнатов | Холст с историей (2021) [MP3, Алексей Игнатов]
 
 >>Художественные аудиокниги и публицистика
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243478.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Иоганн Гутенберг более шестисот лет назад изобрел книгопечатание, стал первым типографом в Европе, а затем и в мире. Его печать имеет уникальную силу и стоит в наши дни целое состояние… Женя Кукушкина работает в маленьком книжном издательстве и очень боится привидений. А ведь ей часто приходится иметь с ними дело. В Третьем Цеху, куда по работе ей часто приходится (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:21:18
+Ценность абстрактного полотна — не в красках, а в чувствах художника. Но в чем ценность холста с тремя простыми красными полосками, если его пытаются украсть, снова и снова?Жанр: Детектив, ЮморПродолжительность: 00:25:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2DBD554A9BBCA75B776526C0DB275FE54233F29
+magnet:?xt=urn:btih:ED547468910CE083922238A7EBDC5B98D1D192A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -192,28 +194,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634584   (242464) от 21.05.2023
+###  Публикация: 1078197   (243477) от 01.12.2016
 
-The Winery Dogs - III (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+Paris Jazz Big Band - Paris 24H (2004) Cristal Production[FLAC|Lossless|tracks + .cue] <Modern Big Band, Progressive Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243477.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Xanadu (4:02)
-02. Mad World (4:48)
-03. Breakthrough (4:59)
-04. Rise (4:25)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:49
+01.Le cyclopathe [05:38]
+ 02.Place pigalle [07:51]
+ 03.Musee d'orsay [05:51]
+ 04.Galeries [05:13](   Читать дальше...   )Жанр: Modern Big Band, Progressive JazzПродолжительность: 01:07:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7829844ABDDCE3B2C44649ADDB426E3064E4A442
+magnet:?xt=urn:btih:879A69FEB7266003DF49A2859CA5B0D6D635A17D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -221,25 +223,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100487   (242463) от 04.02.2017
+###  Публикация: 1623560   (243476) от 02.04.2023
 
-Устами младенца (04.02.2017) SATRip
+Хоккей. НХЛ 2022-2023. Бостон Брюинз - Питтсбург Пингвинз (01.04.2023) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243476.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На НТВ возвращается семейное интеллектуальное шоу «Устами младенца», которое поможет взрослым лучше узнать своих детей. Как и раньше, участники будут соревноваться между собой в угадывании слов. Вся сложность и комичность будет состоять в том, что понятия будут объяснять малыши, только начинающие познавать окружающий мир. Впервые программа «Устами младенца» вышла (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:34:48
+1 апреля 2023, суббота. 22:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 322 зрителя (98% при вместимости 18 673)
+Главный судья: Дэн О'Рурк (Калгари, Канада); Главный судья: Брайан Почмара (Детройт, США)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:00:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E198D4969ADA31CB68A098689C52C8AB5837A60C
+magnet:?xt=urn:btih:21DE4695CCB33A53DFFF672B9E4528EA24DE7879
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -247,25 +250,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528645   (242462) от 10.08.2022
+###  Публикация: 1613276   (243475) от 18.02.2023
 
-Во сне и наяву / Faut Pas Rever (2017-2020) DVB (часть 3, эпизоды 1-20 из 20) [FR / RU Sub]
+VA - Paul Sawyer: 30 Years A DJ (2023) [MP3|320 Kbps] <House, Progressive House>
 
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243475.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Тележурнал "Во сне и наяву" был создан в 1990 году и транслируется France 3. С 2011 года программу ведет Таня Янг / Tania Young, предлагая телезрителям увлекательные путешествия по всему миру. Программа была задумана автором "Морского журнала – Thalassa" Жоржем Перну / Georges Pernoud и изначально транслировалась сразу после нее, создавая целый (   Читать дальше...   )Производство: Франция, France 3, XL Production, TV5MONDE EuropeЖанр: документальный, история, путешествияРежиссер: Жан-Пьер БозонПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (перевод И.Рыбкиной, М.Кузиной, компании ECLAIR/Hiventy)Продолжительность: серии x ~00:01:50
+01. Paul Sawyer - Stay Around (Extended Mix) [4:46]
+02. Paul Sawyer - Zeus (Tripswitch Remix) [7:33]
+03. Sunscreem & Paul Sawyer - Perfect Motion (Extended Mix) [8:53]
+04. Paul Sawyer - Nemesis (Nick Muir Remix) [8:27](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 03:32:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFB80A2FDE6EDC4DF6DC13AB495A0BA0BCB0F702
+magnet:?xt=urn:btih:A293ACA20E82DDAA124852C1F2D190E779232D10
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -273,28 +279,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624080   (242461) от 04.04.2023
+###  Публикация: 1567894   (243474) от 05.08.2022
 
-The Twins - A Wild Romance (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Synth-pop>
+Пес-самурай и город кошек / Paws of Fury: The Legend of Hank (2022) WEB-DL [H.264/1080p] [MVO]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243474.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Love System 4:20
-A2 Ballet Dancer 3:25
-A3 A Wild Romance 4:42
-A4 Private Eye 4:44(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:46:20
+Хэнк — смелый пёс, мечтающий стать самураем, вот только в городе кошек его никто не воспринимает всерьёз. Но когда армия пушистых ниндзя угрожает стереть их городок с лица Земли, Хэнк становится единственной надеждой на спасение. Теперь с помощью мудрого учителя и верных друзей он должен в сжатые сроки овладеть навыками великого воина. Только так у него появится (   Читать дальше...   )Производство: Великобритания, Китай, Канада, США / Nickelodeon Movies, Align, AniventureЖанр: мультфильм, боевик, комедия, семейныйРежиссер: Крис Бэйли, Марк Куцир, Роб МинкоффАктеры: Майкл Сера, Сэмюэл Л. Джексон, Рики Джервэйс, Кайли Куиока, Мэл Брукс, Джордж Такей, Габриэль Иглесиас, Аасиф Мандви, Джимон Хонсу, Мишель ЙеоПеревод: Многоголосый профессиональный (Jaskier, TVShows)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:33:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48DAC657497338BD5E9EF221B428E7D88B720060
+magnet:?xt=urn:btih:778704B68621B5EBF4C549C9BA9CF4BF6408CCE3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -302,26 +305,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542046   (242460) от 05.04.2022
+###  Публикация: 1633233   (243473) от 14.05.2023
 
-Marked 2 v2.6.15 [En]
+Alexis Cole - Nearer The Sun (2004) Canopy Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
->>Архив торрентов
->>Архив 4Apple
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243473.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Marked 2 — универсальный превью-инструмент для любого Markdown-редактора
-Многие текстовые редакторы для Mac поддерживают облегченный язык разметки Markdown, придуманный Джоном Грубером для упрощения восприятия текста при подготовке к публикации. Преимуществом Markdown является то, что его можно легко экспортировать в HTML-код и вставить в редактор кода. Одним словом, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.04.2022Разработчик: © 2021 Brett TerpstraПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+01. All the Things You Are [3:47]
+02. Night Train [4:29]
+03. My Funny Valentine [5:10]
+04. East of the Sun [5:21](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CD665D5CAEEF963986FBEDDD1455EBAE6B86AD9
+magnet:?xt=urn:btih:59BD0D43A8CE57AC06BCCD4FA131F6757E619835
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -329,112 +334,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627957   (242459) от 21.04.2023
+###  Публикация: 1626838   (243472) от 16.04.2023
 
-Наталья Подольская - Конечно, да! (2023) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242459.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Секрет
-2. Отель
-3. Спутники
-4. Такая сильная любовь(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5982E17A0325BF05D40653CCFE3DC684234AA482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362592   (242458) от 24.02.2020
-
-Rob (Robin Coudert) - Seuls / Одни (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242458.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:07| 01. Bad News
-|02:02| 02. Revelation
-|01:03| 03. SOS
-|00:37| 04. Diner(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C375E76EEEA42984F6E8FA890591070FA2B07A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457846   (242457) от 27.03.2021
-
-Журнал | Grazia [It] №8 (февраль 2021) [PDF] [It]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grazia — итальянское женское издание, выпускаемое еженедельно компанией Arnoldo Mondadori Editor с 1938 года.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F27321F0EC097ACB77B8814A1FF6D1D8550D73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100621   (242456) от 04.02.2017
-
-Infernal War - Axiom (2015) [FLAC|Lossless|image + .cue] <Black Metal. Death Metal>
+Blood God & Debauchery - Demons Of Rock 'n' Roll (2022) 2xCD, Limited Edition [FLAC|Lossless|image + .cue] <Death Metal, Heavy Metal, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243472.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Coronation
-02. Militant Hate Church
-03. Into Dead Soil
-04. Paradygmat(   Читать дальше...   )Жанр: Black Metal. Death MetalПродолжительность: 00:42:52
+CD1 - Blood God - Demons Of Rock 'n' Roll :
+01. Demons Of Rock'n'Roll
+02. Going To Hell
+03. Nude Nuns(   Читать дальше...   )Жанр: Death Metal, Heavy Metal, Hard RockПродолжительность: 01:14:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D85D6577ECE3C28CFA7163CA618BAB58AD8E853
+magnet:?xt=urn:btih:B98F034C35377A156BFAEA7730781270D4428773
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -442,26 +363,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543288   (242455) от 11.04.2022
+###  Публикация: 1340511   (243471) от 23.11.2019
 
-Очередное достижение: 6000 релизов от Аlехаndr!
+Amadeus Pro 2.6.2 (2228) [Multi]
 
->>3
->>4
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243471.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Очередное достижение: 6000 релизов от Аlехаndr!Друзья! У нас новая приятность — возможность поздравить нашего одноклубника, модератора
-и релизера Аlехаndr-а с очередной круглой цифрой - 6000 релизов!Поздравляем и выражаем огромную благодарность от имени всех пользователей и администрации NNM Club!(   Читать дальше...   )
+Amadeus Pro - многотрековый музыкальный редактор, который будет интересен как любителям, так и профессионалам. Приложение поддерживает работу с несколькими звуковыми дорожками, каждую из которых можно редактировать абсолютно независимо от других - изменять ее уровень громкости, накладывать различные фильтры, вставлять дополнительные фрагменты и т.д. Помимо этого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: HairerSoftПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:DC59AA4932E33090A4F418CC17DCCB95482A1C25
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -469,25 +389,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624667   (242454) от 06.04.2023
+###  Публикация: 1542595   (243470) от 07.04.2022
 
-AIMP 5.11 Build 2428 RePack (& Portable) by TryRooM [Multi/Ru]
+Advanced SystemCare Pro 15.3.0.227 Portable by zeka.k [Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243470.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский и другие
+Advanced SystemCare PRO - это мощный пакет для оптимизации операционной системы, включает в себя множество модулей для оптимизации, настройки и повышения производительности компьютеров. Благодаря возможностям данной программы вы сможете настроить Windows до уровня оптимальной производительности, увеличить скорость интернета (до 300 процентов) и защитить компьютер (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:821C902C929B8EEF851CEED1A0B0D52115C8BB17
+magnet:?xt=urn:btih:ADD564A9BFCE29BBB6B14CD281BDBDAA2F4BE21B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -495,28 +415,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634629   (242453) от 21.05.2023
+###  Публикация: 1077716   (243469) от 01.12.2016
 
-Давид Ойстрах и симфонический оркестр ВР, дир. А. Хачатурян - А. Хачатурян - Концерт для скрипки с оркестром ре-минор (1966) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Classical, Modern>
+National Youth Jazz Orchestra - Cottoning On (1995) [FLAC|Lossless|image + .cue] <Big Band>
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243469.jpg" />
 </div>
 
 
 ###  Подробнее
 
-А. Хачатурян
-A  I. Allegro Con Fermezza
-B1 II. Andante Sostenuto
-B2 III. Allegro Vivance(   Читать дальше...   )Жанр: Classical, ModernПродолжительность: 00:37:30
+01. Sea Island Samba (9:32)
+02. Miss Malfatti, I Presume (5:12)
+03. Cottoning On (6:05)
+04. A Lady Can Tell (4:09)(   Читать дальше...   )Жанр: Big BandПродолжительность: 01:09:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:859C363F4EC2DFB100ACF6E5157A4D94890FAA69
+magnet:?xt=urn:btih:F07E8FFD82C568AF1E4F15A3BB8A677980ADDDAF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -524,25 +444,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562094   (242452) от 10.08.2022
+###  Публикация: 1613256   (243468) от 18.02.2023
 
-В осаде 2: Тёмная территория / Under Siege 2: Dark Territory (1995) BDRip [H.265/1080p-LQ] [10-bit]
+Живая еда с Сергеем Малозёмовым (18.02.2023) SATRip [H.264]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243468.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Террористы захватывают поезд для того, чтобы развернуть на нём передвижной пункт управления засекреченным военным спутником США, на котором установлено оружие огромной разрушительной силы, и грозят взрывом на Восточном побережье Америки. Случайно оказавшийся среди пассажиров морской пехотинец Кейси Рэйбек не стерпел издевательств преступников…Производство: США / Cutting Edge Films, Regency Television, Seagal/Nasso Productions, Victor Company of Japan Ltd. (JVC), Warner Bros.Жанр: боевик, триллер, приключенияРежиссер: Джеф МерфиАктеры: Стивен Сигал, Эрик Богосян, Эверет МакГилл, Кэтрин Хайгл, Моррис Честнат, Питер Грин, Патрик Килпатрик, Скотт Сауэрс, Афифи Алауи, Энди РоманоПеревод: многоголосый профессиональный, двухголосый профессиональный, авторскийЯзык озвучки: русский, украинский, английскийСубтитры: русские, английскиеПродолжительность: 01:39:38
+Рыбные консервы: правда ли российский рынок наводнил фальсификат и что сегодня продаётся под видом сайры, стоит ли покупать продукт, сделанный из замороженного сырья, и как производят консервы из свежей рыбы — расскажут в новом выпуске. Также зрители узнают, как корицу выращивают на Шри-Ланке и почему в России так сложно найти настоящую, что интересного готовят из (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:42:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1585EAB4DBAA3A7144C7646E295F995E10EEDD5D
+magnet:?xt=urn:btih:19A86F3C3FD98F87F113964D33BCBB46518DFA2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -550,28 +470,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616615   (242451) от 03.03.2023
+###  Публикация: 1538402   (243467) от 20.03.2022
 
-Grief Symposium - ...In The Absence of Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Metal>
+Firpo Chompeavy - Smoking 45 (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Innocent Novels Told by Raccoons and Opossum
+02. Cyrus and the Pink Ranger
+03. Curtain Maggot Gap
+04. Fighting with a Stool(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:986274408676585AF189FE7978EFEFA060CAB784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626983   (243466) от 16.04.2023
+
+Red Harvest - Internal Punishment Programs (2004) [APE|Lossless|image + .cue] <Industrial Metal, Death Metal, Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243466.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Among Dead Gods (00:06:57)
-02 - Temple of Decay (00:03:57)
-03 - In the Shadow of the Sleeping Monarch (00:09:03)
-04 - Veil of Transformation (00:03:38)(   Читать дальше...   )Жанр: Death, Doom MetalПродолжительность: 00:54:14
+01. Intro
+02. Anatomy Of The Unknown
+03. Fall Of Fate
+04. Abstract Morality Junction(   Читать дальше...   )Жанр: Industrial Metal, Death Metal, Thrash MetalПродолжительность: 00:40:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E338E5937CEE0FB1FB4D075E97C4CF4D35B2242
+magnet:?xt=urn:btih:3D0A6363B939FF7A0EDA224FDC258BFA66A99B7E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -579,25 +528,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628039   (242450) от 21.04.2023
+###  Публикация: 1623704   (243465) от 02.04.2023
 
-Path Finder 2152 [Multi/Ru]
+Следствие вели... (02.04.2023) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243465.jpg" />
+</div>
+
+
+###  Подробнее
+
+1975 г., Новгородская область. Во время застолья на свежем воздухе один из мужчин, изрядно выпив, заявил, что под костром спрятаны два трупа. Заплетающимся языком он начал рассказать подробности убийства, и все подумали: какой-то неудачный розыгрыш. Только его супруга знала, что это не розыгрыш и не шутка… Вскоре про этот случай знали уже все подряд, и кто-то решил (   Читать дальше...   )Производство: Россия | Телекомпания «НТВ»Жанр: документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:537FCAA4576D19325B48F64B9CDCF752135879E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340362   (243464) от 23.11.2019
+
+Soulver 3.1.3.1 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243464.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.04.2023Разработчик: © 2022 CocoatechПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+Soulver 3 - это умный блокнот со встроенным калькулятором. Он дает мгновенные ответы на любые вычисления, которые он находит в вашем тексте. Это лучший способ для работы, чем с традиционным калькулятором, и более легкий инструмент для быстрых вычислений, чем электронная таблица.Тип издания: macOS SoftwareРазработчик: Acqualia SoftwareПоддерживаемая ОС: macOS 10.14 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82540C38704AF12CC811438992EE03E3D072B18D
+magnet:?xt=urn:btih:EC398AEF24C0071CF099DAF529C344F1AF526CF3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -605,28 +580,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362662   (242449) от 24.02.2020
+###  Публикация: 1542682   (243463) от 07.04.2022
 
-Биатлон. Чемпионат Мира 2020. Антхольц-Антерсельва (Италия). Эстафета. Женщины (2020) WEB-DL [H.264/720p-LQ] [EN]
+Эндрю Ферлитш | Шаблоны и практика глубокого обучения (2022) [PDF]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243463.jpg" />
 </div>
 
 
 ###  Подробнее
 
-54-й Чемпионат мира по биатлону 2020 года. Антхольц-Антерсельва (Италия)
-22 февраля 2020, суббота. 13:45 МСК
-Женщины. Эстафета 4х6 км
-Стадион: Биатлонная Арена-Южный Тироль (Разун-Антерсельва, Италия)Телекомпания: Eurovision SportsЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:42:17
+В книге рассматриваются актуальные примеры создания приложений глубокого обучения с учетом десятилетнего опыта работы автора в этой области. Вы сэкономите часы проб и ошибок, воспользовавшись представленными здесь шаблонами и приемами. Проверенные методики, образцы исходного кода и блестящий стиль повествования позволят с увлечением освоить даже непростые навыки. (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C099D671017921DA079BC77455442CABA6A422D
+magnet:?xt=urn:btih:BB7C02A313235D45E0C200FB27864964F0592E8A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -634,26 +606,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542127   (242448) от 05.04.2022
+###  Публикация: 1633380   (243462) от 14.05.2023
 
-Posterino 3 v3.11.8[Multi]
+Митрополит Владимир (Иким) | Слова на двунадесятые и великие праздники (2017) [PDF, FB2, EPUB, MOBI]
 
->>Архив торрентов
->>Архив 4Apple
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243462.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Posterino – программа, ориентированная на создание различных постеров и открыток. Включает в себя достаточно много разных шаблонов, касательно расположения изображений на постере. Среди них такие знаменитые, как 365 Days, Landscape, Classic, Clasters и многие другие.
-Шаблоны можно редактировать, получая в какой-то мере произвольные результаты постеров. Это достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.04.2022Разработчик: © 2005-2022 Zykloid SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий, Французский и др.
+Книга митрополита Омского и Таврического Владимира (Икима) «Слова на двунадесятые и великие праздники» является органичным дополнением его цикла богослужебных проповедей на Евангельские и Апостольские чтения на каждый день под названием «Вечное сокровище» и содержит в себе проповеди на темы важнейших праздников церковного года, а также по некоторым иным особым поводам (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D87C6143ACE852E4F8B76041C04F33612DD5411
+magnet:?xt=urn:btih:4A049616CA9CDDFE27B41CEEEFFA3AD16A623F4C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -661,28 +632,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543433   (242447) от 11.04.2022
+###  Публикация: 1567795   (243461) от 05.08.2022
 
-Формула 1. Сезон 2022. Этап 03. Гран-при Австралии. Гонка. (10.04.2022) UHDTV [H.265/2160p] [50fps] Digi4K
+Амфибия / Amphibia (2019-2022) WEB-DL [H.264/1080p] (Сезон 1-3, Серии 1-58 из 58) [Локализованный видеоряд] Невафильм
 
->>Спорт и активный отдых
->>Формула 1
+>>Мультфильмы
+>>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243461.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этап 3. Арена: Городская трасса Альберт Парк (Мельбурн, Австралия).
-Гонка. 10 апреля 2022, воскресенье.
-
-Картинка с канала Digi4K.Телекомпания: Digi4KЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова), Английский, Румынский.Субтитры: отсутствуютПродолжительность: 01:58:01
+13-летняя Энн Бунчуй оказывается в волшебном мире земноводных, сельской болотистой местности, которая полна человекоподобными лягушками. С помощью азартной молодой лягушки по имени Сприг, Энн превратится в героя и откроет для себя первую настоящую дружбу в своей жизни.Производство: США /  Walt Disney Television AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Ким Роберсон, Дерек Кирк Ким, Берт ЮнАктеры: Бренда Сонг, Джастин Фелбингер, Билл Фармер, Аманда Лейтон, Джеймс Патрик Стюарт, Стивен Рут, Трой Бэйкер, Ди Брэдли Бэйкер, Лайам О’Брайэн, Иден РигелПеревод: Дублированный (Невафильм)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английскиеПродолжительность: ~00:20:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F34E7355AE431DB7E47002C5FD81B3B868BFEBA6
+magnet:?xt=urn:btih:D18B0212D6FBDB722DDC32B1A611076CFCA4ABA7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -690,25 +658,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457739   (242446) от 27.03.2021
+###  Публикация: 1613463   (243460) от 18.02.2023
 
-Журнал | 4x4 Magazine Australia [Australia] №3 (март 2021) [PDF] [En]
+Своя игра (18.02.2023) WEBRip [H.264/1080p]
 
->>Автомобили
->>Автомобильные журналы
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243460.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4X4 Australia - это библия энтузиастов бездорожья с 1979 года, благодаря которой ее преданные читатели получили самые надежные обзоры автомобилей 4x4, оценки продуктов для отдыха на свежем воздухе, а также необычные маршруты и экспедиции.Жанр: Автомобильный журналФормат: PDF
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:50335FBCB9A57069BD8501E1E338D5DAABB7E757
+magnet:?xt=urn:btih:970BC837ABA2276C8CEC0E6654CCF5C4418EED19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623563   (243459) от 02.04.2023
+
+Виктория Романова | Мужчина моих снов (2021) [MP3, Надежда Стихановская]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поход к подруге на день рождения может закончиться совершенно не так, как вы мечтали. Любовь и измена, страсть и ненависть, молодой граф из неведомой страны и новые чувства – всё это закрутит в безумном водовороте событий обычную медсестру. Содержит сцены дикого откровенного секса!Жанр: Любовное ФэнтезиПродолжительность: 03:13:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E650B7F4F259069202087F0889F9B392B3B59F45
 ```
 
 https://mybot314.ru/tekegram_catalog/

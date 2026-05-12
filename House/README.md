@@ -1,5 +1,63 @@
 https://t.me/izofen
-###  Публикация: 1868272   (1067460) от 
+###  Публикация: 1869339   (1068303) от 
+
+VA - Saturday Vibes Dance Music Collection 2026 (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FaraoN, Nowakowski & Akos Sax - Hurts 04:27
+02. Padukov - Marble Lies 04:25
+03. Kristianov - Heartstrings 05:10
+04. Alex Denver, Nowakowski & Kristianov - Surrounded 04:26(   Читать дальше...   )Жанр: Deep House, Dance, ClubПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18616C47455D070CB3C2FED92AB66F01598012A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869071   (1067849) от 03.05.2026
+
+VA - Ibiza House Spring 2026 (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diplodog - My Sunshine 02:26
+02. Leventino - Crazy Crazy 02:34
+03. Sonya Bexter - My Sunshine (Extended Mix) 03:33
+04. Pleasure Disco - I Wanna Run Away 02:55(   Читать дальше...   )Жанр: Deep House, Dance, ClubПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A87735651B282CF990E63CAB719B24CBB37147F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868272   (1067460) от 30.04.2026
 
 VA - A-Mase - Deep Relax, Vol. 3 (2026) [MP3|320 Kbps] <Deep House, Melodic House, Progressive House>
 
@@ -688,64 +746,6 @@ VA - Top 20 Melodic Techno 2026 March (2026) [MP3|320 Kbps] <Progressive House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A583E02AAA212573B9F33B0144C7775472FB47A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858120   (1060101) от 09.03.2026
-
-VA - Déepalma Spotlight: Dilby (Extended Club Versions) (2026) [MP3|320 Kbps] <Progressive House, Melodic House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dilby & nineteen79 - Lift Me Up (Extended Mix) [6:11]
-02. Dilby & Lakyn - Feeling Good feat. Lakyn (Extended Mix) [6:44]
-03. Dilby - Passing Notes (Original Mix) [7:02]
-04. Dilby & DNCN - The Station (Original Mix) [6:48](   Читать дальше...   )Жанр: Progressive House, Melodic House, Deep HouseПродолжительность: 01:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD847E9FC8A80B7ACB38AA374FB7019C5BE71218
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857959   (1059972) от 08.03.2026
-
-VA - DEEP HOUSE RELAX 2026: The Pulse (2026) [MP3|320 Kbps] <Deep House, Organic House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Kay & M-Sol DEEP - Bohemian Dreams (Original Mix) [3:23]
-02. Dio S & M-Sol DEEP - Autumn Leaves (Original Mix) [6:40]
-03. Proluction & M-Sol DEEP - I Regret (Original Mix) [5:37]
-04. Mikhail Talanov & M-Sol DEEP - Airflow (Original Mix) [6:52](   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8803B913E58524653A984EBB00B870948B6AA9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

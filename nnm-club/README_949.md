@@ -1,25 +1,187 @@
-###  Публикация: 1610562   (1042195) от 08.02.2023
+###  Публикация: 1592961   (1042827) от 05.02.2023
 
-Charles Lloyd - Trios: Ocean (2022) Blue Note Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+Slurm (Слёрм), Платон Платонов | Администрирова­ние Linux. Мега (2022) WEB-DL [RU]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продвинутая программа по Linux с практикой и траблшутингом от инженера Southbridge Платона Платонова.
+Это однозначно практический курс. В нём будет много кейсов и примеров из моего опыта и опыта Southbridge. Я расскажу про установку Linux с помощью чёрной магии, приёмы ускорения работы в консоли, создание и применение bash-скриптов и многое другое.
+Моя цель — передать (   Читать дальше...   )Производство: Slurm (Слёрм)Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 10:11:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609501   (1042826) от 05.02.2023
+
+Крушение / Plane (2023) WEB-DLRip [H.264/1080p-LQ] [Line, AD]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пилоту Броуди Торрансу удаётся успешно посадить повреждённый штормом самолёт на враждебной территории. Вскоре выясняется, что уцелевшим угрожают воинствующие пираты, которые хотят захватить самолёт и его пассажиров в заложники. Пока идут поиски пропавшего самолёта, Броуди должен защитить своих пассажиров, пока не прибудет помощь.Производство: Великобритания, США, Di Bonaventura Pictures, G-BASE, Lionsgate, MadRiver Pictures, Olive Hill Media, Pimienta, Riverstone PicturesЖанр: боевик, триллерРежиссер: Жан-Франсуа РишеАктеры: Джерард Батлер, Даниэлла Пинеда, Тони Голдуин, Майк Колтер, Лилли Круг, Реми Аделеке, Пол Бен-Виктор, Тара Вествуд, Джои Злотник, Кейт РаческиПеревод: Дублированный (Line)Субтитры: ОтсутствуютПродолжительность: 01:47:25Реклама: Присутствует баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 216404   (1042825) от 05.02.2023
+
+Незнайка на Луне (1997-1999) DVDRip [H.264]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды ночью но голову Незнайки упал лунный камень. Запасливый коротышка взял его с собой, чтобы показать своим друзьям. Но это был не простой камень. Оказалось, что он служит топливом для многочисленных заводов лунного магната господина Спрутса.
+Чтобы добыть лунный камень Спруте отправил в Цветочный город шпиона - своего управляющего Крабса, который под видом большого (   Читать дальше...   )Производство: Россия, FAF EntertainmentЖанр: анимация, сказка, приключения, фантастика, сатира, мюзикл, мультфильмРежиссер: Юрий Бутырин, Александр ЛюткевичЯзык озвучки: русскийСубтитры: русские, английскиеПродолжительность: 02:31:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609826   (1042824) от 05.02.2023
+
+Вавилон / Babylon (2022) WEB-DL [H.264/1080p] [MVO]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Голливуд, конец 1920-х. Звезды немого кино пытаются найти место в новом мире, где набирают популярность звуковые фильмы. Успешная карьера старых кумиров неумолимо близится к закату.Производство: США / Paramount Pictures, C2 Motion Picture Group, Marc Platt ProductionsЖанр: драма, комедияРежиссер: Дэмьен ШазеллАктеры: Диего Калва, Марго Робби, Брэд Питт, Джован Адепо, Ли Цзюнь Ли, Джин Смарт, Оливия Хэмилтон, П.Дж. Бирн, Лукас Хаас, Макс МингеллаПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Forced, Full, SDH)Продолжительность: 03:09:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609663   (1042823) от 05.02.2023
+
+Ложная память / Ipersonnia / Hypersleep (2022) WEB-DLRip [MVO]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Италия, ближайшее будущее. Переполненные шумные тюрьмы остались в прошлом. Теперь заключенные отбывают наказание в состоянии глубокого сна, это делает их безвредными и снижает угрозу рецидивов до нуля. Давид Дамиани, психолог, который следит за психическим состоянием спящих заключенных, много лет работает в системе и считает, что знает о ней все. Пока не сталкивается (   Читать дальше...   )Производство: Италия / Ascent Film, Ministère de la Culture ItalienЖанр: фантастикаРежиссер: Альберто МашиаАктеры: Стефано Аккорси, Кацярына Шульга, Астрид Мелони, Andrea Germani, Паоло Пьеробон, Сандра Чеккарелли, Alessandro Gazale, Франческо Ла Мантия, Тони Лаудадио, Джордано Де ПланоПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:42:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436766   (1042822) от 02.01.2021
+
+Project  Wreckless - We Are Wreckless (2020) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Incoming...Wreckless [00:04:59]
+02 Forever Blind [00:04:18]
+03 Edge of the Knife [00:05:03]
+04 One Way Down [00:05:09](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44CC46D1F8D47CE6EA89620F3088CF13F731E2D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436826   (1042821) от 02.01.2021
+
+Enrico Rava - Noir (1996) Label Bleu [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042821.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Lonely One [12:19]
-02. Hagar of the Inuits [8:53]
-03. Jaramillo Blues (For Virginia Jaramillo and Danny Johnson) [10:03]
-04. Kuan Yin [10:08]Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:41:23
+01. 3.17 AM [5:00]
+02. Tango for Vasquez & Pepita [4:23]
+03. Garbage Can Blues [6:55]
+04. Jazz at the Club Club [3:53](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:52:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B29792C634CDBCE490D42949F791AF03FFC7DD96
+magnet:?xt=urn:btih:A657F74BD9AF8BD2C703EB46E4C2CF9D559AC240
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +189,114 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610572   (1042194) от 08.02.2023
+###  Публикация: 1436934   (1042820) от 02.01.2021
 
-Atrocity - Okkult III (2023) [FLAC|Lossless|image + .cue] <Death Metal, Gothic Metal>
+Татьяна Комзалова | Читаем сами. Новогодний почтальон (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Случалось ли вам замечать интересную особенность: живешь целый год, и все дни похожи один на другой, но как только приближается новогодняя ночь, начинают происходить удивительные события?! Видно, такая уж это волшебная пора. Вот какие невероятные приключения случились с одним обыкновенным зайчиком, который жил в обыкновенном лесу.
+
+Для дошкольного возраста.Жанр: Детская литература/СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF0C0540C80DD6AB810CB00CD4027664B8E45777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436875   (1042819) от 02.01.2021
+
+Mr. Smith - Smith Sessions Radioshow 239-240 (Vocal Trance 2020 Top 40) (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smith Sessions Radioshow 239 (Vocal Trance 2020 Top 40 - Part I):
+01. Kbk & Grande Piano Ft. Agata Pasternak - Mystery Of Tomorrow (Vocal Mix)
+02. Woody van Eyden DJ T.H. & Cari - Drowning
+03. Joyline Snow - Heart Beating(   Читать дальше...   )Жанр: TranceПродолжительность: 03:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C8EDDBC9AD04D3A4A43D4ADF1986391D240A44F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436919   (1042818) от 02.01.2021
+
+VA - Nine Years Of Techno: Selected by Greencross (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rephlekt – Pushit (06:07)
+02. Orion – Amphibia II (04:56)
+03. Lisa Oakes – Traction (06:13)
+04. Rafa Ortega – Detone (06:21)(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B69DB8ADCEBA2FA31951B8084935E020148C7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436749   (1042817) от 02.01.2021
+
+Miklagard (Miklagård) - Miklagard (1979) Remastered, 2020, Paisley Press [FLAC|Lossless|image + .cue] <Symphonic Prog, Progressive Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042817.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Desecration of God (5:09)
-02. Fire Ignites (3:54)
-03. Born to Kill (3:19)
-04. Bleeding for Blasphemy (5:18)(   Читать дальше...   )Жанр: Death Metal, Gothic MetalПродолжительность: 00:45:28
+01. Kastraten 3:09
+02. Trälen 3:34
+03. Astrologen 3:57
+04. Narren 4:44(   Читать дальше...   )Жанр: Symphonic Prog, Progressive RockПродолжительность: 00:35:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3682DFBC558ED1242A5B4B535A7C79D45792314
+magnet:?xt=urn:btih:3CF58FB8D0A398122F9E3A9755AD8E7EFE45C998
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,113 +304,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610378   (1042193) от 08.02.2023
+###  Публикация: 1436888   (1042816) от 02.01.2021
 
-VA - Winter 2023 (2023) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hyunji-A - This Too Shall Pass (Hakan Ozurun Remix) [7:36]
-02. Manuelo & Joan Dik - High Skies (Tojogo Remix) [7:36]
-03. XSPANCE - Hope (Nic Rinaldi Remix) [6:56]
-04. Matías Delóngaro - Espuma En Sal (Maxi Welchen Remix) [7:50](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 03:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE62F475384C6FD629152E1522E990BEEB51CDCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610631   (1042192) от 08.02.2023
-
-Perfectly Clear WorkBench 4.3.0.2418 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными воспоминаниями. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEF3DB595D655B2C872C9C011CF280904487A907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610646   (1042191) от 08.02.2023
-
-VA - High Voltage 2022 Year Mix (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AzureZenith - Recovery (Orchestral Mix) (00:56)
-02. Pink Pig - Under the Moonlight (Original Mix) (08:36)
-03. Super Luminal - Polaris (Original Mix) (07:52)
-04. DJ Frost - Don't Leave Me (Original Mix) (07:48)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B1FE1DD62CC149461265F7E8CA9FCF848C5547D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610486   (1042190) от 08.02.2023
-
-VA - Trance Compilation Vol. 2 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Kryder - Kryteria Radio 271 (Best Of 2020) 2020-12-30 [MP3|192 Kbps] <House, Tech House, Progressive House>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042816.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Deejay Balius - Changes (Tremonjai Remix) [8:07]
-02. Puddle EcoSystem - Say No More (Original Mix) [7:07]
-03. Tremonjai - Aliento (Original Mix) [6:09]
-04. Deepyetbeats - Dreams For Love (Original Mix) [6:58](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:33:50
+01. David Guetta & MORTEN - Kill Me Slow
+02. Kaskade & BROHUG - 1990
+03. Michael Calfan - Last Call (2013 Version)
+04. SWACQ - Horny Horns(   Читать дальше...   )Жанр: House, Tech House, Progressive HouseПродолжительность: 02:46:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16E6EDE1759E537E00FC85BA397C6E98F2CC048E
+magnet:?xt=urn:btih:80C8A7844D0267DE02503D22DACDE129127EFE83
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -170,86 +333,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610571   (1042189) от 08.02.2023
+###  Публикация: 1436931   (1042815) от 02.01.2021
 
-Dave Kerzner - The Traveler (2022) 2CD, Special Edition [FLAC|Lossless|tracks + .cue] <Progressive, Symphonic, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Another Lifetime
-02 - Ghostwritten Fables
-03 - A Time In Your Mind
-04 - For Granted(   Читать дальше...   )Жанр: Progressive Rock, Art Rock, Symphonic RockПродолжительность: 01:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17EF5BE2924C7814B8DB02D900F89E1EAA3E9423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610634   (1042188) от 08.02.2023
-
-The John Irvine Band - Scanning The Dark Horizon (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Fusion>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scanning the Dark Horizon (7:19)
-02. The Cloud Seeders (4:25)
-03. Solar Winds (5:37)
-04. Of Seas and Oceans (4:19)(   Читать дальше...   )Жанр: Progressive Rock, FusionПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04EC325237BB1DF6E8DFA0B71AAE2C4C5EC5AD32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610622   (1042187) от 08.02.2023
-
-VA - Top 10 January 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
+VA - Nine Years Of Techno Part 2: Selected by Greencross (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 
 >>Electronic
->>Trance
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042815.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Elissandro - Memorias Del Pasado (Original Mix) (07:18)
-02. Ishiro - Epiphany (VIP Mix) (06:44)
-03. Alphacube - Night Shift (07:45)
-04. Sam Fletcher - Seeds of Love (07:35)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:13:32
+01. Ken Ishii – TwitchedЖанр: TechnoПродолжительность: 02:21:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5564A60D3D94F98FC085A1078A85A14F9E4F04C6
+magnet:?xt=urn:btih:C5648DCAB6D60900D3D7E731CE968E75F4574AE3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -257,25 +359,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437146   (1042186) от 04.01.2021
+###  Публикация: 1436924   (1042814) от 02.01.2021
 
-Hidden Expedition 20: Reign of Flames / Секретная экспедиция 20: Царство огня (2020) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+Rubicon - Demonstar (2021) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 
->>Win Игры
->>Adventure/Quest (Casual)
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042814.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После тяжёлых трудовых будней в агентстве H.E.L.P. Вы наконец-то получаете заслуженную награду - отпуск! Пользуясь случаем, Вы отправляетесь в гости к своему давнему другу, сейсмологу по имени Макана, обосновавшемуся на небольшом островке в Новой Зеландии. Вместе с ним и его новой подругой Вам выпадает шанс изучить недавно открывшуюся на острове пещеру, скрывавшую (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+01. Demon star (04:07)
+ 02. Neon Gladiators (04:32)
+ 03. Last floor of hell (05:55)
+ 04. Down in darkness (05:55)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:59:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6EC7882E517103CDBBC44668822979528CF112B9
+magnet:?xt=urn:btih:3DCD56542FD158A9EE631CB401D9CCE4B3A794E4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -283,26 +388,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437301   (1042185) от 04.01.2021
+###  Публикация: 1436896   (1042813) от 02.01.2021
 
-Стивен Кинг | Тёмная Башня 7: Тёмная Башня (2020) [MP3]
+The Blizzard - Nostalgia Mixset (The Blizzard's Favorite Classics) (2020-12-24) [MP3|320 Kbps] <Trance>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042813.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Наступают последние дни странствия Роланда Дискейна и его друзей. Тёмная Башня — всё ближе...
-Дитя-демон Мордред, которому силы Тьмы предрекли жребий убийцы Роланда, вырос — и готов исполнить свою миссию. Всё сущее служит Лучу? Всё сущее служит Алому Королю?Жанр: Фантастика, фэнтези, мистикаПродолжительность: 36:59:42
+01. Andy Duguid feat. Julie Thompson - Falling
+02. Michael Cassette - Zeppelin
+03. Cicada - Beautiful (Michael Gray Remix)
+04. Andrew Bayer - Counting The Points(   Читать дальше...   )Жанр: TranceПродолжительность: 02:08:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C42839FDB388CB60B5BE6D4C4D8FAE2F496AD52
+magnet:?xt=urn:btih:EBBA998E0FA597EA1FA67C9079A7BD06A5F1A74B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -310,28 +417,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437329   (1042184) от 04.01.2021
+###  Публикация: 1436839   (1042812) от 02.01.2021
 
-Jean-Michel Jarre - Welcome To The Other Side (Concert From Virtual Notre-Dame) (2021) WEBRip [H.264/1080p-LQ]
+Muntro Coutant - 2020 Out (2020) [MP3|320 Kbps] <Alternative Rock, Indie, New Wave>
 
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042812.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - The Opening (VR Live) [00:03:28]
-02 - Oxygene 2 (JMJ Rework of Kosinski Remix) [00:04:33]
-03 - The Architect (VR Live) [00:03:23]
-04 - Oxygene 19 (VR Live) [00:03:45](   Читать дальше...   )Жанр: ElectroПродолжительность: 00:55:30
+01. Stunt (04:01)
+ 02. Raise Those Daisies (03:42)
+ 03. Superfluous (05:35)
+ 04. Papaya (I'll Thank You) (03:39)(   Читать дальше...   )Жанр: Alternative Rock, Indie, New WaveПродолжительность: 01:00:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB4CA422D603614D9C6545205E69105B5B995B55
+magnet:?xt=urn:btih:6C48C76416D2B49DC1A5CAE69E6501DF6E467314
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -339,236 +446,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437284   (1042183) от 04.01.2021
+###  Публикация: 1436891   (1042811) от 02.01.2021
 
-Шамиль Ахмадуллин | Скорописание. Как научить ребенка писать быстро и красиво. Книга-тренинг (2020) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042183.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Он пишет, как курица лапой…» - слышали когда-нибудь такое? А может, сами говорили своему ребенку?
-Думаете, плохой почерк - это врожденное или особенность конкретного ребенка? Нет! Это лишь результат неправильного обучения или его отсутствия.
-Перед вами 18-дневный тренинг, который в игровой форме поможет ребенку не только улучшить почерк, но и научиться писать значительно (   Читать дальше...   )Жанр: Досуг для детей, Головоломки, игры, заданияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760419CA2B15FDD88DF7BF56C9B299A545AE8616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437239   (1042182) от 04.01.2021
-
-Udemy, Brad Traversy | Bootstrap 4 с нуля с 5 проектами / Bootstrap 4 From Scratch With 5 Projects (2019) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы изучите все утилиты, компоненты, виджеты и сетки и создадите реальные темы и веб-сайты. Вам не нужно знать Bootstrap 3 для этого курса. Даже если вы уже знакомы с Bootstrap 4, пропустите обучающие разделы и сразу перейдите к разделу 6, чтобы создать простую тему и начать проекты. Все полностью модульно!
-Я создал полностью настраиваемую среду обучения HTML для (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 11:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D98FE15F89B6FC41A08AD2C03AC963BF465A94B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431315   (1042181) от 04.01.2021
-
-Здравствуйте, я ваша тетя! (1975) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042181.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам пьесы Б. Томаса «Тетка Чарлея». Действие происходит в начале ХХ века. Безработный Бабс попадает в богатый дом, где вынужден, переодевшись в женскую одежду, сыграть роль тетушки-миллионерши, чтобы помочь двум юношам жениться на их возлюбленных...Производство: CCCР / ТО ЭкранЖанр: комедияРежиссер: Виктор ТитовАктеры: Александр Калягин, Михаил Козаков, Армен Джигарханян, Валентин Гафт, Татьяна Васильева, Тамара Носова, Татьяна Веденеева, Михаил Любезнов, Олег Шкловский, Галина ОрловаСубтитры: ОтсутствуютПродолжительность: 00:49:25 + 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F8FDA986944C8253F041C927253F2B88024F15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437382   (1042180) от 04.01.2021
-
-Тёмный мир: Равновесие (2014) WEBRip [H.264/720p-LQ] (серии 1-12 из 12)
-
->>Отечественные сериалы
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из Темного мира в мир людей просачиваются Тени. Эти голодные замерзшие существа питаются жизненной силой людей, их радостью, любовью и временем. Сила зла растет, и Портал между мирами вот-вот будет разрушен. Команда посвященных каждый день поддерживает хрупкое равновесие, но даже они не могут противостоять надвигающейся катастрофе. И только настоящая Любовь сможет (   Читать дальше...   )Производство: Россия / Централ ПартнершипЖанр: фэнтези, приключенияРежиссер: Олег АсадулинАктеры: Мария Пирогова, Павел Прилучный, Владислав Абашин, Александр Ратников, Евгения Брик, Григорий Скряпкин, Валерия Ланская, Макар Запорожский, Игорь Черневич, Петр СемакПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90DF6CA52C3AC055E1196BC414227C9063D93F8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437390   (1042179) от 04.01.2021
-
-Тайны Великой пирамиды Гизы / Decoding the Great Pyramid (2018) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великая пирамида на плато Гиза – один из самых известных памятников древности. Шесть миллионов тонн камня обрабатывали и перевозили в течение тридцати лет, чтобы создать священную гробницу. Это грандиозное сооружение было порталом в загробный мир. Недавно египтологи и археологи раскрыли новые тайны о структуре Великой пирамиды. Как же удалось древнеегипетским инженерам (   Читать дальше...   )Производство: США, NOVA Production, Blink FilmsЖанр: Документальный, историяРежиссер: Том ФоулиПеревод: Двуголосый закадровый, профессиональный (СВ-Дубль)Субтитры: АнглийскиеПродолжительность: 00:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E512307B6282069007595E1D078651ED35D30BE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436911   (1042178) от 04.01.2021
-
-Осторожно, Кенгуру! / Die Kanguru-Chroniken (2020) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марк — музыкант, живущий в заброшенной квартире в Берлине. Однажды раздается звонок в дверь, и он оказывается лицом к лицу с говорящим Кенгуру. Быстро убедив Марка, что вместе им будет гораздо веселее, Кенгуру без дальнейших церемоний переезжает в его холостяцкое жилье. С этого момента он начинает править жизнью Марка, задавая ему философские вопросы и доставляя (   Читать дальше...   )Производство: Германия / X-Filme Creative Pool, Zweites Deutsches Fernsehen (ZDF), TrixterЖанр: КомедияРежиссер: Дани ЛевиАктеры: Дмитрий Шаад, Розалия Томас, Аднан Марал, Фолькер Михаловски, Тим Сейфи, Кармен-Майя Энтони, Беттина Лампрехт, Хенри Хюбхен, Марк-Уве Клинг, Фред Аарон БлакеПеревод: ДублированныйЯзык озвучки: Русский, украинский, английскийСубтитры: АнглийскиеПродолжительность: 01:32:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C49B94E497AFC286526F5F7D40DCCEEADFFB3E20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 286662   (1042177) от 04.01.2021
-
-«Педагогика» | Энциклопедический словарь юного музыканта (1985) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042177.jpg" />
-</div>
-
-
-###  Подробнее
-
-В словаре даются сведения по видам и жанрам музыки, о музыкальных инструментах, рассказывается о детском музыкальном творчестве и детских музыкальных коллективах, освещается творческий путь композиторов и исполнителей внесших значительный вклад в развитие мировой музыкальной культуры. Словарь содержит практические советы: как научиться слушать музыку, собрать фонотеку, (   Читать дальше...   )Жанр: Музыкальное образование, культурное развитиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3CF29DF5DC2BA8EC0A60B076CCFF8DF17291FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430258   (1042176) от 04.01.2021
-
-За спичками (1979) WEBRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042176.jpg" />
-</div>
-
-
-###  Подробнее
-
-В доме Ихалайнена кончились спички и невозможно развести огонь для приготовления так любимого финнами кофе. Потом случайная встреча с приятелем, и как следствие того, нарушение данного двадцать лет назад зарока не брать в рот спиртного. Затем неожиданное свидание в городе Юсси Ватанена со своей старой подружкой…Производство: СССР, Финляндия / Мосфильм, Suomi-FilmiЖанр: Комедия, приключения, историяРежиссер: Леонид Гайдай, Ристо ОркоАктеры: Евгений Леонов, Вячеслав Невинный, Рита Полстер, Ритва Валкама, Георгий Вицин, Галина Польских, Кауко Хеловирта, Лео Ластумаки, Пекка Аутиовуори, Леонид КуравлевЯзык озвучки: Русский, ФинскийСубтитры: ОтсутствуютПродолжительность: 01:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:453E149A311525FD8344BD89F4E178A3D22F3771
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437278   (1042175) от 04.01.2021
-
-Клуб «Кастет» / Knuckledust (2020) WEB-DL [H.264/720p]
+CamelPhat - Tomorrowland Friendship Mix (2020-12-10) [MP3|320 Kbps] <Deep House, Progressive House>
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042811.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бойцовский клуб «Кастет» – настоящая подпольная империя для элиты всех мастей. Каждая схватка здесь – убийственное шоу, а заправляет всем настоящая акула теневого бизнеса. Однако с появлением нового бойца адреналин в клубе достигает высшей точки и выливается в массовую бойню. Среди бесчисленных трупов полиция обнаруживает одного единственного выжившего. Но кто он (   Читать дальше...   )Производство: Великобритания, Франция / Featuristic Films, Head Gear Films, Metrol TechnologyЖанр: Боевик, триллерРежиссер: Джеймс КермакАктеры: Мо Данфорд, Кейт Дики, Гетин Энтони, Себастьен Фукан, Гийом Делони, Оливье Рихтерс, Филип Дэвис, Эми Бэйли, Джеми Уинстон, Алекс ФернсПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:45:29
+01. One World Radio - The Sound of Tomorrowland
+02. CamelPhat & Elderbrook - Dance With My Ghost
+03. DJ T. - Trans Orient Express (Adana Twins "A Night At EGO" Version)
+04. AFFKT - Torpedo(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:09:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D0988DBDA372D8A83AAA348293654261C5545F6
+magnet:?xt=urn:btih:876C6676142C239C2CE91E2DC4398412AB996FDD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -576,26 +475,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437334   (1042174) от 04.01.2021
+###  Публикация: 1436835   (1042810) от 02.01.2021
 
-SIGERSHADERS XS Material Presets Studio 2.6.1 [En]
+Tungsten - Tundra (2020) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
 
->>След.
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042810.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SIGERSHADERS XS Material Presets Studio - это обновлённая библиотека материалов для 3ds Max + V-ray/Corona/Octane, включающая в себя User Library material manager.
-Коллекция состоит из различных категорий материалов. Будь то: металлы, ткань, стёкло и т.д.Язык интерфейса: Английский
+01. Lock and Load
+02. Volfram's Song
+03. Time
+04. Divided Generations(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:46:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B41750E453D28D3608F8957EE32FC500903184B6
+magnet:?xt=urn:btih:2BE5F445B553447D83A32FF9DCAD6A01B96FBF58
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -603,25 +504,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437237   (1042173) от 04.01.2021
+###  Публикация: 1436967   (1042809) от 02.01.2021
 
-NG. Доисторические хищники / Prehistoric Predators (2007-2009) HDTV [H.264/1080i] (сезон 1, серии 1-7 из 7)
+Chris Turner - Rock 'n' Roll Man (2020) [MP3|320 Kbps] <Classic Rock>
 
->>Зарубежные TV-бренды
->>Доисторический мир
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042809.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Прежде чем на Земле появились люди она являлась домом для удивительных хищников, господствовавших миллионы лет. С помощью компьютерной анимации ученые возвратили их к жизни с тем, чтобы показать строение, поведение и понять причины их исчезновения.Производство: США / Creative Differences Productions, National Geographic TelevisionЖанр: История, ДокументальныйПеревод: Одноголосый профессиональныйЯзык озвучки: Русский (АРК-ТВ), Английский, Французский, Польский, ТурецкийСубтитры: ОтсутствуютПродолжительность: 7 x ~ 00:47:00
+01. Rock 'n' roll outlaw (03:30)
+ 02. Demon's eye (04:24)
+ 03. Money (03:07)
+ 04. Layla, pt. 2 (04:09)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:47:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56116CE43E1AFD41977DABE2B7067DA7115EE489
+magnet:?xt=urn:btih:2DFBEE670B67ADFB91E8B02A8EFC28935F689D7F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -629,27 +533,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 338317   (1042172) от 04.01.2021
+###  Публикация: 1436727   (1042808) от 02.01.2021
 
-С.Е. Гаврина, Н.Л. Кутявина, И.Г. Топоркова, С.В. Щербинина  | Вся дошкольная программа. Мышление. (2008) [PDF]
+Dread Sovereign - Alchemical Warfare (2021) [MP3|320 Kbps] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Curse on Men [00:00:59]
+02. She Wolves of the Savage Season [00:10:08]
+03. The Great Beast We Serve [00:04:51]
+04. Nature Is the Devil's Church [00:08:25](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC99E0059221D1A1D7D0CF6030E31011EB655FB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436914   (1042807) от 02.01.2021
+
+Алиса Ткачева | Наблюдаем и изучаем. Птицы (2019) [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
+>>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042807.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книги этой серии представляют собой полный и эффективный курс подготовки ребенка к школе.
-Они разработаны в соответствии с дошкольными программами, одобренными и рекомендованными Министерством образования РФ.
-Настоящая книга поможет всесторонне развить логическое и пространственное мышление ребенка перед поступлением в школу - научит его сравнивать предметы, находить (   Читать дальше...   )Жанр: Обучающие книги для дошкольниковФормат: PDF
+Какие бывают птицы? Где они живут и чем питаются? Куда и почему улетают на зимовку перелётные птицы и как справляются с холодом те, что остаются? Книга «Птицы» расскажет о жизни удивительных пернатых, которых мы часто видим на улицах или в парках, и позволит принять активное участие в их жизни.
+
+Множество интересных заданий и игр помогут лучше усвоить прочитанное, (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22CE94066673187122D6C722F0EA762F2F8FD97A
+magnet:?xt=urn:btih:70878983775D9FDB265A257445F5A8809C24A339
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -657,25 +590,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437277   (1042171) от 04.01.2021
+###  Публикация: 1437004   (1042806) от 02.01.2021
 
-Клуб «Кастет» / Knuckledust (2020) WEB-DLRip
+If These Trees Could Talk - The Bones Of A Dying World (2016) [FLAC|Lossless|tracks + .cue] <Post Rock, Instrumental, Post Metal>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042806.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бойцовский клуб «Кастет» – настоящая подпольная империя для элиты всех мастей. Каждая схватка здесь – убийственное шоу, а заправляет всем настоящая акула теневого бизнеса. Однако с появлением нового бойца адреналин в клубе достигает высшей точки и выливается в массовую бойню. Среди бесчисленных трупов полиция обнаруживает одного единственного выжившего. Но кто он (   Читать дальше...   )Производство: Великобритания, Франция / Featuristic Films, Head Gear Films, Metrol TechnologyЖанр: Боевик, триллерРежиссер: Джеймс КермакАктеры: Мо Данфорд, Кейт Дики, Гетин Энтони, Себастьен Фукан, Гийом Делони, Оливье Рихтерс, Филип Дэвис, Эми Бэйли, Джеми Уинстон, Алекс ФернсПеревод: Дублированный (iTunes)Субтитры: Русские, английские (отдельно)Продолжительность: 01:45:29
+01. Solstice (7:50)
+02. Swallowing Teeth (4:27)
+03. Earth Crawler (6:38)
+04. After The Smoke Clears (6:18)(   Читать дальше...   )Производство: Metal Blade Records – 3984-15461-2Жанр: Post Rock, Instrumental, Post MetalПродолжительность: 00:54:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B5E57F2C1DE6D82228F2421F7F6C9194ADA401C
+magnet:?xt=urn:btih:DE0FA16CC6B26211BA86FE4B707F69110409E8C2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -683,25 +619,105 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437344   (1042170) от 04.01.2021
+###  Публикация: 1436976   (1042805) от 02.01.2021
 
-Темная гавань / Dark Harbor (2019) WEB-DLRip [MVO]
+Дмитрий Смирнов, Елена Хомич | Научно-популярная библиотека начальной школы. Кошки и котята (2017) [PDF]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042805.jpg" />
 </div>
 
 
 ###  Подробнее
 
-За считанные дни до рождения первенца, Оливия возвращается на остров, где она провела свое детство, чтобы похоронить убитого отца и вновь встретиться с нарциссичной матерью. Но вскоре один за другим начинают открываться мрачные семейные секреты, и жизнь Оливии оказывается под угрозой.Производство: США / APS FilmsЖанр: ТриллерРежиссер: Джо РаффаАктеры: Стерлинг Херст, Джиллиан Арменанте, Марк Эткинсон, Рейко Эйлсворт, Ксандер Беркли, Алекс Коппола, Али Драммонд, Меган Фэй, Брайан Галлахер, Майкл ХэмилтонПеревод: Многоголосый закадровый, профессиональный (Русский репортаж)Субтитры: ОтсутствуютПродолжительность: 01:27:32
+Хочешь завести кошку, или просто узнать, какие существуют породы этих замечательных домашних питомцев? Тогда смело открывай нашу книгу! На ее страницах найдется много информации об особенностях поведения разных кошек и правильном уходе за ними.
+
+Для младшего школьного возраста.Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E92B6EA99F42C9AA24A9D63F9CA5BC5B8EA1D4F
+magnet:?xt=urn:btih:6226E53214F054A568E6A09AB97448C91D0C2881
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436956   (1042804) от 02.01.2021
+
+Наталья Гончарук, Марина Почкина | Большая книга вопросов и ответов. Где? (2012) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042804.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой увлекательной книге собраны рассказы о мифах и легендах, о природе и географии, о памятниках культуры, о народах, обычаях, религии, о науке, изобретениях и открытиях, о спорте, играх и развлечениях на всех материках нашей Земли. Текст дополняют великолепные иллюстрации и карты. Здесь нет ни слишком сложных вопросов, ни непонятных ответов. Эта книга — интересное (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2496FA26414D00890F70C92E84C2FDBEA7A5F8A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436918   (1042803) от 02.01.2021
+
+Мэйбл Норманд. Барни Олдфилд мчится, спасая жизнь / Barney Oldfield's Race for a Life (1913) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042803.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой небольшой ленте сконцентрированы практически все характерные черты творчества великого американского комедиографа, "отца американской комической" Мака Сеннета. Невероятный сюжет, симпатичные влюбленные, страшный негодяй, ужасное злодейство, цепи, пистолеты, бомбы, бешеные гонки, куча "кейстоунских" полицейских и happy end!Производство: США, Keystone Film CompanyЖанр: Комедия, короткометражный, немое киноРежиссер: Мак СеннетАктеры: Мэйбл Норманд, Мак Сеннет, Форд Стерлинг, Барни Олдфилд, Реймонд Хаттон, Уильям Хаубер, Хелен Холмс, Руб Миллер, Кармен ФиллипсЯзык озвучки: НемойСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2571301AF11AE2AC394C4DE2CFED1792E2552884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436990   (1042802) от 02.01.2021
+
+Владимир Малов | А почему? Обо всём на свете (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042802.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге В.И. Малова - писателя-популяризатора, журналиста и ответственного редактора журнала "А почему?" - "Обо всём на свете" собраны ответы на самые интересные вопросы о науке, технике, природе, искусстве, которые только может задать юный почемучка: какое дерево самое высокое, сколько километров до ближайших звёзд, когда погаснет наше солнце, (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC9019FCFAA488BFB2DEB48DC32675E442DAE117
 ```
 
 https://mybot314.ru/tekegram_catalog/

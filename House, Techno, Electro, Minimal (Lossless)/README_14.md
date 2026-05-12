@@ -1,3 +1,32 @@
+###  Публикация: 1047498   (883567) от 10.09.2021
+
+Yagya - Discography 19 Releases (2002-2021) [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Minimal, Ambient>
+
+>>След.
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Other Side Of Despair (06:55)
+ 02. Distorted Dualism (06:44)
+ 03. Standing Still In A River (06:45)
+ 04. Two Moments (06:52)Тип издания: CD, Web, VinylЖанр: Dub Techno, Minimal, Techno, Ambient •Продолжительность: 19:53:05 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3644A45439399DDF453596981EB6BB7D2F6EED56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103663   (883538) от 13.02.2017
 
 Deep Dish - Junk Science (1998) [APE|Lossless|image + .cue] <Deep House>
@@ -713,35 +742,6 @@ VA - 538 Dance Smash 2016 Vol.1 (2016) [FLAC|Lossless|image + .cue] <House, Pop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:991C47F092364E0B867ED222AAC078E165786300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108609   (862336) от 25.02.2017
-
-VA - Ethereal Techno #003 (2017) [FLAC|Lossless|WEB|tracks] <Techno, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Peters - Two of Us (Soul Button Remix) (8:27)
-02. Slow Hearts - Exium (7:30)
-03. Tim Engelhardt - Trust (8:38)
-04. Simon Sizer - Seven Against Thebes (8:53)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 02:23:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D24B33B8B0A964375A6A3D0A058DA85CE34481
 ```
 
 https://mybot314.ru/tekegram_catalog/

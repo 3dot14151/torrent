@@ -1,135 +1,22 @@
-###  Публикация: 1136057   (677160) от 21.05.2017
+###  Публикация: 1290576   (678478) от 20.03.2019
 
-The Deep - Psychedelic Moods (1966) Reissue, 2004, Radioactive [MP3|320 Kbps] <Garage, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Color Dreams
-02. Pink Ether
-03. When Rain Is Black
-04. It's All A Part Of Me(   Читать дальше...   )Жанр: Garage, Psychedelic RockПродолжительность: 00:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D5A544804C78D557C3ED7D50289F00CE3995B7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136059   (677159) от 21.05.2017
-
-А. Я. Канторович | Америка в борьбе за Китай (1935) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор поставил своей задачей проследить исторический путь Америки в ее борьбе за китайский рынок, начиная с конца XVIII в. вплоть до наших дней. Последовательные этапы этой борьбы характеризуются автором на фоне параллельного анализа сдвигов, происходивших в Соединенных штатах, в международно-политической ситуации и в самом Китае. В главах, относящихся к довоенному (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C407FFAF0A58939FDD5F78AFA223F4567526D5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136133   (677158) от 21.05.2017
-
-Titanic - Eagle Rock (1973) Reissue, 2000, Repertoire Records [MP3|320 Kbps] <Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Night In Eagle Rock
-02. All Around You
-03. One Of Your Kind
-04. Heia Valenga(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:57:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B661231F124945FFB5AE1A0877BCEC0BCA7001A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136037   (677157) от 21.05.2017
-
-VA - Techno Club Vol. 52 (Mixed by Talla 2XLC & ReOrder)(2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mixed by Talla 2XLC
-01. Robert Nickson - Heliopause (06:09)
-02. Talla 2XLC - Infinity (extended mix) (03:29)
-03. Alex Morph & Kim Kiona - Coming Home (vocal mix) (05:33)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA2B4BAF9229BBF796802C7B8257B3B329D0239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136054   (677156) от 21.05.2017
-
-Журнал | Дачный совет №10 (2017) [DJVU]
+Журнал | AD / Architectural Digest [France] №3-4 (март-апрель 2019) [PDF] [Fr]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678478.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Верный помощник для садоводов и огородников в самый разгар дачных работ. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации адвоката, а также календарь дачных работ.Жанр: Дача, огородФормат: DJVU
+Ведущий международный журнал об архитектуре и дизайне. Издается в Америке с начала 20-х годов. За долгие годы завоевал репутацию законодателя интерьерной моды, сформировал вкусы нескольких поколений, источник вдохновения в искусстве создания идеального жизненного пространства.Жанр: Дизайн, архитектураФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34E044709D02DD9E19269D97B069868412EF61CF
+magnet:?xt=urn:btih:4FA6E877540C758CEBDF7CFA0CF7FF19B60E7187
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,28 +24,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136001   (677155) от 21.05.2017
+###  Публикация: 1290575   (678477) от 20.03.2019
 
-М. И. Рафес | Китайская революция на переломе [3-е изд.] (1927) [PDF]
+Third Party - Together (2019) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Higher
+02. Free
+03. Remember
+04. Together(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C093CDBA6D55F4D79988B57D250F8E76D6AE588A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290406   (678476) от 20.03.2019
+
+Х. Чойбалсан | Краткий очерк истории монгольской народной революции (1952) [DJVU]
 
 >>Научная и техническая литература
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678476.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предисловие:
+Настоящая работа маршала Чойбалсана представляет собой краткий очерк истории монгольской народной революции, в результате которой монгольский народ под руководством народно-революционной партии сбросил власть феодалов и иноземных колонизаторов и встал на путь строительства народно-демократического государства.
 
-Настоящее третье издание брошюры о китайской революции (1-е. издание вышло под названием «Китайская революция», 2-е. «Китайская революция и измена Чан Кай-Ши») выходит в значительно расширенном и дополненном виде.
-(   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+Борясь за свободу и независимость монгольского народа, (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:023C9CDC67FE5D3C2980435E2E6F32FE62CC3905
+magnet:?xt=urn:btih:FA090C34F744AEC83CAADAB09B6528AA1A4BF2A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,26 +81,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135739   (677154) от 21.05.2017
+###  Публикация: 1290591   (678475) от 20.03.2019
 
-Святослав Тараховский | Вкус близости (2017) [MP3]
+Журнал | Story [Россия] №4 (122) (апрель 2019) [PDF]
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678475.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Любовь - преданность? Любовь - предательство? Любовь - безумие? Любовь - лучшее, что есть на белом свете?
-В своем новом романе "Вкус близости" Святослав Тараховский с присущей ему иронией испытывает героев в фарсовых, порой пугающих, даже отчаянных ситуациях для ответа на вопрос: что есть современная любовь, что значат в ней слова, благородные намерения (   Читать дальше...   )Жанр: ПрозаПродолжительность: 09:53:45
+"STORY" не исторический журнал, а журнал историй, которые позволяют увидеть и понять многообразность человеческих судеб.
+Наши герои - исторические и современные, персоны знаковые, определившие лицо своего времени и поколения, сумевшие изменить ход истории, будь то история кинематографа, живописи, литературы, музыки, науки . или же истории в широком понимании (   Читать дальше...   )Жанр: ПублицистикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F9E580183E6DD0BD0A079C3554060F3C303C853
+magnet:?xt=urn:btih:4A1E7BC69DDF18CC028F4B3060BDD127C68AA5E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -193,25 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136250   (677153) от 21.05.2017
+###  Публикация: 1029602   (678474) от 28.06.2016
 
-Где логика? (2017.05.21) SATRip (сезон 4, выпуск 13)
+Elephant Plaza - Momentum (2016) [FLAC|Lossless|tracks] <Progressive Rock>
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678474.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Звездные семейные пары, партнеры по съемочной площадке, просто хорошие друзья и знакомые будут вместе пытаться выстраивать логические связи между самыми, казалось бы, нелогичными событиями, предметами или фактами. Почему мы оставляем официантам на чай, но не оставляем врачам на бинты? Для чего нам мизинцы на ногах? Зачем мыть машину в ноябре? Почему существует сухое (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:4:Реклама: Присутствуют вставки текстовой рекламы
+01. Naked
+02. Southwest
+03. Paralyzed
+04. All The Way(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:02:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE330A3A70863B06501786FDAC18379FCD3158C5
+magnet:?xt=urn:btih:A36B35E7E23860087810709945B7DBB4E3167022
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -219,192 +137,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136018   (677152) от 21.05.2017
+###  Публикация: 1029453   (678473) от 28.06.2016
 
-К. Е. Дмитрук | Не имеющие родины (1974) [DJVU] [Ua]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Украинские буржуазные националисты запятнали себя тяжелыми преступлениями против советского народа.
-
-Эта книга - публицистический очерк, в котором на основании неопровержимых документов (в том числе и показаний самих националистических предателей) убедительно показано, как оуновцы помогали немецко-фашистским захватчикам в подготовке нападения на Советский Союз. Позорную (   Читать дальше...   )Жанр: История, политология, экономика, религиоведение, документалистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5EA1764E0D191BEFCF09967997CAE44FF590455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136096   (677151) от 21.05.2017
-
-Duplicate Photos Detective 1.0.2 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Duplicate Photos Детектив помогает быстро найти дубликаты  изображений
- Duplicate Photos Detective - превосходный инструмент, который помогает пользователям находить дубликаты фотографий и удалять их с Mac. Это приложение упрощает процесс идентификации и удаления повторяющихся фотографий. У Duplicate Photos Detective есть привлекательный интерфейс, который достаточно (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 мая 2017Разработчик: CokeSoftПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988B226BE7B11BAAF0A3DB30F2AFE34E460062CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136003   (677150) от 21.05.2017
-
-Command-Tab Plus 1.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Command-Tab Plus - это удобный и быстрый переключатель приложений для Мак. Максимально ориентирован на работу "с клавиатуры" и благодаря использованию цифровых ярлыков а так же скрытию неактивных приложений, переключении между приложениями занимает существенно меньше времени.
-
-Так же обратите внимание на возможность "изолировать" приложения в (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.04.2017Разработчик: Sergii GerasimenkoПоддерживаемая ОС: OS X 10.6.0 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1387792F0BF35E4DDA3FC3A762686772A6A31F76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135934   (677149) от 21.05.2017
-
-Международная пилорама (2017.05.20) SATRip (выпуск 32)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677149.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Международная пилорама» сэкономит время телезрителей. Следить за политической обстановкой в мире, колебаниями курсов валют и новостями шоу-бизнеса теперь вовсе не обязательно. Каждую субботу Тигран Эдмондович в свойственной ему язвительной манере будет разбирать события мировой политики. Под огонь его едких комментариев попадут многие — от журналистов до политических (   Читать дальше...   )Производство: НТВЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 00:43:27Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0CEE67B780D6DC3B588E819F2AABF9D4E4459C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136019   (677148) от 21.05.2017
-
-Чудо техники (2017.05.21) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677148.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Чудо техники» — это доходчивый и интересный рассказ о новейших научных разработках, которые способны поменять или уже меняют нашу повседневную жизнь. Автор проекта — Сергей Малозёмов — хорошо знаком зрителям НТВ по репортажам программы «Сегодня», касающимся новых технологий, гаджетов, медицины. Он в курсе последних научных разработок и одним из первых узнает о значимых (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53A1519C71EAF8F9DB8D7669914307CCFC850F74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135873   (677147) от 21.05.2017
-
-Cobra Killer & Kapajkos - Das Mandolinenorchester (2005) [FLAC|Lossless|tracks + .cue] <Electro, Indie>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavy Rotation 3:23
-02. The Stoker 2:11
-03. Helicopter 666 3:45
-04. High Is The Pine 4:04(   Читать дальше...   )Жанр: Electro, IndieПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DF85B1F11FD772DD8BE029185CCDCA257A432C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136199   (677146) от 21.05.2017
-
-VA - Italo & Space Vol.37 (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth>
+VA - The Dome Summer  [2CD] (2016) [MP3|320 кб/с] <Pop>
 
 >>Неофициальные сборники
->>Прочее (сборники)
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678473.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Bobby O - Destiny Calls 3:33
-02.  Yakuro - Star Dance 4:59
-03.  Marco Rochowski - Game Of Love 6:31
-04.  Giuseppe Alicata - Parla Con Me 5:54(   Читать дальше...   )Жанр: Italo Disco, SpacesynthПродолжительность: 03:33:59
+CD1
+Пpодолжительность: 01:12:11
+
+01. Justin Timberlake - Can't Stop The Feeling!(   Читать дальше...   )Жанр: PopПродолжительность: 2:28:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87C8BF305C3820B4C36551FD54069102B5AB9886
+magnet:?xt=urn:btih:942A4B20BE93B50E55D5E90AE9B3961D32C75D1F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -412,28 +166,281 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135899   (677145) от 21.05.2017
+###  Публикация: 1029872   (678472) от 28.06.2016
 
-Massive Egо - Вeаutiful Suiсide (2017) 2CD [FLAC|Lossless|image + .cue] <SynthPop, EBM, Industrial>
+Семейная группа Родня - Маленькое семейное чудо (1991) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вступление (01:36)
+02. Дискобар (03:20)
+03. Оксана (03:43)
+04. Дождик (02:51)(   Читать дальше...   )Жанр: PopПродолжительность: 01:23:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F4D8FFA5BDDFAD48E04C9D41393253A92D95815
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029689   (678471) от 28.06.2016
+
+VA - Club Dance Ambience vol.75 (2016) [MP3|320 Kbps] <House, Electro House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678471.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Daniel Moss & Gandalf Bosch Feat. Francy -  Mi Alma (Instrumental Edit) 3:17
+002. KSHMR & Felix Snow feat. Madi -  Touch (Runway Remix) 4:56
+003. Hardwell feat. W&W -  Jumper (Madd Dave Bootleg) 4:53
+004. Robin Schulz feat. Akon -  Heatwave (Muzzaik Remix) 4:17(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 07:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:511301DAC97601D4003016B1BE0F9AA95330C9A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029415   (678470) от 28.06.2016
+
+Chicago - Take Me Back To Chicago (1989) Unofficial Release [APE|Lossless|image + .cue] <Jazz-Rock, Pop Rock, Funk, Classic Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_678470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby, What a Big Surprise
+02. Happy Man
+03. Take Me Back to Chicago
+04. If You Leave Me Now(   Читать дальше...   )Жанр: Jazz-Rock, Pop Rock, Funk, Classic RockПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029997   (678469) от 28.06.2016
+
+VA - Outburst presents Prism Volume 1 (Mixed by Mark Sherry & Alex Di Stefano) (2016) [MP3|320 Kbps] <Trance, Progressive House, Techno>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mauro Picotto - Eterea (Mark Sherry Remix)
+02. Mark Sherry & Dark Fusion Feat Jan Johnston - Deja Vu (Outburst Vocal Mix)
+03. Solarstone - Lost Hearts (Mark Sherry Remix)
+04. Mallorca Lee & Stephen Kirkwood - 2029 (Radio Edit)(   Читать дальше...   )Жанр: Trance, Progressive House, TechnoПродолжительность: 06:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22E3EB39667DEA21B430BE0C1E2C5872B2ACD37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029856   (678468) от 28.06.2016
+
+Gary Burton - Conception (1960-1962) 2CD, 2014, Cherry Red Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678468.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Storm [04:18]
+02.I've Just Seen Her [04:19]
+03.Fly Time Fly (Sigh) [04:31](   Читать дальше...   )Жанр: Post-BopПродолжительность: 02:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:905C167AD05D5F9831D75E9922B38DA64436B684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029687   (678467) от 28.06.2016
+
+DJ Nurlanus - Summer Dance Mix 5 (2016) [MP3|320 Kbps] <House, Dance Pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678467.jpg" />
+</div>
+
+
+###  Подробнее
+
+СборникЖанр: House, Dance PopПродолжительность: 01:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B058F1D4B5B34E4829C0C5548AF403127C650D71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029373   (678466) от 28.06.2016
+
+Billy Joel - 2000 Years: The Millennium Concert (2000) 2xCD [APE|Lossless|image + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Go to Extremes
+02. Goodnight Saigon
+03. We Didn't Start the Fire
+04. Big Man on Mullberry Street(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:331AE317D9F59ADDFA8A22266143E4849238C120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029663   (678465) от 28.06.2016
+
+VA - Energizing Workout Hits (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Newell And Jess Glynne And Dj Cassidy - Kill The Lights (Audien Remix)
+02. Andy Vayel - Pleasant Pain (Original Mix)
+03. Anthony Vince - Want To Dance (Radio Mix)
+04. Antoine Clamaran Feat. Lulu Hughes - Hallelujah (Extended Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 08:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC429F0B588EDC5978087045F327BF3F0867B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029599   (678464) от 28.06.2016
+
+Найдены вирусы, поражающие иммунную систему при помощи "украденных" CRISPR-цепочек
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_678464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученые-микробиологи из университета Британской Колумбии (University of British Columbia), Канада, обнаружили, что вирус типа Cyanophage N1, который заражает некоторые виды бактерий, обитающих в пресноводных водоемах, использует "украденные" раньше части ДНК "хозяев" для того, чтобы подавить реакцию их же иммунной системы. Этот тип вируса имеет (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029779   (678463) от 28.06.2016
+
+Funky DL - Out Of Touch b/w Le Jazz Courant Noir (The Jazz Lounge Remixes) (2016) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazzy Hop, Lounge>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678463.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ghost In My Dream (Prologue) (1:15)
-02. Low Life (feat. Maggie K DeMonde) (4:05)
-03. She Uses Sex (3:54)
-04. The Girl Who Finds Gifts From Crows (3:31)(   Читать дальше...   )Жанр: SynthPop, EBM, IndustrialПродолжительность: 01:51:01
+01. Out Of Touch (The Jazz Lounge Remix) (4:03)
+02. Le Jazz Courant Noir (The Jazz Lounge Remix) (2:59)Производство: Washington ClassicsЖанр: Hip-Hop, Jazzy Hop, LoungeПродолжительность: 00:07:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA0115E87274BAEDB6F105021761252C2F8ECEA1
+magnet:?xt=urn:btih:53E037FE25AA9D6D685C5DCBBC5AD6341448BF43
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -441,25 +448,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136021   (677144) от 21.05.2017
+###  Публикация: 1029889   (678462) от 28.06.2016
 
-Miya Translate 1.1 [Multi/Ru]
+Газета | 1000 секретов [Украина] №10 (Май 2016) [PDF]
 
->>Программы для macOS
->>Офис, Интернет для macOS
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678462.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Быстрый и удобный многооконный переводчик - если вы много работает с сервисом Google Translate, то наверняка оцените возможность Miya Translate выполнять перевод во множестве окон. Горячие клавиши для ускорения вашей работы: dызов окна переводчика, создание новых окон и вызов Menu bar Translator - все это можно сделать используя горячие клавиши!Тип издания: macOS SoftwareРелиз состоялся: 19.05.2017Разработчик: Sergii GerasimenkoПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
+«1000 секретов» - это полная энциклопедия домашнего хозяйства, в которой можно найти советы на все случаи жизни: по обустройству квартиры, по уходу за собой и растениями, о взаимоотношениях в семье, кулинарные рецепты и схемы вязания, а также многие другие. Перед вами издание, которое не только собирает по крупицам народную мудрость, но и дает возможность каждому (   Читать дальше...   )Жанр: Народные советыФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D27503D811ECB7A3AD4A3C5DB6C9A7BB2DEAFC2E
+magnet:?xt=urn:btih:BE52E0DE4246A786528485E19DC56C8276E5C3F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -467,25 +474,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136013   (677143) от 21.05.2017
+###  Публикация: 1029715   (678461) от 28.06.2016
 
-Владимир Тучков | Абсолютно голая реальность (2017) [MP3]
+Эмиль Габорио | Убийство в Орсивале (2016) [MP3]
 
 >>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678461.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге собраны рассказы московского прозаика Владимира Тучкова, знаменитого как своими романами («ТАНЦОР»), так и акциями в духе «позитивной шизофрении». Его рассказы – уморительно смешные, парадоксальные, хитрые – водят читателя за нос. Как будто в кунсткамеру, Тучков собирает своих героев – колдунов, наркоманов, некрофилов – и заставляет их выделывать самые нелепые (   Читать дальше...   )Жанр: РассказыПродолжительность: 01:58:43
+Французский писатель Эмиль Габорио — один из основателей и признанный мастер детективного жанра. Его романы переведены почти на все языки мира, ему подражали в своем творчестве такие великие авторы, как Роберт Льюис Стивенсон и Артур Конан-Дойль. Роман «Убийство в Орсивале» принес Габорио необычайную популярность. В нем он знакомит читателя с благородным и ловким (   Читать дальше...   )Жанр: ДетективПродолжительность: 14:58:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0FE5668448A150EF681CE08021694D6B981F431
+magnet:?xt=urn:btih:34BAC5D9309C4FCF7B8CC7AAB0EF551C7CD1D7B7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -493,28 +500,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192432   (677142) от 03.05.2018
+###  Публикация: 1029770   (678460) от 28.06.2016
 
-Вадим Мулерман - Голос Сердца (2007) [APE|Lossless|image + .cue] <Советская эстрада, Ретро>
+Funky DL - Autonomic (2016) Single [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Beats>
 
->>Pop
->>Советская эстрада, Ретро (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678460.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Голос сердца (В. Дмитриев - М. Рябинин)
-02. Танго среднерусской полосы (Н. Богословский - М. Львовский)
-03. Детство (В. Шаинский - А. Осипова)
-04. Сердцу не прикажешь (А. Булатов - В. Фельдман , С. Каминский)(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:13:03
+01. Autonomic (Explicit) (4:58)
+02. Autonomic (Clean) (4:58)Производство: Washington ClassicsЖанр: Hip-Hop, BeatsПродолжительность: 00:09:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82F8325C0268F3C67EF26C15C125F72478351E06
+magnet:?xt=urn:btih:39E086316657937316925E7C7392B4416F18D4CB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -522,26 +527,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223072   (677141) от 03.05.2018
+###  Публикация: 1029457   (678459) от 28.06.2016
 
-А.М. Крицштейн | Электрические и электронные аппараты (2017) [PDF, DJVU]
+Chicago - The Heart Of Chicago (1989) Unofficial Release [APE|Lossless|image + .cue] <Pop Rock, Symphonic Rock>
 
->>Научная и техническая литература
->>Учебники
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678459.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Одной из базовых дисциплин в программе подготовки бакалавров и магистров, обучающихся по направлениям 13.03.02 и 13.04.02 «Электроэнергетика и электротехника» профиль «Электропривод и автоматика», является дисциплина «Электрические и электронные аппараты».
-Пособие затрагивает вопросы курса «Электрические и электронные аппараты» в разделе теории, расчета и выбора (   Читать дальше...   )Жанр: Электротехника, электроникаФормат: PDF, DJVU
+01. If You Leave Me Now
+02. Baby What a Big Surprise
+03. Where Did the Loving Go?
+04. Take Me Back to Chicago(   Читать дальше...   )Жанр: Pop Rock, Symphonic RockПродолжительность: 01:05:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09B67682D524AB948E71BA24A35009D90DBB61A8
+magnet:?xt=urn:btih:15885126A24E822C9C25BD6CAE793A573020F794
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,27 +556,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223361   (677140) от 03.05.2018
+###  Публикация: 1029804   (678458) от 28.06.2016
 
-Лоис Макмастер Буджолд | Союз капитана Форпатрила (2015) [FB2]
+36 - Seconds & Forever (2016) 3six Recordings [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678458.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Айвен Форпатрил, кузен Майлза Форкосигана, постоянно влипает в истории, становясь мишенью для дружеских подтруниваний. Вот и на сей раз, пребывая на Комарре, он вынужден заключить фиктивный брак, спасая от преследователей прекрасную беженку с Архипелага Джексона.
-
-Если бы он только мог себе представить, какие неприятности в результате этой аферы свалятся на его голову!..Жанр: Зарубежная фантастика, Космическая фантастика, Любовно-фантастические романыПеревод: Гаянэ Мурадян, Елена БарзоваФормат: FB2
+01. Seconds & Forever (Part 1) (18:00)
+ 02. Seconds & Forever (Part 2) (18:00)Жанр: AmbientПродолжительность: 00:36:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17737CDBA30DFB66208399818105090769280522
+magnet:?xt=urn:btih:B55B7372C78B3F86545CB15D1139164AB6051187
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -577,25 +583,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223329   (677139) от 03.05.2018
+###  Публикация: 1029772   (678457) от 28.06.2016
 
-Джейн Доу | Опекун для золушки (2018) [FB2]
+Funky DL - The Rhapsody (2016) Single [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Beats, Instrumental>
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678457.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Меня зовут Микаэла Адамс. После смерти отца осталась с мачехой и сводной сестрой и полагала, что хуже уже не будет, однако письмо от черного мага доказало обратное. О герцоге Иваре Элорике ходят страшные слухи, его боятся и уважают, закрывая глаза на черные дела. Видят духи, я ни за что не поехала бы к нему добровольно, но покойная мама назначила его моим опекуном. (   Читать дальше...   )Жанр: Книги про волшебников, Любовное фэнтезиФормат: FB2
+01. The Rhapsody (3:06)
+02. The Rhapsody (Instrumental) (3:06)Производство: Washington ClassicsЖанр: Hip-Hop, Beats, InstrumentalПродолжительность: 00:06:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B32C1B9046123DE907BF04A03BD0BBC7F640D64
+magnet:?xt=urn:btih:BE0B66AA1BE45D346A844B4FC51B555F4172BFA4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -603,25 +610,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221791   (677138) от 03.05.2018
+###  Публикация: 1029847   (678456) от 28.06.2016
 
-Небеса могут подождать / Heaven Can Wait (1943) WEB-DLRip [H.264] [AVO]
+Aura - Observations (2016) [MP3|320 Kbps] <Progressive Rock>
 
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678456.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дон Амичи в роли Генри Ван Клива, современного Казановы, чья жизнь показана с младенчества и до самой смерти (в возрасте 70 лет). Скончавшийся Ван Клив стоит перед Дьяволом, требующим предъявить пропуск в Ад. Для этого Дьявол должен тщательно изучить всю жизнь Ван Клива…Производство: США / 20th Century Fox Film CorporationЖанр: Фэнтези, Драма, Мелодрама, КомедияРежиссер: Эрнст ЛюбичАктеры: Джин Тирни, Дон Амичи, Чарльз Коберн, Марджори Майн, Лэйрд Крегар, Спринг Байинтон, Эллин Джослин, Юджин Пэллет, Синье Хассо, Луи КэлхернПеревод: Авторский (Г.Либергал)Субтитры: АнглийскиеПродолжительность: 01:52:23
+01. The Best Day Of My Life
+02. Pirates Of Caribbean
+03. Observations
+04. Ticking Bomb(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:01:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22401E34381F00B89B09EB60CB0A6215649E77AD
+magnet:?xt=urn:btih:D598694A4949F6AB0BA0A04928BEF4A40D29E6C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -629,81 +639,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223307   (677137) от 03.05.2018
+###  Публикация: 1029964   (678455) от 28.06.2016
 
-Ю. Хабермас, Й. Ратцингер (Бенедикт XVI) | Диалектика секуляризации. О разуме и религии (2006) [PDF, DJVU]
+Dj Sveta - Beautiful people (2016) [MP3|320 Kbps] <Progressive House, House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ibiza Club Toys - Love & Money (Soulful Lounge instrumental mix)
+02. Lexer - Forgive Me (Original Mix)
+03. Nora En Pure - Lake Arrowhead (Original Mix)
+04. Anton Ishutin - Feebleminded Feat. Irina Makosh (Monoteq Remix)(   Читать дальше...   )Жанр: Progressive House, HouseПродолжительность: 01:13:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645D5B61DAE98844B84005146B826BF8E4178D09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135819   (678454) от 20.05.2017
+
+Ashampoo Movie Studio Pro 2.0.15.7 RePack by вовава [Ru/En]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ashampoo Movie Studio Pro - это идеальное многофункциональное приложение для создания и редактирования видео. Нарезайте, конвертируйте и делитесь Вашими видео, объединяйте фотографии и видео с помощью элегантных переходов. Благодаря высоко интуитивному управлению, каждый без проблем может применить эффекты или добавить логотип. Используйте прямой путь в простом режиме, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86CEC4514A3B14D3E27C77DEFCECA7159525A02D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135536   (678453) от 20.05.2017
+
+Илья Лаурс | Стартап. Модель для сборки (2016) [PDF]
 
 >>Разное (категория книг)
->>Религиозная литература
+>>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678453.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В диалоге Юргена Хабермаса и Йозефа Ратцингера обсуждается вопрос о секулярных принципах современной европейской цивилизации.
-Издание адресовано всем, кто интересуется современной богословской и философской мыслью.Жанр: Богословие, философияФормат: PDF, DJVU
+Человечество вовлечено в удивительное приключение, в котором знание и воображение могут изменить общество, страну, а может, и весь мир.
+Илья Лаурс
+
+О чем книга(   Читать дальше...   )Жанр: Бизнес, СтартапФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62A26BD1691812786922EE0A8D747C18BB6423D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223188   (677136) от 03.05.2018
-
-VA - Billboard Hot 100 Singles Chart (05.05.2018) (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677136.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Drake, Big Freedia, 5thward Weebie - Nice For What
-002. Drake - God's Plan
-003. Ariana Grande - No Tears Left to Cry
-004. Bebe Rexha - Meant to Be(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A37EA34E6CCA3AD6DDC76270409AFB4155A40AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223220   (677135) от 03.05.2018
-
-NGW: Дикая природа Аргентины. Убийственное побережье / Wild Argentina. The Killer Coast (2017) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немногие страны в Южной Америке могут похвастаться таким контрастом и разнообразием сред обитания своей дикой природы. Здесь можно встретить пингвинов, китов, морских котиков, а также кондоров, броненосцев и лам гуанако.Производство: Нидерланды, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1527D5BACFDB617AFF7CEB67BDC16693D3EACB7
+magnet:?xt=urn:btih:199E308085DC26A900B9701FBB72D3714B7743C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

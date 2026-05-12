@@ -1,3 +1,61 @@
+###  Публикация: 961851   (296985) от 03.12.2015
+
+Boccherini - Symphonies op.35, 41 & 42 (Academy for Early Music Berlin) (2003) [FLAC|Lossless]<Classical, Orchestral, Classical Period, Symphony>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony no.26 in C minor, op.41, G.519
+01. Allegro vivo assai (06:13)
+02. Pastorale: Lentarello (05:35)
+03. Minuetto: Allegro (02:48)(   Читать дальше...   )Жанр: Classical, Orchestral, Classical Period, SymphonyПродолжительность: 01:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EF96A9BA0AC9048B26E10D803CE6CA6295CA783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961882   (296981) от 03.12.2015
+
+Monteverdi - L'incoronazione di Poppea (Nikolaus Harnoncourt & Concentus musicus Wien) (3CDs) (2009) [FLAC|Lossless]<Claassical, Baroque Period, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Act Two
+01. Io non so dov'io vada (06:20)
+02. Hor che Seneca  morto (08:21)
+03. Dorme, l'incauta dorme (03:27)(   Читать дальше...   )Жанр: Claassical, Baroque Period, OperaПродолжительность: 03:35:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:628B0EEE7BC2EE0D2DBC35FAC1A9010EE49A7430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424140   (295444) от 15.11.2020
 
 Florian Christl - Episodes (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
@@ -684,64 +742,6 @@ New London Chorale - Het Mooiste Van (2006) [FLAC|Lossless|image + .cue] <Classi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:369254B890D730D49606F75C1F75671FD9403C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336953   (276223) от 09.11.2019
-
-New London Chorale - The Collection  Vol.1 (2000) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop, Ballad>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing On Air - Tchaikovsky (4:26)
-02. Stay with me 'til the morning - Wolfgang Amadeus Mozart (3:47)
-03. Anthem For The World - Giuseppe Verdi (4:31)
-04. Denied - Tchaikovsky (5:18)(   Читать дальше...   )Жанр: Classical Crossover, Pop, BalladПродолжительность: 01:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30E486382F949713B45E1F571B2568431BD1466B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336956   (276106) от 09.11.2019
-
-New London Chorale - Christmas with the New London Chorale (1994) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop, Ballad>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kumbaya (4:31)
-02. Joseph, Dearest (3:10)
-03. What Child Is This (3:15)
-04. Mary's Boy Child (3:09)(   Читать дальше...   )Жанр: Classical Crossover, Pop, BalladПродолжительность: 00:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCBD34399022FFAA96CE7905D2DED9A2E1DD184F
 ```
 
 https://mybot314.ru/tekegram_catalog/

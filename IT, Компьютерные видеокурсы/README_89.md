@@ -1,3 +1,31 @@
+###  Публикация: 1658200   (191405) от 07.09.2023
+
+Udemy, Very Academy, Zander | Full Stack - React Django DRF Channels Project - djChat (2023) WEBRip [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191405.jpg" />
+</div>
+
+
+###  Подробнее
+
+The course focuses on building a chat server administration API and integrating it with a front-end templating framework. It also covers API integration and building chat services with features like authentication.
+
+The first module covers source control and project initiation, including creating a new Django DRF project and configuring environment variables. It (   Читать дальше...   )Производство: Udemy, Very AcademyЖанр: React, Typescirpt, Django, DRF, RESTЯзык озвучки: АнглийскийПродолжительность: 28:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5223D6B5B6435B5C1AA18E2F4C3E6379CE4DE51A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658223   (191340) от 07.09.2023
 
 Laravelcreative.ru | Laravel 9: Базовый подробный курс (2023) WEB-DL [RU]
@@ -668,33 +696,6 @@ Udemy, Andrei Dumitrescu | OpenAI API with Python Bootcamp: ChatGPT API, GPT-4, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D00A7F2B0D274B5539A07610C54E732B97307634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662887   (187226) от 19.09.2023
-
-Rebrain, Fevlake | NGINX онлайн-практикум (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187226.jpg" />
-</div>
-
-
-###  Подробнее
-
-По результатам исследования w3techs.com, NGINX используется в 32.2% веб-проектов во всем мире.
-В России практически в каждом проекте вы встретитесь с NGINX, но знаете ли вы, как с ним верно работать?Жанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 28:22:41Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE6692B50166991046EC848964AB334D122E3E65
 ```
 
 https://mybot314.ru/tekegram_catalog/

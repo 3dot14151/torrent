@@ -1,3 +1,120 @@
+###  Публикация: 1106359   (873516) от 19.02.2017
+
+VA - Притяжение (Официальный Саундтрек) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ирина Старшенбаум - Когда я была маленькая (00:38)
+02. Иван Бурляев - Intro (01:26)
+03. Ирина Старшенбаум, Александр Петров - Готов вызволить принцессу из башни (00:17)
+04. L'One feat. Влади, Баста - Ракета (feat. Влади & Баста) (03:15)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF19EF67D8466DBABF4C51ECF729B1E05595E034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106363   (873201) от 19.02.2017
+
+VA - Притяжение (Официальный Саундтрек) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ирина Старшенбаум - Когда я была маленькая (00:38)
+02. Иван Бурляев - Intro (01:26)
+03. Ирина Старшенбаум, Александр Петров - Готов вызволить принцессу из башни (00:17)
+04. L'One feat. Влади, Баста - Ракета (feat. Влади & Баста) (03:15)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A09F4B3FAC1FA959945C9EB3973C318535F508BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 368425   (872274) от 10.04.2020
+
+VA - Pan Pipes of the Andes - 3 альбома (1998) [FLAC|Lossless|tracks + .cue] <New age, Pan pipes>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pan flute или pan pipe или многоствольная флейта — флейтовый музыкальный инструмент, состоящий из нескольких соединённых или отдельных трубок как правило без пальцевых отверстий. Нижние концы трубок могут быть открытыми или закрытыми.
+На верхние срезы трубок направляют струю воздуха. Каждая трубка издаёт один основной тон, высота которого зависит от длины, диаметра (   Читать дальше...   )Список альбомов:
+1998 - Pan Pipes of the Andes - CD-1
+1998 - Pan Pipes of the Andes - CD-2
+1998 - Pan Pipes of the Andes - CD-3Жанр: New age, Pan pipesПродолжительность: 02:17:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A005889B180659F86931F455A0449F3C3618658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997635   (871752) от 18.03.2016
+
+Romantic Collection - HARP (2002) [FLAC|Lossless|image + .cue] <Instrumental, vocal>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erotica (05:23)
+02. Dee (03:49)
+03. Snowcaps (04:12)
+04. Peligroso Amor (03:44)(   Читать дальше...   )Жанр: Instrumental, vocalПродолжительность: 01:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F27DEE66C8E4A7029B03696B6401247E515E4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106824   (871560) от 20.02.2017
 
 2002 - Celtic Fairy Lullaby (2016) [MP3|320 Kbps] <New Age>
@@ -626,119 +743,6 @@ Cyndi Lauper - At Last (2003) [FLAC|Lossless|image + .cue] <Pop, Pop Rock, New W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:466B0A73BF4AE7527A6573317AB19D84E2E77735
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 645083   (867140) от 17.04.2013
-
-Deep Forest - Deep Africa (2013) /Promo CD/ [APE|Lossless]<World, New Age>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: World, New AgeПродолжительность: 00:55:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 664507   (866939) от 13.04.2020
-
-Stephan Micus - 18 Альбомов (1977-2013) [FLAC|Lossless|tracks + .cue] <New Age; Ethnic Fusion; Contemporary Jazz; Meditative; Experimental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выдающийся немецкий композитор и мультиинструменталист Стефан Микус родился в 1953 г. в Германии. Совершил свою первую поездку на восток в возрасте шестнадцати лет. Очарованный разнообразием музыкальных культур всего мира, Микус побывал практически в каждой азиатской и европейской стране, так же как и в Африке и обеих Америках. Учась у мастеров музыкального искусства, (   Читать дальше...   )Список альбомов:
-1977 Implosions
-1978 Till The End Of Time
-1982 Wings Over Water(   Читать дальше...   )Жанр: New Age; Ethnic Fusion; Contemporary Jazz; Meditative; ExperimentalПродолжительность: 14:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BB162A1D48F2049A2D806BE9CEF9D43241E1DBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375118   (866936) от 13.04.2020
-
-Danny Wright - Unwind: Peaceful Piano Relaxation (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пианист с академическим образованием Дэнни Райт пришёл к new age из классической музыки. Начал обучаться игре на фортепиано в 4 года. В течение 10 лет обучался у Dr. Harris Cavender. В процессе обучения Райт проявлял способности к импровизации. Свою собственную музыку Райт начал писать в 1985 году. Дебютный альбом Райта "Black and White" вышел в 1986 году. (   Читать дальше...   )1. Time Windows	03:36
-2. Innocence	03:53
-3. As the Years Pass	03:52
-4. October	04:26(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:498918D2B7B0DD9A2099C7CF12D0CA5A23F4D730
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375242   (866934) от 13.04.2020
-
-Phillip Norman Watson - Mists (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turning
-02. Sun Dappled
-03. Ripples
-04. New Hope(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:833A3495829665121E0ED0BD4F6FF8A3FFD0BF69
 ```
 
 https://mybot314.ru/tekegram_catalog/

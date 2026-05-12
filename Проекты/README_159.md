@@ -1,3 +1,55 @@
+###  Публикация: 1223320   (676872) от 03.05.2018
+
+Проекты - Motion Array - Happy Slideshow - 65851 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Happy Slideshow - это шаблон After Effects с великолепным дизайном, мягкими утечками света, простой текстовой анимацией и плавными переходами. Прекрасный способ показать свою свадьбу, юбилей, романтические моменты, особые случаи, воспоминания, путешествия, отпуск, друзей и семейные фотографии.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2B79BBCB4324789079E64931F36D1B0B392CD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 897714   (676773) от 17.05.2015
+
+Проекты - VideoHive - HUD Elements Mega Pack - 11250824 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676773.jpg" />
+</div>
+
+
+###  Подробнее
+
+HUD Elements Mega Pack - After Effects CS5 - CC 2014 проект. Огромный сборник HUD анимационных элементов в 18 категориях. Разрешение проекта: Full HD 1920x1080. Легко настроить. Плагины не требуются. Видео обучение включено. Можно менять все цвета, включая черный и белый.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31763E9BB427A39435045E7EA15A7ADD383F4FC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 897706   (676639) от 17.05.2015
 
 Проекты - VideoHive - 140 Flash FX Elements - 11266469 [AEP]
@@ -626,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7033CB89A7E8A9079DAC5E2AF30C7F2E6DFEAFA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030365   (673807) от 30.06.2016
-
-Проекты - VideoHive - Cinematic Slideshow - 16382418 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cinematic Slideshow - кинематографическое слайд-шоу с 3D эффектом.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A086890F8C6491B04A538B8D11D0F0E7C82DB62F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030379   (673804) от 30.06.2016
-
-Проекты - VideoHive - Elegant Slideshow - 16579036 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elegant Slideshow - спокойный, чистый, элегантный вариант слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A9B88DF8F2D3B0D3E3667C9D53D8FA3F330067B
 ```
 
 https://mybot314.ru/tekegram_catalog/

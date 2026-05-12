@@ -1,3 +1,68 @@
+###  Публикация: 1401705   (366936) от 16.10.2020
+
+Lacuna Coil - The 119 Show - Live In London (2018) Blu-ray  [H.264/1080p] [Custom]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. A Current Obsession
+03. 1.19
+04. My Wings(   Читать дальше...   )Производство: Century MediaЖанр: Gothic Metal, DocumentaryЯзык озвучки: EnglishПродолжительность: 02:16:15 + 00:27:40 + 00:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE54F697CEA58CB3FA60460A6BFBDAED4447E8E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575958   (365146) от 16.11.2012
+
+Coldplay - Live 2012 (2012) [1080p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_365146.jpg" />
+</div>
+
+
+###  Подробнее
+
+• Coldplay Live 2012 is the band’s first concert film/live album for nine years. It documents their acclaimed Mylo Xyloto world tour, which has been seen by more than three million people since it began in June 2011. The film was directed by Paul Dugdale, previously responsible for Adele’s Live at the Royal Albert Hall and The Prodigy’s Worlds On Fire concert films. Coldplay Live 2012 includes footage from Coldplay’s shows at Paris’s Stade de France, Montreal’s Bell Centre and the band’s triumphant Pyramid Stage headline performance at Glastonbury 2011.
+«Coldplay Live 2012» — это первый фильм группы за 9 лет, представляющий их новый альбом. Это запись мирового концертного тура «Mylo Xyloto», который с 2011 года собрал более трех миллионов зрителей.01. Mylo Xyloto
+02. Hurts Like Heaven
+03. In My Place
+04. Major Minus
+05. Yellow
+06. Violet Hill
+07. God Put A Smile Upon Your Face
+08. Princess Of China (with Rihanna)
+09. Up In Flames
+10. Viva La Vida(   Читать дальше...   )Жанр: Alternative rockПродолжительность: 01:36:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328499   (363376) от 30.09.2019
 
 Квартирник НТВ у Маргулиса. Группа Мегаполис (28.09.2019) WEB-DL [H.264/1080p-LQ]
@@ -672,64 +737,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF12B4849ED8749E4F2D80E53C1800D5DEF08C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418792   (346437) от 25.10.2020
-
-Eagles: Live from the Forum MMXVIII (2020) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346437.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Live from the Forum MCMXCVIII" - это концертный альбом и концертный фильм группы The Eagles. Это запись одного из концертов в Инглвуде, штат Калифорния, которые проходили в течение трех ночей в сентябре 2018 года. Это первый релиз с участием новых участников группы Дикона Фрея и Винса Гилла, а также Дона Хенли, Джо Уолша и Тимоти Б. Шмита. Дикон, сын бывшего (   Читать дальше...   )01. Introduction
-02. Seven Bridges Road
-03. Joe Walsh: "How Ya Doin?"
-04. Take It Easy(   Читать дальше...   )Производство: СШАЖанр: Classic RockРежиссер: Nick WickhamПродолжительность: 02:25:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E8B7EC64AB05501F9D8BAE0D198AB531FBC1603
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578562   (345694) от 23.09.2022
-
-Всероссийский Выпускной Бал (2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345694.jpg" />
-</div>
-
-
-###  Подробнее
-
-МУЗ-ТВ представляет выпускной вечер на главной сцене страны - Всероссийский выпускной бал в Кремле 2022!0:00:00 - Приветствие ведущих
-0:00:58 - JONY - Комета
-0:04:12 - JONY - Титры
-0:08:28 - ANNA ASTI - Феникс(   Читать дальше...   )Производство: Телеканал "Муз-ТВ"Жанр: PopЯзык озвучки: РусскийПродолжительность: 01:26:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50E1974DE30566B83250DC89B1ECFBF793A44615
 ```
 
 https://mybot314.ru/tekegram_catalog/

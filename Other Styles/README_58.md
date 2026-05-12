@@ -1,3 +1,119 @@
+###  Публикация: 180350   (732824) от 01.08.2020
+
+VA - Потанцуем (2002) 3 CD [FLAC|Lossless|tracks] <Instrumental, Dance>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если хотите по-настоящему отвлечься, весело провести время и отдохнуть - эта коллекция специально для вас. Антология самых популярных танцевальных мелодий и самые известные исполнители со всего мира. Незабываемый праздник музыки и ритмов, которые увлекут вас на танцплощадку, где вы проведете, танцуя, 3 незабываемых часа. Ваш конек - вальс? Тогда кружитесь в медленном (   Читать дальше...   )01 - Хорошее настроение. Разаф, Гарленд (03:25)
+02 - Лунная серенада. Миллеруем (02:09)
+03 - Воспоминания, тема из мюзикла «Кошки». Ллойд Уэббер, Швеппе (03:12)
+04 - Прекрасная мечтательница. Фостеруем (03:22)(   Читать дальше...   )Жанр: Instrumental, DanceПродолжительность: 03:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E7713A6342244389A439CFB2C1D5FB66F5D9B7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021270   (732556) от 29.05.2016
+
+Deep Forest - Evo-Devo (2016) [MP3|320 кб/с] <New-Age, World-Music, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simply Done (feat. Oyme) (3:10)
+02. Stutter Dream (3:59)
+03. B-Vatar (3:28)
+04. Oymes's Song (feat. Oyme) (5:15)(   Читать дальше...   )Жанр: New-Age, World-Music, ElectronicПродолжительность: 00:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3780AB8F12DB65DB6A7E7371B2F12CFF03617A96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021324   (732471) от 29.05.2016
+
+Deep Forest - Evo-Devo (2016) [FLAC|Lossless|WEB-DL|tracks] <New-Age, Ambient, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simply Done (03:10)
+02. Stutter Dream (03:59)
+03. B-Vatar (03:27)
+04. Oyme’s Song (05:14)(   Читать дальше...   )Жанр: New-Age, Ambient, ElectronicПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7456F8C8F00799897E4C9B8211946803B158340F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126928   (732083) от 21.04.2017
+
+VA - Yoga Mantras & Dance: Power Yoga Music & Ecstatic Dance Beats (2014) [MP3|320 Kbps] <Chillout, Ethnic, Downtempo, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Buddha - Desert Thar: World Mantra Flow (04:55)
+02. Donna De Lory - Sky is Open: Yoga Mantra Flow (Edit) (05:24)
+03. Prem Joshua & Chintan - The Subject Tonight Is Love: Hafiz Yoga Beats (Edit) (05:47)
+04. EarthRise SoundSystem - You Lovin' Me: Yoga World Dance (feat. Camille Armstrong, Srikala) (04:45)(   Читать дальше...   )Жанр: Chillout, Ethnic, Downtempo, New AgeПродолжительность: 02:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41E0A47E1C0A5689D6484EAA6A9ECFE219D8286
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127164   (732076) от 21.04.2017
 
 Alice Coltrane - World Spirituality Classics 1 (2017) [MP3|320 Kbps] <New Age, Female Vocal, Spiritual>
@@ -626,122 +742,6 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol  6 (1990) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F4D8426B7E070F35220178B64DC2BC192D23CEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283702   (729934) от 20.02.2019
-
-Atom Music Audio - Nemesis (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Act of Revenge [02:35]
-02. Dark Forces [02:34]
-03. Nemesis [02:32]
-04. Here Comes the Hero [02:41](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:25:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD3B383F023A036C704DCCEF145AC2FDE39E47EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283659   (729929) от 20.02.2019
-
-Big City Indians - Tuwa (2012) [MP3|320 Kbps] <Native american, New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Horses Thunder (Soquili Unole) (04:25)
-02. Ina Makoce (Mother Earth Healing Prayer) (04:52)
-03. Breath Of Water (04:27)
-04. In The Shadow Of The Light (05:16)(   Читать дальше...   )Жанр: Native american, New Age, WorldПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE045129D966191EC8248F8908B6A58C46AC3DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284297   (729925) от 20.02.2019
-
-VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol  9 (1994) [MP3|320 Kbps] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonata in D
-02. Sound of a song
-03. Hear my song
-04. Solveig's song(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55CE33304A986829D2EE8BEF9C946ECD7896624A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022285   (729765) от 01.06.2016
-
-Emily Rowe - Daydream (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Violin>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever [00:03:39]
-02. Midnight [00:04:29]
-03. Daydream [00:04:38]
-04. Brilliant [00:03:48](   Читать дальше...   )Жанр: New Age, Piano, ViolinПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1A80EA0E3365F003C69CAB6C98F94F5B5E79E58
 ```
 
 https://mybot314.ru/tekegram_catalog/

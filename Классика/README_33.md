@@ -1,3 +1,61 @@
+###  Публикация: 1249073   (437337) от 22.09.2018
+
+Annelie - After Midnight (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At Night
+02. Full
+03. Of
+04. A World(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 00:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F088464272F6247DA36C71EF490A6E8B9564AB74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063125   (436796) от 15.10.2016
+
+Johann Strauss - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Звуки Весеннего Вальса, соч. 335 (вальс) - (05:40)
+02 - Марш из оперетты "Цыганский барон", соч. 418 (марш) - (02:48)
+03 - Вальс из оперетты "Цыганский барон", соч. 418 (вальс) - (07:46)
+04 - Фата Моргана, соч. 330 (полька - мазурка) - (03:42)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:244A8D46385D56C728F856C6D29F03C743B2CF9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 554609   (436304) от 01.10.2012
 
 Johann Sebastian Bach-Violin Double Concerto (BWV 1041-43, 1056): English Chamber Orchestra violin Pinchas Zukerman (1717-1726)/1991, BMG Records/[FLAC|Lossless]<Chamber>
@@ -693,61 +751,6 @@ Symphony No. 1 in D major ("Classical"), Op. 2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDADE3223EBBE4A7A62DB0993E795166B89A6685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 146399   (418564) от 17.10.2009
-
-VA - Избранное (2007) [MP3|320]<Классика>
-
->>Классика
->>Классика (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_418564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: КлассикаПродолжительность: 05:04:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947498   (417966) от 17.10.2015
-
-Beethoven - Chamber Music for Winds Vol.1 (Consortium Classicum) (1996) [FLAC| image +.cue]<Classical, Romantic Period, Chamber Music, Classical Period, Duet, Minuet, Septet>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Septet in E flat major, op.20
-01. Adagio - Allegro con brio (10:00)
-02. Adagio cantabile (09:34)
-03. Tempo di Menuetto (03:12)(   Читать дальше...   )Жанр: Classical, Romantic Period, Chamber Music, Classical Period, Duet, Minuet, SeptetПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:067331F274A926CFFCF1CF74A0A86A9E98343345
 ```
 
 https://mybot314.ru/tekegram_catalog/

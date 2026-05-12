@@ -1,3 +1,33 @@
+###  Публикация: 874873   (860913) от 04.03.2015
+
+Yoshio Kimura - Romantic Tunes Collection (2012) 2CD [FLAC|Lossless]<Guitar, Instrumental>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860913.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - 00:58:37
+CD2 - 00:54:28Треклист CD1:
+01. Anata Dake O
+02. Miserarete
+03. Fuyu No Riviera(   Читать дальше...   )Жанр: Guitar, Instrumental |Продолжительность: 01:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C8AA4621C7FA1BB7199DC249195EA90F77377BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 875266   (858018) от 06.03.2015
 
 GYAS — Koiro Gensou (2009) Touhou Instrumental /Doujin/ [FLAC|Lossless] <Electronic>
@@ -708,41 +738,6 @@ Gus Dharma - Bali Meets China (2016) [MP3|320 кб/с] <World Music, Relax, Ethn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3BD110F648C6894C7F03F8437F1CC2E4BC75AB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 315415   (811999) от 01.04.2011
-
-Heartsdales - 2 альбома (2005-2006) [FLAC|Lossless]<J pop, Jurban, hip-hop>
-
->>East Asian Music
->>Asian Pop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_811999.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Legend Begins
-2. So Tell Me
-3. That's Why
-4. BODY ROCK
-5. Should Have What!? (feat. DOUBLE)
-6. Thru With You
-7. CANDY POP (feat. SOUL'd OUT)
-8. I See You
-9. LOVE & JOY
-10. fantasy(   Читать дальше...)Жанр: J pop, Jurban, hip-hopПродолжительность: 01:08:29
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

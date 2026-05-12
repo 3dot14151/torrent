@@ -1,3 +1,119 @@
+###  Публикация: 906230   (645428) от 08.06.2015
+
+VA - Кунг Фьюри / Kung Fury (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mitch Murder - Kung Fury (03:12)
+02. David Hasselhoff - True Survivor (03:42)
+03. Lost Years - West Side Lane (03:51)
+04. Betamaxx - Redlining 6th (02:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:981D12B5B84C58A5030FB1CACC0542F485E15BBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906214   (645424) от 08.06.2015
+
+VA - Кунг Фьюри / Kung Fury (Original Motion Picture Soundtrack) (2015) [FLAC|WEB-DL|Lossless]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mitch Murder - Kung Fury (03:12)
+02. David Hasselhoff - True Survivor (03:42)
+03. Lost Years - West Side Lane (03:51)
+04. Betamaxx - Redlining 6th (02:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EE7FC5D27AD75F829FFB2D38EBE626AF61FA512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142073   (644712) от 13.06.2017
+
+The Romantic Strings Orchestra - Thanks For The Memory (1995) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening, Oldies>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Embraceable You (2:31)
+02. Over The Rainbow (3:16)
+03. Sunrise Serenade (3:00)
+04. I'm Gettin' Sentimental Over You (2:53)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, OldiesПродолжительность: 01:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4636160286BC03F56C69C8AD8BCF7BE2E4EA83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292174   (644706) от 30.03.2019
+
+VA - Defected Accapellas Deluxe Vol. 15 (2019) [MP3|320 Kbps] <Acapellas, DJ Tools>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonny Fodera Ft. Alex Mills - Always Gonna Be (Extended Accapella) (04:42)
+02. CamelPhat Ft. Ali Love - Dopamine Machine (Accapella) (08:20)
+03. Offaiah - Push Pull (Accapella) (04:38)
+04. Selace - So Hooked On Your Lovin (Mousse T.'s Accapella) (03:40)(   Читать дальше...   )Жанр: Acapellas, DJ ToolsПродолжительность: 02:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8526C06D5AB67E8DCACB047CB826EB350F9D621D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119918   (644260) от 13.06.2017
 
 ДиДюЛя - Лучшее. В исполнении симфонического оркестра Ли Отта (2015) [MP3|320 Kbps] <Instrumental, Neo-Classical>
@@ -670,126 +786,6 @@ VA - The Music of Spain (2004) [FLAC|Lossless]<Instrumental>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517590   (641160) от 04.07.2012
-
-VA - Песни бушменов (2012) [MP3|192 кб/с]<Этно>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Kolota
-02 Mambo
-03 Птичка щебечет в кустах
-04 Девичья зрелость
-05 Кустарниковая свинья
-06 Песня следопытов
-07 Песня о дожде
-08 Детская песняЖанр: ЭтноПродолжительность: 01:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B91C48FFFF372FC75F99F99C26B6ED6333E7F4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033073   (640113) от 10.07.2016
-
-Mike Howe - Lichens (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Acoustic Guitar>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into the Night [00:03:56]
-02. Remember [00:04:09]
-03. Joni [00:03:48]
-04. Plains [00:03:19](   Читать дальше...   )Жанр: New Age, Acoustic GuitarПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D956668F00BB0AE9E701240E309319F8B8FA3F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033236   (640005) от 10.07.2016
-
-Mythos - The Best of Mythos Instrumentals (2014) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introspection
-02. Prelude
-03. Duet
-04. La Cathedral(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D1FAA59E722EDF8911584243FFEBAF7F9943C88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033222   (639996) от 10.07.2016
-
-Ashaneen - Waves of Life (2015) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Wave [00:06:14]
-02. Second Wave [00:03:45]
-03. Third Wave [00:08:24]
-04. Fourth Wave [00:04:41](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71EA43AD3553B0639D5B13CF25836D465D30168
 ```
 
 https://mybot314.ru/tekegram_catalog/

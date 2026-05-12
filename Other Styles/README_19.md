@@ -1,3 +1,119 @@
+###  Публикация: 1089783   (945798) от 07.01.2017
+
+Лихолесье - Туман перехода (2016) [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945798.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Погружение (Сны На Рассвете)
+2. Вдоль По Ручью
+3. Туман Перехода
+4. Оно (Лишь Круги На Воде)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A18FA55AAC966A92A60A90460D4BCBB5C020A69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090519   (945773) от 07.01.2017
+
+Игорь Матвиенко - Викинг (Оригинальный саундтрек к фильму) (2016) [FLAC|Lossless|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Молитва Владимира (feat. Малый симфонический оркестр "Симфониетта") (02:47)
+02. Испытание водой (feat. Малый симфонический оркестр "Симфониетта") (02:07)
+03. Штурм Полоцка (01:26)
+04. Плач (Вокализ) (03:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF3DBD949065B1BCF55DCA1DEB1E16D82D5F20D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983059   (945389) от 05.02.2016
+
+VA - 60 Minutes Relaxing Music (Non Stop Mix) (2016) [MP3|320 кб/с] <Relaxation, Instrumental, Piano, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corrado Rossi - Distant Memories (05:00)
+02. Alessio De Franzoni - Nel Pozzo (05:08)
+03. Roberto Mazzanti - Winter Meadow (04:05)
+04. Raffaele Rinciari - Aria (04:51)(   Читать дальше...   )Жанр: Relaxation, Instrumental, Piano, New AgeПродолжительность: 01:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D1F48F5474166ED674650835981AFAA7C74778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362835   (945299) от 26.02.2020
+
+Justin E. Bell - The Outer Worlds (Original Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945299.jpg" />
+</div>
+
+
+###  Подробнее
+
+|07:45| 01. Hope (Title Theme)
+|02:00| 02. Hope, Forever
+|04:19| 03. Left Adrift (Character Creation)
+|01:07| 04. Phineas Escapes(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F95A7E862A005D3D1C8DADF2D203E34DE08100EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983232   (945217) от 05.02.2016
 
 Tom Holkenborg aka Junkie XL - Deadpool (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с] <OST>
@@ -629,122 +745,6 @@ Eric Chiryoku - 3 альбома (2006-2012) [MP3|320 кб/с]<New Age, Easy Lis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A43D3AE12D4267637AC30272C3E67BEF616B5C98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486372   (941153) от 16.01.2015
-
-Dagda - 6 альбомов (1999-2010) [MP3|320 кб/с]<New age, Meditative, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-
-1999 - Celtic Trance
-2000 - Underworld(   Читать дальше...   )Жанр: New age, Meditative, CelticПродолжительность: 05:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC198B0733CC4CDC4C727AC1E4C7A9B4122C0760
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092150   (940270) от 11.01.2017
-
-Ruaidhri - Celtic Landscapes (2013) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Castlerigg [00:06:16]
-02. Glendalough [00:07:59]
-03. Iona [00:06:45]
-04. Lindisfarne The Holy Isle [00:05:58](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEBD96D91C99D97FEB25AE231B90077967669380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363991   (939533) от 01.03.2020
-
-Sarah Harmer - Are You Gone (2020) [FLAC|Lossless|tracks + .cue] <Rock, Pop, Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. St. Peter’s Bay (03:14)
-02. New Low (02:39)
-03. Just Get Here (03:41)
-04. Take Me Out (02:22)(   Читать дальше...   )Жанр: Rock, Pop, Folk, World, & CountryПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13101FBB6CCB8A5208C85C4351E59BBB47304B01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363867   (939512) от 01.03.2020
-
-Anuvida & Nik Tyndall - Reiki Healing Hands (1995) [FLAC|Lossless|tracks + .cue] <New Age, Meditative, Reiki>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Point of Departure (9:57)
-02. Empty Sky (7:45)
-03. Circle of Light (8:21)
-04. Tao of Heaven (13:38)(   Читать дальше...   )Жанр: New Age, Meditative, ReikiПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68771BAF3CDC22297D5DDBA118A12CB8466D99F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

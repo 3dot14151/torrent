@@ -1,3 +1,61 @@
+###  Публикация: 985789   (608662) от 16.06.2018
+
+Оркестр Большого Театра, Дирижер Геннадий Рождественский - Петр Ильич Чайковский, Щелкунчик (1960) 2CD, 1999 Мелодия [FLAC|Lossless|tracks + .cue] <ballet>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Щелкунчик: Действие II, Картина III. Дворец сластей Конфитюренбург (3:56)
+02. Щелкунчик: Действие II, Картина III. Прибытие Мари и Щелкунчика (4:15)
+03. Щелкунчик: Действие II, Картина III. Дивертисмент (а) Шоколад: испанский танец (1:07)
+04. Щелкунчик: Действие II, Картина III. Дивертисмент (б) Кофе: арабский танец (3:04)(   Читать дальше...   )Жанр: BalletПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2C9252E999E4DF949BF28008C15DBA2454571C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038253   (608372) от 27.07.2016
+
+Katherine Jenkins - One fine day (2011) [FLAC|Lossless|image + .cue] <Classical Crossover, Vocal>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ave Maria (3:58)
+02.One Fine Day (Un Bel Di) (4:20)
+03.Music Of The Night (5:51)
+04.Requiem For A Soldier (3:50)(   Читать дальше...   )Жанр: Classical Crossover, VocalПродолжительность: 01:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33C13C2CE0B9C2FE9A175FF048706E134B94E8BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038036   (608364) от 27.07.2016
 
 Elgar - Enigma Variations, Cello Concerto (2012) [FLAC|Lossless|image + .cue] <Classical, Оркестровая>
@@ -685,70 +743,6 @@ Symphony No.3 In F Major, Op.90
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97A58943C3BCA8DA3EC62D0DD1EC66AECFD963DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526126   (599136) от 23.07.2012
-
-Antonio Lucio Vivaldi - Mandolin concertos RV 532, 425, 558 Violin concertos RV 583, 522, 581: I Solisti Veneti conductor Claudio Scimone (1970-1976)/1996, Erato Disques/[FLAC|Lossless]<Baroque>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto for 2 Mandolins, Strings & Continuo G-Dur RV 532
-1. Allegro 4:27
-2. Andante 2:50
-3. Allegro 4:06Жанр: BaroqueПродолжительность: 01:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E816B7486487B45BAE981E287B93072EF3FA155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525336   (598971) от 23.07.2012
-
-Sergei Prokofiev - The complete piano sonatas 1 (1991) [FLAC|Lossless]<classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598971.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Piano Sonata No.1 in F minor, op.1 (in one movement)
-2.	Piano Sonata No.2 in D minor, op.14 - I. Allegro ma non troppo
-3.	Piano Sonata No.2 in D minor, op.14 - II. Scherzo
-4.	Piano Sonata No.2 in D minor, op.14 - III. Andante
-5.	Piano Sonata No.2 in D minor, op.14 - IV. Vivace
-6.	Piano Sonata No.3 in A minor, op.28, ''d' apres des vieux cahiers''
-7.	Piano Sonatina in E minor, op.54 No.1 - I. Allegro moderato
-8.	Piano Sonatina in E minor, op.54 No.1 - II.Adagietto
-9.	Piano Sonatina in E minor, op.54 No.1 - III. Allegretto
-10.	Piano Sonatina in G, op.54 No.2 - I. Allegro sostenuto(   Читать дальше...   )Жанр: classicalПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:408CA19469D93A4B6B395471AE57A4C6F16F7111
 ```
 
 https://mybot314.ru/tekegram_catalog/

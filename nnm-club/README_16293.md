@@ -1,267 +1,31 @@
-###  Публикация: 834222   (380087) от 24.10.2014
+###  Публикация: 573249   (381753) от 10.11.2012
 
-VideoHive - AE CS3 Useful Particle project - 27660 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект с разлетающимися частицами для презентации вашей компании. Плагины не требуются. Превью и файл помощи - в раздаче.
-
-От автора проекта: So Native resolution is HD 1080 (1920?1080). Video Clip runs for 26 sec. Everything is fully editable from animation to colors, text, Shapes, length, anything you want to change, you can. Project is well organized with coloured (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A05A9A5C6C446606394634AE1C16AD24B6DE2076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 834010   (380081) от 24.10.2014
-
-Revostock - Text on Real Fire - 82521 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текст в огне. 7 видео, 26 букв. С альфа.
-Требуется плагин Red Giant Trapcode Particular. Превью - в раздаче.
-Есть пререндеренная версия.
-(   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08A2845E20EB99B2B4E63AFBADAEF2DC78090DE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 834118   (380080) от 24.10.2014
-
-Самоволка / Lionheart (1990) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: США / Guild, Imperial Entertainment Corporation, Sunil, Wrong Bet ProductionsЖанр: Боевик, Драма, СпортРежиссер: Шелдон ЛеттичАктеры: Жан-Клод Ван Дамм, Харрисон Пейдж, Дебора Реннард, Лиза Пеликан, Эшли Джонсон, Брайан Томпсон, Войо Горич, Мишель Кисси, Джордж МакДэниэл, Эрик КарсонПеревод: Многоголосый закадровый, двуголосый, авторскийСубтитры: Отсутствуют
-*Релиз содержит аудиодорожку с ненормативной лексикой, которая в фильме присутствует в небольшом количестве только в самых острых местахПродолжительность: 01:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD6B29F0B2E5AB02D6C6C8167C59AB139D157B3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 834178   (380077) от 24.10.2014
-
-Больница Никербокер / The Knick (2014) HDTVRip [H.264/720p-LQ] (Сезон 1, серии 1-10 из 10) NovaMedia, AlexFilm, NewStudio
-
->>Зарубежные сериалы
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор Джон Такер работает хирургом в нью-йоркской больнице «Никербокер». Здесь применяют передовые методы и стараются помочь всем пациентам — но до изобретения лазерного скальпеля и компьютерной томографии еще очень далеко, а в карету скорой помощи запрягают лошадей.Производство: "Anonymous Content", "Cinemax", СШАЖанр: Драма, МедицинаРежиссер: Стивен СодербергАктеры: Клайв Оуэн, Эрик Джонсон, Майкл Ангарано, Андре Холлэнд, Джульетта Райлэнс, Крис Салливан, Ив Хьюсон, Кэра Сеймур, Джереми Бобб, Грейнджер Хайнс, Сюзанна СавойПеревод: Профессиональный, многоголосый закадровый - студия NovaMedia по заказу Amedia,  AlexFilm, NewStudioПродолжительность: ~ 00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B90B369EF01C9A0C22946CF553F966FE0C64AFA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 834108   (380076) от 24.10.2014
-
-VideoHive - Showtime (fashion) - 8628186 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Showtime (fashion) создание слайд шоуФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E61A99035FB6D938970A40A42B383C3037898F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 833941   (380072) от 24.10.2014
-
-Ennio Morricone - The Very Best Of (2000) [WavPack|Lossless|image + .cue] <Score>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Fistful of Dollars (2:58)
-02. For a Few Dollars More (2:31)
-03. The Good, the Bad and the Ugly (2:38)
-04. Chi Mai (5:06)(   Читать дальше...   )Жанр: Stage & Screen, ScoreПродолжительность: 01:15:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFEC71659A8BB8552300EC50CF0B22E19EB8EBE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 834248   (380071) от 24.10.2014
-
-VideoHive - Particle Logo Revealer - 93632 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для презентации логотипа. Есть пререндеренная версия, для которой плагины не требуются. Превью и файл помощи - в раздаче.
-
-От автора проекта: You need stylish logo revealer – you’ve got it! All you need to do is to type your text or import your logo and render the composition. The flares comes from Videocopilot’s Optical flares but I included the pre-rendered (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62AED9FEAF7FBDC1CC13BA8BE3626E33B4B84F57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 834253   (380070) от 24.10.2014
-
-Премиум Обои HD версия 2.5.9 (2014)
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Премиум Обои HD (Картинки HD) представляют собой коллекцию лучших full HD обоев для вашего смартфона или планшета. Все обои мы лично отбирали из огромного количества изображений, чтобы вы могли сделать свой смартфон индивидуальным и красивым. Особое внимание мы уделили интерфейсу, сделав его удобным, красивым и современным. Думаем, он порадует вас и вам будет комфортно работать с нашим приложением. Также в Премиум Обои HD (Картинки HD) у вас есть возможность отметить понравившиеся обои вместе с пользователями (   Читать дальше...   )Разработчик: PixignПоддерживаемая ОС: Android 2.1+
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F65658C236CB083614310A927F754C19D3ED9A7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 834240   (380069) от 24.10.2014
-
-VideoHive - Fashion Glamour - 7512428 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fashion Glamour создание слайд шоу, презентацииФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99D5D429C8CC85830BF7113E0117211B8A108A74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 404379   (380060) от 30.10.2011
-
-VA - Re:Cognition By Solee Vol.3 (2011) [MP3|320 kbps]<Tech House, Minimal Techno>
+S.A. - На рожон (2011) [MP3|320 кб/с]<Hip-hop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Tech House, Minimal TechnoПродолжительность: 03:56:28
+01. Отпечатки молодости
+ 02. Истязание чувств
+ 03. SMS feat. МС Золотой и Родина
+ 04. Под её окнами
+ 05. Солнце в окно feat. Al Coholic и Amid
+ 06. На рожон
+ 07. Я вернусь feat. FiLLiN и leshakenny
+ 08. Реки моих слез feat. Юлия Булавко
+ 09. След feat. Chet, Дуня и СД
+ 10. Плевать на принципы feat. Hann, leshakenny и Багира(   Читать дальше...   )Жанр: Hip-hopПродолжительность: 00:52:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF7FD4ECEED1983D16A97A5F375286C46D23BB73
+magnet:?xt=urn:btih:C13C8F9FF549819053DBF4995A568E035366EE9F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -269,25 +33,123 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 152802   (380033) от 14.11.2009
+###  Публикация: 572569   (381752) от 10.11.2012
 
-Последняя поездка / Last Ride (2009) DVDRip
+VA - Kontor Maximum Trance 3 (2006) [MP3|192 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ATN - Miss A Day (Misja`s A Day 2006 remix)
+02. DJ Spoke - Fall To Pieces (ALEX M.O.R.P.H. remix)
+03. Sean Tyas - Mirella (rework)
+04. Plastic Angel - Pascale 2006 (Robert Gitelmann mix)
+05. Super8 & DJ Tab - Helsinki Scorchin’
+06. DJ Choose - Knight Fever
+07. Beatfreakz - Somebody`s Watching Me (E-CRAIG’S 2006 mix)
+08. Ferry Corsten - Fire (Ron Van Den Beuken remix)
+09. Krzysztof Chochlow - Release
+10. Mr Sam feat. Crash Course in Science - Flying Aroud (Mojado Vision)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:056205ECECB163BA4B9962B88D9B73A47F944431
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573194   (381751) от 10.11.2012
+
+VA - Sense Of Trance #43 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381751.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren - We Are Here To Make Some Noise (Judge Jules Remix)
+002. Eluna - Severence (Markus Schulz vs. Elevation Remix)
+003. Abstract Vision & Elite Electronic - Kinetic
+004. Alexander Popov - Elegia (Original Mix)
+005. Ashley Wallbridge - Mumbai Traffic (Club Mix)
+006. Chris Schweizer - Ultra (Original Mix)
+007. Dave Silcox feat. Amy Pearson - This Is Love
+008. Dima Krasnik - Corsair (Original Mix)
+009. Faruk Sabanci & Mark Sixma - Starburst (Original Mix)
+010. Garry Heaney & Tristan D - Island Of Dreams (Original Mix)(   Читать дальше...   )Жанр: Uplifting Trance, TranceПродолжительность: 04:17:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FEA4C08E325A2F8ECEF92DF563266B5CF5FEEB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573367   (381747) от 10.11.2012
+
+VA - Club Dubstep - №14 (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broken Mirror (Original Mix) (04:36)
+02. Serenade (Roughmath Remix) (06:16)
+03. Pressure (feat. KT Forrester)Жанр: DubstepПродолжительность: 02:16:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBB000240360C60C5B11EB0CCD19AE08F5FA0267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573342   (381746) от 10.11.2012
+
+Грипсхольм / Gripsholm (2000) TVRip
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_380033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381746.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Производство: АвстралияЖанр: ДрамаРежиссер: Глендин АйвинАктеры: Джон Брамптон, Мик Култхард Рэйчел Френсис Анита Хегч Адам Морган Левин Нгатокору Крисси Пейдж Келтон Пелл Том Рассел Соня СуаресПеревод: Одноголосый закадровый, любительскийПродолжительность: 01:36:38
+Германия, 1932 год. Известный журналист Курт со своей подружкой отправляется на отдых в замок Грипсхольм. По дороге к ним присоединяются еще двое: обворожительная актриса Билли и ее друг Карл. Вчетвером они беззаботно проводят время, но веселью наступает конец: фашисты приходят к власти.Жанр: Драма, МелодрамаРежиссер: Ксавьер КоллерАктеры: Ульрих Нойтен (Ulrich Noethen), Хайке Макатч (Heike Makatsch), Джасмин Табатабай (Jasmin Tabatabai), Маркус Томас (Marcus Thomas), Рудольф Вессели (Rudolf Wessely), Хорст Краузе (Horst Krause), Leif Liljeroth, Ингер Нилссон (Inger Nilsson)Перевод: Профессиональный (многоголосый)Продолжительность: 01:33:39
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:E0E1CDAEEDEC387F83119CA065300A3975BCE6C9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -295,28 +157,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068523   (380013) от 01.11.2016
+###  Публикация: 573007   (381745) от 10.11.2012
 
-Georges Bizet - Carmen (Tatiana Troyanos, Placido Domingo, Jose van Dam, Kiri Te Kanawa) - Carmen (1976)Remaster 1998 DECCA [FLAC|Lossless|image + .cue] <Opera>
+VA - Trance Eve Volume 44 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
 
->>нет
->>нет
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_380013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381745.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Acte 1
-1. Prélude
-2. Mais nous ne voyons pas la Carmencita!...L'amour est un oiseau rebelled (Habanera)
-3. Parle-moi de ma mère(   Читать дальше...   )Жанр: OperaПродолжительность: 01:14:55
+001. Faruk Sabanci - Oriental Sentiment (Nurettin Colak Remix)
+002. Fergus Keogh feat. Tiff Lacey - Darkest Hours (Original Mix)
+003. Indecent Noise feat. Ridgewalkers - Full Moon Fever (Power Dub)
+004. Julian Vincent & Shannon Hurley - Lost In Space (Eximinds Remix)
+005. Mark Sixma feat. Amba Sheperd - Cupid`s Casualty (Mike Saint Jules Remix)
+006. Moonbeam feat. Blackfeel Wite - In Your Eyes (Ilya Soloviev Remix)
+007. Neev Kennedy - The Unknown (DNS Project Mix)
+008. Norin & Rad - Zion (Original Mix)
+009. Progressiver - Searching For The Truth (Den Rize pres. Rizen Remix)
+010. Allure feat. Emma Hewitt - Stay Forever (Nitrous Oxide Remix)(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:16:36
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:80ACA5B864E66F69DF609903DE179861FFCF0DA4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -324,25 +192,268 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068434   (380012) от 01.11.2016
+###  Публикация: 404079   (381726) от 29.10.2011
 
-Free Studio 6.6.29.1027 [Multi/Ru]
+Поворот не туда 2: Тупик / Wrong Turn 2: Dead End (2007) [H.264/720p-LQ] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отставной военный армии США Полковник Дэйл Мерфи становится ведущим постапокалиптического реалити-шоу, где участникам предстоит выжить в отдаленной пустоши штата Западная Виржиния. Но шоу неожиданно превращается в кошмарную схватку не на жизнь, а на смерть, когда каждый участник понимает, что за ним охотится семья выродков-каннибалов, готовая сделать его своей закуской...Жанр: Триллер, УжасыРежиссер: Джо ЛинчАктеры: Тексас Бэттл, Эрика Лирсен, Генри Роллинз, Алекса Палладино, Стив Браун, Мэттью Карри Холмс, Кристал Лоу, Кимберли Колдуэлл, Вейн Робсон, Даниелла АлонсоПеревод: ДублированныйПродолжительность: 01:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4300BC251F059B262CB631FD65AABAC1EEA26324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 719766   (381705) от 07.11.2013
+
+Газета | Авторевю [Россия] №21 (529) (ноябрь 2013) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Газета рассказывает о новинках автомобильного рынка, а также в нем можно найти самые свежие авто новости, самые новые автомобили, и многое другое. "Авторевю" по праву считается одним из ведущих российских автомобильных изданий. "Авторевю" ведет ряд уникальных проектов: сравнительные тесты автомобилей на базе полигона НИЦИАМТ и собственные краш-тесты (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D8BBB10CC7C4C1A22B48C3223EE918E26F928D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253540   (381704) от 10.10.2018
+
+Jeff Lorber Fusion - Impact (2018) Time Blues [FLAC|Lossless|image + .cue] <Jazz Fusion, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sport Coat Makes Good [4:39]
+02. Pasadena City [4:26]
+03. Citizenship [4:44]
+04. Highline [4:33](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-FunkПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5BE353243AB80FA1B4B02A126776D9CE3DD716E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253546   (381703) от 10.10.2018
+
+Дьёрдь Шош | О чем говорили ботинки (1968) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381703.jpg" />
+</div>
+
+
+###  Подробнее
+
+адиоспектакль по пьесе известного венгерского драматурга Д. Шоша. Условность формы радиопьесы не помешала автору несколькими штрихами очертить характеры своих героев, в том числе и главного — уличного чистильщика обуви, которому ботинки раскрывают «тайны» своих владельцев...Жанр: РадиоспектакльПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88A22782DF2AE0326515685BE32E3173FA6142E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253542   (381702) от 10.10.2018
+
+Якоб Гримм, Шарль Перро и др. | Былые небылицы (1910) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник сказок для детей младшего возраста.Жанр: Детская проза. Сказка.Формат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:559235376816BC498E593310E63D614B83595272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253553   (381701) от 10.10.2018
+
+Wondershare Filmora 8.7.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный видеоредактор, содержащий все необходимые инструменты для редактирования видео. В вашем распоряжении все необходимые инструменты для создания фильма с использованием нужных вам титров, плюс вы сможете добавлять большое количество встроенных фильтров и эффектов переходов, есть возможность работать со звуковыми дорожками, в целом все как в остальных редакторах. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.09.2018Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A4861E145D25684672F09A856F6ED233FCA454C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253502   (381700) от 10.10.2018
+
+Maribou State - Kingdoms In Colour (2018) Japan Edition [FLAC|Lossless|tracks + .cue] <Leftfield, Downtempo, Post Rock>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beginner's Luck (4:28)
+02. Kingdom (4:10)
+03. Turnmills (5:04)
+04. Nervous Tics (feat. Holly Walker) (4:14)(   Читать дальше...   )Жанр: Leftfield, Downtempo, Post RockПродолжительность: 00:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B5AD22BFBCA21B27D7FB9C5EF7860BC2F26C5AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253670   (381699) от 10.10.2018
+
+Туве Янссон | Папа и море (2018) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Муми-троллям уже доводилось переезжать, а Муми-папа – тот вообще великий путешественник. Вот и сейчас, к концу лета, Муми-папа решил, что размеренная жизнь в долине не для его мятежной души. Его призвание – жить на острове с маяком, средь бушующего моря, и указывать путь кораблям. Семейство отправляется в путь. Маяк на первый взгляд кажется довольно скучным и неуютным (   Читать дальше...   )Жанр: Детские приключения, СказкиПеревод: Евгения ТиновицкаяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0441A9C356E901A1C87B4D781536CBBD65CEC1B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253373   (381698) от 10.10.2018
+
+Chi-Chi Favelas And The Black And White Band - Rock Solid (1978) LP [MP3|320 Kbps] <Electronic, Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Solid (10:14)
+02. Cocaine Part One, Discocaine, Cocaine Part Two (7:48)
+03. Give It To Me (7:21)
+04. Voodoo Lady (7:48)Жанр: Electronic, Rock, DiscoПродолжительность: 00:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D54409FD4328F2FE2B6EE8F4A385B63C73950416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253531   (381697) от 10.10.2018
+
+Air Explorer Pro 2.4.0 Portable by FoxxApp [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381697.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Free Studio - это единый пакет, включающий все бесплатные мультимедийные приложения, разработанные DVDVideoSoft. Все бесплатные приложения организованы в 5 разделов для легкого доступа: программы для скачивания, загрузки, конвертации, записи и редактирования.Язык интерфейса: Русский, Английский и другие
+Air Explorer Pro — один из лучших файловых менеджеров для работы с облачными хранилищами. Программа поддерживает работу с такими сервисами: OneDrive, Google Drive, 4shared, Box, Dropbox, Mega, Copy, Mediafire, Yandex, Baidu, поддержка подключения по протоколам WebDAV и FТP.Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35AC74D56A709C231247E14E625A95B0823802B8
+magnet:?xt=urn:btih:F7EF5117F3B5B2A375381886F25AA104C1DBA45F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -350,25 +461,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068486   (380011) от 01.11.2016
+###  Публикация: 1253671   (381696) от 10.10.2018
 
-Viber 6.4.0.1476 [Multi/Ru]
+Туве Янссон | В глубине ноября (2018) [FB2]
 
->>След.
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето прошло, и зима не за горами. Снусмумрик, как обычно, отправляется в странствие. Но почему-то на этот раз у него не получается беспечно покинуть Муми-долину — ноги словно сами собой возвращают его обратно. И, кстати, ближе к зиме многие друзья и знакомые муми-троллей вдруг решают, что сейчас самое время нанести визит в Муми-дом. И вот на веранде вновь загорается (   Читать дальше...   )Жанр: Детские приключения, СказкиПеревод: Евгения ТиновицкаяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C4609EF478CC8799D1803C1E430EEEC2D3D84B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253643   (381695) от 10.10.2018
+
+Opera 56.0.3051.43 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381695.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Viber для Windows позволяет бесплатно отправлять сообщения и звонить другим пользователям Viber на любые устройства в любых сетях и странах. Viber синхронизирует Ваши контакты, сообщения и журнал звонков с Вашим мобильным устройством. Интегрируется в адресную книгу и авторизует по номеру телефона. Позволяет делать бесплатные звонки через Wi-Fi и мобильные сети 3G (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:327ADBA725F66506A15E13FAC16303F08B2F8DFC
+magnet:?xt=urn:btih:A90BD30636F3915EBC9DF2178F19AFA58AD6BDA4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -376,25 +513,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068440   (380010) от 01.11.2016
+###  Публикация: 1253606   (381694) от 10.10.2018
 
-Гений / Genius (2016) BDRip [480p] iPod
+CADintosh X 8.4.2 [Multi]
 
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381694.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История о непростой дружбе двух очень талантливых людей: писателя Томаса Вулфа и издателя Макса Перкинса, открывшего всему миру таких великих романистов, как Ф. Скотт Фицджеральд и Эрнест Хемингуэй.Производство: СШАЖанр: Драма, биографияРежиссер: Майкл ГрандаджАктеры: Колин Фёрт, Николь Кидман, Лора Линни, Джуд Лоу, Доминик Уэст, Гай Пирс, Ванесса Кирби, Марк Арнольд, Джейн Перри, Бернард КоллакоПеревод: Дублированный (Лицензия BD RUS)Субтитры: НетПродолжительность: 01:44:00
+CADintosh позволяет ускорить проектные работы и имеет тысячи надстроек, которые позволяют удовлетворить потребности самого широкого круга клиентов. CADintosh X - приложение из категории "Графика и дизайн", созданное компанией Lemke Software GmbH в январе 2012 года, которое прекрасно вписывается в идеологию Mac. Интерфейс приложения доступен на восьми языках. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.10.2018Разработчик: Lemke Software GmbHПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский, Немецкий, Французский и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3ECF71D7B74A804B8A2478B3FE354DFD04205CC7
+magnet:?xt=urn:btih:798AEBC0FE3D34E1B1EB173FF6982DB4494EA31A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -402,293 +539,199 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067981   (380009) от 01.11.2016
+###  Публикация: 1253466   (381693) от 10.10.2018
 
-Santiano - 3 Альбома (2012 - 2015) [FLAC|Lossless|tracks + .cue | image + .cue] <Folk, Rock, World>
+Sweetbox - Everything's Gonna Be Alrigh (1997) Maxi-Single [FLAC|Lossless|image + .cue] <Classical, RnB/Swing, Hip Hop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381693.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Everything's Gonna Be Alright (Radio Version 85 Bpm)
+2.	Everything's Gonna Be Alright (Video Version 88 Bpm)
+3.	Everything's Gonna Be Alright (Geo's "E" Club Mix)
+4.	Everything's Gonna Be Alright (Classic Version)(   Читать дальше...   )Жанр: Classical, RnB/Swing, Hip HopПродолжительность: 00:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60CE7FF30EC55D26C2B48EB8B2AFDC0813E99B6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253666   (381692) от 10.10.2018
+
+Пионерлагерь Пыльная Радуга - Мало (2018) [MP3|320 Kbps] <Indie Rock, Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381692.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Конь
+2. Бхзрд
+3. Король червей
+4. Использованная песня(   Читать дальше...   )Жанр: Indie Rock, GrungeПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3685C17EB6F26D3E5751745987CB493AAEDDB442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253672   (381691) от 10.10.2018
+
+Туве Янссон | Невидимая девочка и другие истории (2018) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир муми-троллей — «это мир, по которому в глубине души тоскует каждый из нас». Правоту этого утверждения знаменитой шведско-финской писательницы и художницы Туве Янссон доказывают её книги, ставшие неотъемлемой частью детства уже нескольких поколений. Наивный и мудрый, тёплый и добрый, несмотря на все бури, которые его иногда сотрясают, этот мир всегда открыт и (   Читать дальше...   )Жанр: Детские приключения, СказкиПеревод: Мария ЛюдковскаяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73F543A5C0AC4D059C2AAF16B223C9F86EC69DF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253658   (381690) от 10.10.2018
+
+The Michelle Taylor Band - Dirty Love (2018) [MP3|320 Kbps] <Blues Rock, AOR>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hanging on the Vine (03:54)
+02. One Foot in the Gutter (04:18)
+03. Highway 65 (04:59)
+04. Dirty Love (04:19)(   Читать дальше...   )Жанр: Blues Rock, AORПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CCFC8688A5F35B331FB0E7EDE630B75DD2B1CE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253355   (381689) от 10.10.2018
+
+BZN  - A Symphonic Night (1996) [FLAC|Lossless|image + .cue] <Pop, Classical, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381689.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.		Sing Of Love And Faith
+2.		Lilly Marlene
+3.		La Paloma
+4.		Le Printemps(   Читать дальше...   )Жанр: Pop, Classical, BalladПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A30AF07488DC70A2783ABE67259FEEC8221797EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253597   (381688) от 10.10.2018
+
+Алексей Стёпин - Дорога да гитара (2002) [FLAC|Lossless|image + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Поезда
+02. Озеро лебедей
+03. Дорога да гитара
+04. За свободу!(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45CE6A3364CBC619D4F8C367BAC82E3B19264EFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253563   (381687) от 10.10.2018
+
+Constance Demby - Light of This World (1987) [FLAC|Lossless|tracks + .cue] <NewAge>
 
 >>Other Styles
->>Folk (Lossless)
+>>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381687.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Немецкая группа из Фленсбурга. Исполняет музыку в различных народных жанрах, преимущественно это немецкая народная музыка, ирландская народная музыка и морская песня шанти. Имя Santiano было взято из песни шанти «Santiano» также известной как O Santianna (All on the Plains of Mexico), которая стала популярной в 1961 году благодаря исполнению Юга Офрэ.2012 - Bis ans Ende der Welt. В Германии альбом получил статус пятикратно платинового
-(продано более 1 млн. копий).
-2013 - Mit den Gezeiten. В Германии альбом получил статус бриллиантового
-(продано более 750 тыс. копий).(   Читать дальше...   )Жанр: Folk, Rock, WorldПродолжительность: 03:09:29
+01. Light of This World (06:57)
+02. Sunborne (04:21)
+03. The Flying Bach (06:09)
+04. Radiance (04:53)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 01:03:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:809052115E21D05F8B7FEA7F79BB194CFF215FF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007279   (380008) от 01.11.2016
-
-Василий Аксенов | Таинственная страсть. Роман о шестидесятниках. [Книга 1-2] (2011) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами полная версия нашумевшего романа Василия Аксенова "Таинственная страсть". Он впервые публикуется в том виде, в каком его передал нам автор. Герои "Таинственной страсти" - кумиры шестидесятых: Булат Окуджава. Роберт Рождественский. Белла Ахмадулина, Владимир Высоцкий, Андрей Вознесенский, Андрей Тарковский, Евгений Евтушенко, Иосиф Бродский (   Читать дальше...   )Жанр: Современная проза, РоманПродолжительность: 22:28:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD943B9D758264533DC36B6EE28F8AE32309896
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063025   (380007) от 01.11.2016
-
-Настоящее мужество / True Grit (1969) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Упрямая молодая особа нанимает нашего героя — бесстрашного «одинокого волка», одноглазого служителя закона, Рустера Когберна, чтобы найти убийцу своего отца, который скрылся с ее фамильными сбережениями.
-«Заказчица» ставит совершенно невыносимое для нашего героя условие — она настаивает на своем участии в розыске преступника. Ситуация превращается из катастрофической (   Читать дальше...   )Производство: США / Hal Wallis Productions, Paramount PicturesЖанр: Драма, Приключения, ВестернРежиссер: Генри ХэтэуэйАктеры: Джон Уэйн, Глен Кэмпбелл, Ким Дарби, Джереми Слейт, Роберт Дювалл, Деннис Хоппер, Альфред Райдер, Стразер Мартин, Джефф Кори, Рон СоблПеревод: Многоголосый закадровый, авторскийЯзык субтитров: Русский, английскийПродолжительность: 02:08:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CFC3B0A71A5F2E0A180555858F3A57987243C8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066750   (380006) от 01.11.2016
-
-История игрушек: Веселозавр Рекс / Toy Story Toons: Partysaurus Rex (2012) BDRip [H.264/720p]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_380006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бедный Рекс. Другие игрушки думают, что он унылый и портит все вечеринки. Но когда Бонни решает поиграть с ним во время вечернего купания, из зануды он в одно мгновение превращается в… Веселозавра Рекса! Когда заразительное веселье, царящее в ванной, захватывает Базза, Вуди и других персонажей из «Истории игрушек», они вынуждены признать, что Рекс — настоящий король (   Читать дальше...   )Производство: США | Pixar Animation StudiosЖанр: Короткометражный анимационный фильмРежиссер: Марк А. УолшПеревод: Дублированный / Одноголосый закадровыйСубтитры: Русские, Английские (вшитые, отключаемые)Продолжительность: 00:06:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068670   (380005) от 01.11.2016
-
-Maxthon Cloud Browser 4.9.4.2000 Final + Portable [Multi/Ru]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_380005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный веб-браузер, разработанный для пользователей любого вкуса и предпочтений. Maxthon предлагает богатый набор функций для улучшения Интернет-серфинга. Двойной движок для отображения веб-страниц (Trident и Blink), быстрый JavaScript-движок (V8), поддержка современного HTML5 делают все, чтобы посещаемые сайты открывались действительно быстро.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068521   (380004) от 01.11.2016
-
-SRWare Iron 54.0.2850.0 + Portable [Multi/Ru]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_380004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безопасный, удобный и быстрый в работе браузер на основе исходного кода проекта Chromium. Обладая интерфейсом и многими функциями, знакомыми пользователям по Google Chrome, SRWare Iron отличается своей политикой по отношению к безопасности и конфиденциальности. В нем отсутствуют какие-либо «следящие» модули, в чем неоднократно обвинялся браузер от Google.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068463   (380003) от 01.11.2016
-
-Шрек: Поросёнок, который крикнул «Оборотни!» / The Pig Who Cried Werewolf (2011) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380003.jpg" />
-</div>
-
-
-###  Подробнее
-
-В соседний дом трех поросят заселяется волк. Один из поросят начинает следить за ним и с ужасом узнает, что волк под лунным светом превращается в пухлую женщину средних лет, которая одержима готовить свинину…Производство: США | DreamWorksЖанр: Короткометражный анимационный фильмРежиссер: Гари ТруздейлПеревод: Дублированный / Многоголосый закадровыйСубтитры: Английские (полные, вшитые, отключаемые)Продолжительность: 00:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C7098FE4F9862B7D5521F0104340DFB773342C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068643   (380002) от 01.11.2016
-
-Виталий Каплан | Масть (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман из цикла «Дозоры».
-
-Конец XVIII века, Россия. У ставшего Тёмным Иным гвардейского поручика Андрея Полынского не задалась служба в Дневном Дозоре Санкт-Петербурга, и он переводится в Тверь. Казалось бы – сонная провинция, но ведь известно, что в тихой воде… Юноша не сразу осознает, что новый начальник использует его в качестве пешки в тонкой игре, причем пешки, (   Читать дальше...   )Жанр: Боевое фэнтези, Городское фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1A8C0DFE225D91EF8F5E577EC5A01FB3483C925
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068715   (380001) от 01.11.2016
-
-Призраки Марса / Ghosts of Mars (2001) BDRip [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Планета Марс, 2176 год. На одну из дальних шахтерских станций, на специальном поезде отправляется отряд полиции, чтобы забрать, и доставить в город опасного преступника Уильямса, подозреваемого в убийстве и грабеже. Однако члены отряда еще даже не догадываются о той опасности, которую им приготовил Марс. Ведь отважным полицейским придется столкнуться не столько с (   Читать дальше...   )Производство: СШАЖанр: Фантастика, Боевик, УжасыРежиссер: Джон КарпентерАктеры: Айс Кьюб, Наташа Хенстридж, Джейсон Стэтхэм, Пэм Гриер, Клеа ДюВалл, Джоанна Кэссиди, Лайам Вейт, Ванда Де Джисус, Дуан Дэвис, Родни А. Грант, Лобо Себастьян, Роберт Кэрредин, Питер Джейсон, Ричард Цетрон, Розмари ФорсайтПеревод: Авторский (одноголосый, закадровый) Д.ЕсаревСубтитры: Русский, английскийПродолжительность: 01:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:230923A9A6F0E86F9066604C5FDE1C6EDE46CD1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068245   (380000) от 01.11.2016
-
-Google Earth Pro 7.1.7.2606 Portable by Baltagy [Multi/Ru]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_380000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир, в котором мы живем, теперь у вас под рукой! Корпорация Google выпустила новую версию программного пакета под названием Google Earth. Приложение предназначено для работы с одноименным сервисом, который позволяет просматривать спутниковые снимки планеты Земля в 3D-режиме, используя для этого технологию OpenGL. Присутствуют функции для поиска по адресам, по объектам. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068567   (379999) от 01.11.2016
-
-Давид Шарковский, Михаил Вилков | История России. Иллюстрированный путеводитель (2016) [FB2]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379999.jpg" />
-</div>
-
-
-###  Подробнее
-
-История России охватывает более 1000 лет. Каждое событие имело свои причины и последствия, каждое – привело нас к современной России. Чтобы не запутаться во всех подробностях и фактах, нужно наглядно представлять историю развития нашей страны.
-
-В этой книге собраны знания, необходимые каждому человеку. 20 разделов охватывают события от образования княжеств до наших (   Читать дальше...   )Жанр: ИсторияФормат: FB2
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:8B4B05C7B2008C2A160E76BB1740CC300B5DF386
 ```
 
 https://mybot314.ru/tekegram_catalog/

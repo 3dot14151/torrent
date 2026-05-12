@@ -1,3 +1,56 @@
+###  Публикация: 963487   (286981) от 08.12.2015
+
+Проекты - FluxVFX - Deluxe Contact Sheet [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания фото-видео слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E8BE9D2B616121732FF65977AF7F857176A41A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963486   (286974) от 08.12.2015
+
+Проекты - Pond5 - Accent - Crystal Modern Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот шаблон идеально подходит для дефиле, танцевальных вечеринок, различных презентаций и других мероприятий. Вы можете использовать этот проект также в качестве портфолио модели. Можно выбрать цвет 9 пресетов для ваших изображений. Имеются две версии проекта - без плагинов Prerenders, и с использованием Particular.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA167BAD3083B5CB796D2F08B47DA33CA9E06203
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963659   (286894) от 08.12.2015
 
 Проекты - Проект ProShow Producer - Winter Labels [PSH]
@@ -625,58 +678,6 @@ VideoHive - The Five Heroes Cinematic Title - 24964321 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66D54988C8BC763234DABC0E1AB6DB0EF574581D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186553   (285473) от 25.11.2017
-
-Проекты - VideoHive - The Slideshow - 20794122 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Забавный динамичный проект для создания незатейлевого фото/видео слайдшоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26BE87D1E78D062F6A2D4E045D655CE611B4961B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080912   (285418) от 08.12.2016
-
-Проекты - VideoHive - Pure Sport Template - 18765876 [AEP]
-
->>Проекты
->>Спортивные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pure Sport Template - шаблон заточен под спортивную тематику. Использованные в превью футажи, есть в комплекте. Но вы можете применить любые другие на спортивную тему.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C0A99523C0B6705E18E36F8DB9B7770DFD4890
 ```
 
 https://mybot314.ru/tekegram_catalog/

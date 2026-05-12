@@ -1,3 +1,107 @@
+###  Публикация: 1783203   (25722) от 04.03.2025
+
+Растровый клипарт - Dealjumbo.com - Deeezy - Fantasy Game Free PNG Alphabet - 96232 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница в пяти вариациях.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 3000 x 3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A396CA81AA1AC4F666DBC33C1CD34840E12309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783225   (25721) от 04.03.2025
+
+Растровый клипарт - Creative Market - Watercolor Sea. Whales clip art - 2370047 [PNG, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот набор акварельных китов включает в себя более 40 элементов акварельного клипарта с красивой акварельной текстурой.Формат: PNG, JPGРазрешение файлов: 1546x1924 - 3509x2550
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD92F44DCAF0BC3A4C103379E25D30165C8DC22E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783102   (25720) от 04.03.2025
+
+Шрифты - Ballinger X-Condensed [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ballinger X-Condensed - наследственная ДНК видна в щедрых счетчиках и x-высоте, прямых формах и ауре веселой эффективности.Формат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E0EF40CF4576A2D6510E121FBB18602CE2549AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783202   (25716) от 04.03.2025
+
+Шрифты - Future Fonts - Granblue [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Granblue — это красивое семейство шрифтов, поддерживающих кириллицу.Формат: OTF, TTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2B26156D2D01FF1A71F94358B76412B7FE6C541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783294   (25686) от 05.03.2025
 
 3D модели - BigMediumSmall - CYBERPUNK [BLEND, FBX, C4D, UPROJECT]
@@ -577,112 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92BAB4E1CD94F538077E68C7E93876F3056B9166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784433   (25104) от 10.03.2025
-
-Растровый клипарт - The Hungry JPEG - 26 moon Photo Overlays in PNG, Photography - 3500964 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой пакет "прозрачных лун" для ваших творческих задач.Формат: PNGРазрешение файлов: 300x300 - 3517x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF564C8ABCEBD017BFCF516D9C3F9CE544A8E750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784314   (25102) от 10.03.2025
-
-Пресеты - Kiana Corri Presets [XMP]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти пресеты теплые, реалистичные и адаптируемые к любой ситуации.Формат: XMP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6E3ACC9E962CD39D73D29AD96DB7614C007A3AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784271   (25100) от 10.03.2025
-
-Шрифты - Zetafonts - Aquawax Fx [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aquawax FX был разработан Франческо Кановаро как новый вариант семейства Aquawax, одного из самых любимых классических шрифтов Zetafonts.
-
-Кириллица поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4D7306907CE7CB5A09C421B68482B1D1EAD393D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784290   (25097) от 10.03.2025
-
-Растровый клипарт - Артём Драчков - Behance - FREE FONT 3D - 211641095 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный алфавит-кириллица.Разработчик: Артём ДрачковФормат: PNGРазрешение файлов: 2000 x 2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDD6D058A0AA5E328F8D47ED75338355F84FF027
 ```
 
 https://mybot314.ru/tekegram_catalog/

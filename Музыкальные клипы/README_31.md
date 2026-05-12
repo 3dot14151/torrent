@@ -1,3 +1,87 @@
+###  Публикация: 962533   (292758) от 05.12.2015
+
+Pitbull - (Collection Video Clip) (2011 - 2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию предлагаем лучшую подборку видео клипов Armando Christian Perez III или сценическое имя Pitbull.01. Pitbull and Empire Cast ft. Jussie Smollettl - No Doubt About I (00:04:14)
+02. Pitbull - Back In Time (featured in 'Men In Black III') (00:03:32)
+03. Pitbull - Celebrate (from the Original Motion Picture Penguins of Madagascar) (00:03:11)
+04. Pitbull ft. TJR - Don't Stop The Party (00:03:33)(   Читать дальше...   )Жанр: Latino, Reggaeton, Hip House, Rap, Hip-Hop, Latin UrbanПродолжительность: 01:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:338CD52DD68AD3BE60D14C7772E6F58B5C581040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962598   (292639) от 05.12.2015
+
+Ageless rock (2015) WEBRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не стареющий рок!01. Cream - White Room [06:12]
+02. Queen - We Will Rock You [02:10]
+03. Mungo Jerry - Baby Jump [04:05]
+04. Alice Cooper - I Never Cry [02:26](   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Glam RockПродолжительность: 02:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943029AE4E46748178C799B539DE5116FB4A4637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185549   (291230) от 22.11.2017
+
+David Guetta feat. Rihanna - Who's That Chick (2010) 540p HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный видеоклип David Guetta feat. Rihanna - Who's That Chick.Жанр: Музыкальный видеоклип.Субтитры: отсутствуютПродолжительность: 00:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F155C8F39B492685A10C0B18F91E85D6C473931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185781   (285646) от 25.11.2017
 
 Сборник клипов - Ballads and Lyrics от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
@@ -644,84 +728,6 @@ Sandra - The Complete History (2003) DVDRip [H.264]
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495133   (251223) от 11.05.2012
-
-Сборник видеоклипов Millenium Slow (2012) HDTVRip [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник медленных композицийЖанр: POPПродолжительность: 05:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7991F065E16AC43C61ACFF6E91FCF0A5FAFA22C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494343   (251044) от 10.05.2012
-
-30 Seconds To Mars - Hurricane (Uncensored) (2010) BDRip 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фентезийный клип-фильм Hurricane от 30 Seconds To Mars. Отлично снят. Главное, пожалуй, музыка, по крайней мере - для меня. Она просто шикарная.Жанр: Hard rock, space rock, progressive rockРежиссер: Bartholomew CubbinsАктеры: Jared Leto, Shannon Leto, Tomo MiličevićПродолжительность: 00:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0D9A230C39B71EB6BC1403ED6219EF02E635A3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490705   (248236) от 06.05.2012
-
-VA - Сборник клипов part. 3 Deutsch Rap (2002-2012) WEBRip 720p | KURD28
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Deutsch RapПродолжительность: ~03:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16C9704141D6AE486D774B3EF0AFCA2F1D30129D
 ```
 
 https://mybot314.ru/tekegram_catalog/

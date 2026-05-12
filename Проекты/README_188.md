@@ -1,3 +1,55 @@
+###  Публикация: 1042125   (580210) от 11.08.2016
+
+Проекты - VideoHive - Smoke Logo Reveal - 7556477 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания демонстрации логотипа. Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891E89743CE2A9F201E902C932352B36F606FBDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919704   (580002) от 22.07.2015
+
+Проекты - VideoHive - Funky Groove logo 2 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Funky Groove logo 2 - веселый и простой, оригинальный и краткий - вот достоинства этого проекта. Обучение есть.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4485B23AF2A99E3C71E0951A81396D1CFD84867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919721   (579932) от 22.07.2015
 
 Проекты - VideoHive - Funky Show Intro [AEP]
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:613C57A20098EB6C28CBE0C61CDEDCC126EF05A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042635   (578081) от 13.08.2016
-
-Проекты - VideoHive - Contour Construction - 7505982 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстрации логотипа или текста. Вы можете использовать этот проект для любых целей. Конструкция зависит от вашего логотипа, так что вы можете использовать любой логотип, и он автоматически будет построен под ваш логотип.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1238F70EAE71588CA311D349B254A3B33C9B5EC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042625   (578076) от 13.08.2016
-
-Проекты - VideoHive - Neuro - 17056974 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Neuro - это мощный проект для демонстрации логотипа или слогана.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5645FBEA42EADC2A1BF181F234A3AB93CC2FF35
 ```
 
 https://mybot314.ru/tekegram_catalog/

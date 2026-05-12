@@ -1,3 +1,55 @@
+###  Публикация: 1086517   (152289) от 24.12.2016
+
+Проекты - VideoHive - Typocorp - 18962679 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Typocorp - это стильные титры и слайд-шоу с минимальным дизайном.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E68A0ECAC2C1CE0862C5A338C500AE0724D32BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968594   (152288) от 24.12.2015
+
+Проекты - VideoHive - Inkman Christmas Holiday card - 9686324 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замечательный шаблон для новогоднего поздравления. Этот шаблон идеально подойдет для e-mail видео-открытки.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04F75EF929E41C78BC179967FD004932E8B72E65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518836   (152191) от 21.12.2021
 
 Проекты - VideoHive - Charming Baby Photo Album - 10585827 [AEP]
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28954D548FDD6E2E9B0B255D7440DF6B82153F64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194230   (151064) от 27.12.2017
-
-Проекты - VideoHive - Titles v5.0 - 17500952 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blade Titles 5.0 - Этот пакет имеет прекрасный, современный дизайн и предлагает некоторые анимационные трюки. Шаблон разнообразный, поскольку он содержит не только lower thirds, но и анимацию логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A99A453DBC5A4994DB038E16F9549FA68B1A5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194233   (150834) от 27.12.2017
-
-Проекты - VideoHive - Extreme Show // Sport Event Promo - 20706485 [AEP]
-
->>Проекты
->>Спортивные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отлично подойдет для презентации разных видов спорта. Очень зрелищный и динамичный проект.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD193412143E11A40DD31244376C702FF7C383F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

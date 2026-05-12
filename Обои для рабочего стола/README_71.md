@@ -1,3 +1,29 @@
+###  Публикация: 962481   (293339) от 05.12.2015
+
+Обои - Domestic animals 3 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои на тему животныхФормат: JPGРазрешение файлов: 1680x1050 - 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CFA1CAAFDFC294275597CA21EDCD173903A787B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962484   (292989) от 05.12.2015
 
 Обои - Водные обои (Mega Pack 1) [JPG]
@@ -643,32 +669,6 @@ Desktop Wallpapers (4K) Ultra HD. Part (276) [JPG]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B95B83D9CD1CFB3E852A9FFACBFEE39E2FDD790E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335724   (285844) от 03.11.2019
-
-Desktop Wallpapers (4K) Ultra HD. Part (273) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2FDF9478EC6BFF99854B8A77D651575DDB98508
 ```
 
 https://mybot314.ru/tekegram_catalog/

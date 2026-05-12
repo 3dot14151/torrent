@@ -1,3 +1,29 @@
+###  Публикация: 1772058   (31479) от 09.01.2025
+
+Фоны - Spring Bunny Pathway Digital Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой набор фонов с кроликами для ваших творческих проектов.Формат: PNGРазрешение файлов: 6206x4137 - 8145x5504
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF1E34B7A3943057763CF7AF4683641FF7D689EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772869   (31222) от 12.01.2025
 
 Текстуры - Seamless Pattern Heaven, 14K HQ [JPG]
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24C87E393C763101CA0E6FB546BC15A3BC6B8D05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790933   (21758) от 11.04.2025
-
-Текстуры - STCrafts - Creative Fabrica - Purple and Gold Luxury Floral Texture Digital paper [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровая бумага с фиолетовой и золотой цветочной текстурой.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10A8A481B5321B2038861C1773319CB795A822F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

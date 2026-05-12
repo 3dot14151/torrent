@@ -1,25 +1,22 @@
-###  Публикация: 1274172   (795054) от 05.01.2019
+###  Публикация: 1509195   (795661) от 11.11.2021
 
-VA - FSOE Clandestine: Best Of (2018) [MP3|320 Kbps] <Trance>
+Журнал | Street Trucks [Canada] №3 (март 2021) [PDF] [En]
 
->>Electronic
->>Trance
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795661.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Stoneface & Terminal - Berlin 2000 (Original Mix)
-02.Darren Porter - Whiplash (Original Mix)
-03.David Forbes & Paul Denton - Blizzard (Original Mix)
-04.Paul Denton - Revolution (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:54:49
+Журнал Street Trucks фокусируется на всем, что касается кастомизированных грузовиков, включая самые горячие тенденции, обновления послепродажного обслуживания и специальные приемы настройки.Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C7AD9A588C203525019740E25D40716E9D259A0
+magnet:?xt=urn:btih:49AD681C0C4C1776A5AAAA8255976B52527316A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273969   (795053) от 05.01.2019
+###  Публикация: 1509179   (795660) от 11.11.2021
 
-App Tamer 2.4.2 [En]
+Wondershare PDFelement Pro 8.5.3 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795660.jpg" />
 </div>
 
 
 ###  Подробнее
 
-App Tamer — держим производительность под контролем!
-При работе за компьютером очень часто вы можете обнаружить большое количество открытых программ, половина из которых вам уже не нужна. В такой ситуации выход только один — закрыть ненужные приложения и освободить системные ресурсы. Но с App Tamer у вас появится еще одно решение этого вопроса!
-
-App Tamer — это небольшая (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.01.2018Разработчик: St. Clair SoftwareПоддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский
+PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вы можете легко создавать новые PDF-файлы с веб-страниц (.html, .htm), изображений (png, .jpeg, jpg, bmp, .tiff, .bmp) и текстовых файлов (.rtf, .rtfd, .txt). Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2021Разработчик: © 2021 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D93B92DE50C7E39ABA87C3EB78BA021B6E0205EB
+magnet:?xt=urn:btih:96DCE4608DECE0E37CE7D3A01726F8CBD321380A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,27 +50,225 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273978   (795052) от 05.01.2019
+###  Публикация: 1200607   (795659) от 21.01.2018
 
-Money Pro 2.0.1 [Multi/Ru]
+Laliya - The Middle Way (2017) [MP3|320 Kbps] <Lounge, New Age>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dragonfly (6:04)
+02. Breathe (4:38)
+03. Weave (4:04)
+04. Mind Finding Form (3:42)(   Читать дальше...   )Жанр: Lounge, New AgeПродолжительность: 00:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F86CF719E4F4171BD363233DA5106963CE79775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200531   (795658) от 21.01.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0003 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lala - Johnny, Johnny ( Extended Version 1986 )
+02. Monte Kristo - Sherry Mi-Sai ( Maxi Version 1986 )
+03. Savage - And You Are ( 2016 )
+04. Alan Barry - Hie Hie Hie ( 1987 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E68A5142FD4190A9D698DF60F6769101EC7CD5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200536   (795657) от 21.01.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0004 (2018) [MP3|256 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danny Keith - I Feel Right ( Day Version 1986 )
+02. Leopold Nord & Vous - C'est L'Amour ( Love Remix 1987 )
+03. Afroside - Lady Come Down ( 1988 )
+04. Telex23 - Phaeton ( 2017 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7B27A440E9138BA005D598D83490825B2375A7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200445   (795656) от 21.01.2018
+
+Iron Savior - Reforged - Riding on Fire (2017) 2CD (Japanese Edition) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warrior
+02. Iron Savior
+03. Tales of the Bold
+04. No Heroes(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8334583DFC17437AD54D6D4BDD418D1A2BF0A4D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200621   (795655) от 21.01.2018
+
+VA - Empire Records - Sound Clinic 9 (2017) [MP3|320 Kbps] <Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danny-S & Relanium Feat. Laila - Intoxicated 2.1 (Taito Remix)
+02. AC Slater & Chris Lorenzo - Fly Kicks (Wax Motif Remix)
+03. Nick Olivetti & Sly Turner - 247 (LiTek Remix)
+04. Xairun - Sub Bass(   Читать дальше...   )Жанр: Club, HouseПродолжительность: 01:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E34F4466E167655CDB434CCDF0C068B014756E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200530   (795654) от 21.01.2018
+
+Василий Андреевич Жуковский | Сказка о Иване-царевиче и сером волке (1909) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795654.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сказка о Иване-царевиче и Сером Волке» – произведение русского поэта, одного из основоположников романтизма в русской поэзии В. А. Жуковского (1783 – 1852).Жанр: Детская проза, СказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E1CC71546E9E837B8AE6FE3CEE1D2C87B7DDD86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200528   (795653) от 21.01.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0002 (2018) [MP3|320 Kbps]<Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tony Costa feat. Charly Danone - Go! ( 2017 )
+02. Den Harrow - Italian Megamix ( 1999 )
+03. Mode One - Ocean Of Love ( 2016 )
+04. Alan Cook - Running Away ( Remix 1987 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11C7C04DA1924A23E1A7EB46906A0FBB79BD636D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200591   (795652) от 21.01.2018
+
+MediaHuman YouTube Downloader 3.9.8.20 (1901) RePack (& Portable) by ZVSRus [Ru/En]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795652.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Money Pro сократит расходы и покажет полную картину Ваших финансов. Money Pro - это единая программа для ведения бюджета, отслеживания операций по счетам и напоминания о предстоящих платежах. Money Pro отлично подходит для ведения домашнего бюджета, а также для финансового планирования малого бизнеса.
-
-Удобная синхронизация (iPhone, iPad, Mac). Money Pro является (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.01.2019Разработчик: iBear LLCПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+Удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.Язык интерфейса: Русский | Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63917E76C448718752C42A55623D23E36FCDE8F2
+magnet:?xt=urn:btih:8CD6A827B0E6806F4C8867D56B51AC9A7A4F960C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -84,27 +276,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273504   (795051) от 05.01.2019
+###  Публикация: 1200544   (795651) от 21.01.2018
 
-А. Б. Вербицкий, В. В. Броунштейн (сост.) | Знатные люди Страны Советов о религии (1939) [DJVU]
+В.П. Авенариус (сост.) | Образцовые сказки русских писателей (1910) [PDF]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795651.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Высказывания о религии знатных людей нашей страны: депутатов Верховных Советов СССР и союзных республик, героев Советского Союза, ученых, стахановцев социалистической промышленности и сельского хозяйства, врачей, артистов и др.
-
-Книга раскрывает антинаучную и реакционную сущность всякой религии: христианской, мусульманской, иудейской и других, мешающих строительству (   Читать дальше...   )Жанр: История, политология, религиоведение, публицистикаФормат: DJVU
+Сборник сказок для детей младшего возраста.Жанр: Детская проза, СказкиФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E55D8C518AD8520C64D98A6832C572FB210D4A9
+magnet:?xt=urn:btih:C9C87E43BF2BD7F82170E932BDB15FA101DF08A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -112,225 +302,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274127   (795050) от 05.01.2019
+###  Публикация: 1200543   (795650) от 21.01.2018
 
-Dreamtime - Farout (2009) [APE|Lossless|image + .cue] <Spacesynth, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleeping Prophet Part One (2:18)
-02. Ghosthack (5:47)
-03. Escape to the Past (6:16)
-04. New Horizons (6:51)(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 01:13:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:867A0498C0149BEA0D1929DA1990C43BE6AF6D78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274025   (795049) от 05.01.2019
-
-VA - Best of Hands Up Freaks 2k18 (Deejay Edition) (2018) [MP3|320 Kbps] <Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Luke Smash - Erase You (Hands Up Freaks Remix Edit)
-02.  Grrtz - Light up the Night (Hands up Edit)
-03.  Marious - Dragons (Radio Mix)
-04.  Jinpachi Futushimo - Maximum Overload 2k18 (Radio Edit)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:08:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D7B62FBAC65CD0606F74486F3F91E00FC4AA440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274045   (795048) от 05.01.2019
-
-VA - Abriss Ski Hits 2018 - Die XXL Apres Ski Schlager Discofox Hits bis zum Karneval und Fasching 2019 (2018) [MP3|320 Kbps] <Schlager, Pop, Party>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jägermeister DJ Alex, Matty Valentino - Auffe aufn Berg
-02. Ingo ohne Flamingo - Saufen morgens, mittags, abends
-03. DJ Apres Ski Hits - Johnny Däpp
-04. Isi Glück feat. Jägermeister DJ Alex - Ich will zurück zu Dir (Hände hoch Après Ski)(   Читать дальше...   )Жанр: Schlager, Pop, PartyПродолжительность: 05:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CADC41C4F1DE02DAC80AF0D8C29D498E91C6A68E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274015   (795047) от 05.01.2019
-
-Black Level - Disco Action (1976) LP [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Pilot (4:16)
-02. Sexy Walkin' (4:34)
-03. Speedy Walk Machine (3:41)
-04. Please Touch My Body (6:25)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C0BDC7F3BD00D2EC57E7E2D91DF6147581D1358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274103   (795046) от 05.01.2019
-
-Little Mix - LM5 (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, R&B, Hip-Hop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The National Manthem
-02. Woman Like Me (Feat. Nicki Minaj)
-03. Think About Us
-04. Strip (Feat. Sharaya J)(   Читать дальше...   )Жанр: Pop, R&B, Hip-HopПродолжительность: 00:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30F0952F6E3E5BE736258A8F7FF81A394E096E35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274157   (795045) от 05.01.2019
-
-Derrick May - Innovator (1997/2008) R & S Records [FLAC|Lossless|tracks+.cue] <Detroit Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Be Or Not To Be (06:54)
- 02. Icon (Montage Mix) (05:50)
- 03. Phantom (01:43)
- 04. Kaotic Harmony (06:35)(   Читать дальше...   )Тип издания: CD, Remastered, ReissueЖанр: Detroit Techno •Продолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67FAA32B2C9BB65ADE0F3800B1960A57AF21541A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274179   (795044) от 05.01.2019
-
-Лиутпранд Кремонский | Антаподосис (2006) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среди историков X в. Лиутпранд занимает видное место как по своему таланту, так и по значительности описываемых им событий. В настоящую книгу вошли все три произведения кремонского епископа, сочинения которого историки ставят выше Видукиндовых. Сочинения Лиутпранда служат важным источником не только по истории Священной Римской Империи, но и по русскому Средневековью. (   Читать дальше...   )Жанр: ИсторияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D77604CD44B6A44BF94757E3EB422540862D0DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273553   (795043) от 05.01.2019
-
-Паскаль Киньяр | Тайная жизнь (2018) [MP3]
+Барбара Картленд | Флирт (2017) [MP3]
 
 >>Художественные аудиокниги и публицистика
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795650.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Паскаль Киньяр — блистательный французский прозаик, эссеист, переводчик, лауреат Гонкуровской премии. Каждую его книгу, начиная с нашумевшего эссе «Секс и страх», французские интеллектуалы воспринимают как откровение. Этому живому классику посвящают статьи и монографии, его творчество не раз становилось центральной темой международных симпозиумов. Книга Киньяра «Тайная (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 13:37:41
+Потеряв сначала мать, а затем отца, умершего от тяжелой болезни, Анцелла Уинтон осталась одна, без средств к существованию. Выбор у девушки невелик: либо ехать приживалкой к теткам, суровым незамужним дамам, которым везде и во всем чудится порок, либо попытаться устроиться в жизни самостоятельно… И она принимает предложение отправиться на юг Франции и стать сиделкой (   Читать дальше...   )Жанр: Исторические любовные романыПродолжительность: 06:06:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB1CABE00C7ED2D70F7C0F3E58EAE524B9DB18A8
+magnet:?xt=urn:btih:442555D73F7590A1129DC29481B7C88E1D275D77
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -338,109 +328,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274123   (795042) от 05.01.2019
+###  Публикация: 1200500   (795649) от 21.01.2018
 
-Legion Of The Damned - Slaves Of The Shadow Realm (2019) [MP3|320 Kbps] <Thrash Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795042.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Widows Breed
-2. Nocturnal Commando
-3. Charnel Confession
-4. Slaves Of The Southern Cross(   Читать дальше...   )Жанр: Thrash Metal, Death MetalПродолжительность: 00:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E675324908EA1349C5AA32ECC457CA9810EFFC5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274177   (795041) от 05.01.2019
-
-А.В. Крамер | Раскол русской Церкви в середине XVII века (2011) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга А.В.Крамера "Причины, начало и последствия раскола русской Церкви в середине XVII в." была издана в 2005 году. Ее содержание точно соответствует названию. Наибольший интерес в ней вызывают размышления автора о последствиях раскола. Многие из этих последствий не ушли в прошлое и участвуют в формировании образа жизни в России и в наше время, что должно (   Читать дальше...   )Жанр: Монография, история РоссииФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C71C993DBD158CD45FB35F6D44DBB0135477AE41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274180   (795040) от 05.01.2019
-
-Лилия Юсуфжановна Тугушева, Александр Леонович Хосроев | Хуастванифт (Манихейское покаяние в грехах) (2008) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795040.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге представлена публикация тюркской версии манихейского сочинения «Хуастванифт», осуществленная на основе рукописи из рукописного собрания Санкт-Петербургского филиала Института востоковедения РАН. Рукопись на бумаге, датируемая Х-XI вв и переписанная на территории Восточного Туркестана, донесла до нас в относительно полном виде одно из важнейших манихейских (   Читать дальше...   )Жанр: МанихействоФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB533ECAEB6DF3838A588848A66C1686F42C82E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274067   (795039) от 05.01.2019
-
-Dreamtime - 3 (Albums) - 1 (EP) (2009-2015) [MP3|320 Kbps] <Spacesynth, Synthpop>
+Meat Beat Manifesto - Impossible Star (2018) MBM [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Techno, Dub, Big Beat, Ambient>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795649.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sleeping Prophet Part One (2:18)
-02. Ghosthack (5:47)
-03. Escape to the Past (6:16)
-04. New Horizons (6:51)(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 03:06:54
+01. ONE (02:41)
+ 02. Bass Playa (02:43)
+ 03. We Are Surrounded (06:00)
+ 04. Unique Boutique (03:03)(   Читать дальше...   )Жанр: IDM, Experimental, Techno, Dub, Big Beat, AmbientПродолжительность: 01:04:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EABC804CBB2491997953DE1A78064AEED124F928
+magnet:?xt=urn:btih:C7699923810A874F527A5EBB38DA0496274D8145
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -448,54 +357,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274072   (795038) от 05.01.2019
+###  Публикация: 1200537   (795648) от 21.01.2018
 
-Magic Sword - 1 (Albums) - 1 (EP) - 2 (Single) (2015-2018) [MP3|320 Kbps] <Electro, Synthwave>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beginning (6:11)
-02. Sword of Truth (6:05)
-03. The Way Home (4:15)
-04. Kill Them All (2:07)(   Читать дальше...   )Жанр: Electro, SynthwaveПродолжительность: 01:29:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2C8779EEE95739E90BB9F356279E9FAC2F1E50A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273923   (795037) от 05.01.2019
-
-Журнал | Good Woodworking №313 (2016) [PDF] [En]
+Газета | Великие открытия №1 (2018) [PDF]
 
 >>Журналы
->>Хобби (журналы)
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795648.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал Good Woodworking — издание, целиком посвященное столярному делу, в каждом номере предлагает обзоры и тесты инструментов, оборудования, материалов, новые технологии и оригинальные проекты бытовой и специальной мебели для мастерской, дачи, дома, квартиры, гаража. Все изделия, модели и поделки представлены понятными схемами и чертежами, практически не требующими (   Читать дальше...   )Жанр: Столярное делоФормат: PDF
+Многим из нас, конечно, хотелось бы побывать в далекой Австралии, увидеть живьем кенгуру, таких смешных и милых коал, понаблюдать за ритуалами аборигенов, побывать у их священной горы Улуру. История открытия Зеленого континента до сих пор вызывает споры у ученых. Достоверно установлено, что первыми в Австралии побывали древние египтяне, есть предположения том, что (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C36C227743B512E0C296E7120E8477B4441699A1
+magnet:?xt=urn:btih:6E631EB2A80CE11A525056D70731B9E2723132EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -503,28 +383,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274038   (795036) от 05.01.2019
+###  Публикация: 1200629   (795647) от 21.01.2018
 
-VA - Independent Pop Rock (2019) [MP3|320 Kbps] <Pop, Rock>
+Журнал | Таинственные истории №27 (2017) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всё самое таинственное и необычное из жизни простых людей, нас с вами. Рассказ от первого лица и немного о таинственном в биографиях знаменитых людей.Жанр: Популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:260F1AA9D99F1FEBD8A294EA83A29B81762B4B25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200527   (795646) от 21.01.2018
+
+Газета | Запретная история №3 (2018) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Газета «Запретная история» рассказывает об оригинальных версиях, казалось бы, хорошо известных событий мировой истории, делает попытки восполнить пробелы в биографиях великих людей, а также повествует об исторических загадках, которые пока не сумели разгадать ученые.
+
+В каждом номере:
+(   Читать дальше...   )Жанр: Популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:283C9F586BDD806991F906760F90BB480EEFF73A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200538   (795645) от 21.01.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0005 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
 
 >>Неофициальные сборники
->>Pop (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795645.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Dystopia - Living For Summer
-002. Róisín Murphy - Jacuzzi Rollercoaster
-003. David Kitt - Like Lightning
-004. Foster The People - Pay The Man(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:21:00
+01. Martinique (2) - Fantastic Life ( Dub Version 1987 )
+02. Black Denim - Everybody Dance ( 1987 )
+03. Den Ryder - It's Hard To Say Goodbye ( 1987 )
+04. Hypnosis (2) - Lost Memories ( 2014 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:57:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:991CC872FA1592706C4264A3D65A1EAA743CBF3E
+magnet:?xt=urn:btih:EE2577CDD51801E1BA3BCEB43F8B6B355C57A4F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -532,28 +467,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274195   (795035) от 05.01.2019
+###  Публикация: 1200405   (795644) от 21.01.2018
 
-Хоккей. Молодёжный Чемпионат мира 2019. 1/4 Финала. Россия — Словакия (02.01.2019) IPTV [H.264/1080i-LQ]
+Gamma Ray - Land of the Free (1995) 2CD (Japanese Anniversary Edition, 2017) [FLAC|Lossless|image + .cue] <Power Metal>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795644.jpg" />
 </div>
 
 
 ###  Подробнее
 
-03 января 2019, четверг. 06:30 МСК
-43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
-1/4 Финала.
-Россия — Словакия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:05:00
+01. Heavy Metal Mania (Holocaust Cover)
+02. As Time Goes By (Pre-production Version)
+03. The Silence ’95
+04. Dream Healer (Instrumental) (Live at Chameleon Studios 2017)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:34:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AA529C2E7E58319A3DBF2469F9A8F1BD0055BCC
+magnet:?xt=urn:btih:8DBABB58CD0736AF30428A09A7B347038196F275
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -561,28 +496,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274073   (795034) от 05.01.2019
+###  Публикация: 1200599   (795643) от 21.01.2018
 
-Mode-One - Коллекция (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+Вымогательство / Extortion (2017) HDRip [H.264] [MP4|1280x536]
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Мультимедиа и прочее
+>>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795643.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Queen Of My Heart (8:36)
-02. Heaven Is Waiting (5:56)
-03. I Wanna Feel You (7:24)
-04. Game Of Love (Extended Mix) (feat. Lian Ross) (6:01)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:17:56
+Счастливая семья отправляется отдыхать на Карибы, но вскоре их путешествие обрывается трагедией. Герою придётся бежать наперегонки со временем, чтобы спасти своих жену и сына.Производство: США, Пуэрто РикоЖанр: Триллер, Драма, Криминал, ПриключенияРежиссер: Филипп ВолкенАктеры: Эйон Бэйли, Бетани Джои Ленц, Баркхад Абди, Дэнни Гловер, Тим Гриффин, Маурисио Алемани, Джек Уоллес, Джордж Кабрера, Элид Барриос, Дженесис КастроПеревод: Многоголосый закадровый (Paradox & Omskbird records)Субтитры: Русские (полные), Английские (полные)Продолжительность: 01:49:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CA394FCDF694BA2CE237CEEEE68AA54118F3300
+magnet:?xt=urn:btih:0CCFC952AB1C47A36E87DD29B0AB5B1E847F9F9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -590,28 +522,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274101   (795033) от 05.01.2019
+###  Публикация: 1200586   (795642) от 21.01.2018
 
-Хоккей. Молодёжный Чемпионат мира 2019. Предварительный раунд. Группа B. Швеция — Казахстан (2018) HDTVRip [H.264/720p-LQ]
+Газета | Вкусно и просто №1 (2018) [PDF]
 
->>Спорт и активный отдых
->>Хоккей
+>>Журналы
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795642.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 января 2019, вторник. 02:30 МСК
-43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
-Предварительный раунд. Группа B.
-Швеция — Казахстан(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:47:08
+Тема номера: котлеты и биточки. Банкетные, Воздушные, Пенсионер, Золотой гребешок - вот неполный перечень того, что вы можете приготовить для своей семьи и близких.
+Поверьте, у Вас будет всё вкусно!Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1816BA416A05A77FD09D337268A9DF7F955ADA41
+magnet:?xt=urn:btih:8DF241AC504A91730E52159049021BDC135D7D4D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -619,25 +549,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274029   (795032) от 05.01.2019
+###  Публикация: 1200622   (795641) от 21.01.2018
 
-С. Д. Сказкин и др. (ред.) | История Италии [3 тома] (1970-1971) [DJVU]
+Журнал | Профиль №1 (январь 2018) [PDF]
 
->>Научная и техническая литература
->>Историческая литература
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795641.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первый том "История Италии" освещает события с V до XVIII в. В нем рассказывается о средневековом городе и деревне, о развитии феодализма и появлении в его недрах первых ростков капиталистических отношений, о периоде Ренессанса, с которым связан невиданный расцвет науки, искусства, литературы. Однако вслед за блестящим взлетом эпохи Возрождения наступает (   Читать дальше...   )Жанр: История, политология, экономика, культурология, этнография, искусство, археологияФормат: DJVU
+Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
+На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB61A0BC7733A20C3CDD2B513F0863FB624158EE
+magnet:?xt=urn:btih:C110F44FC257F7AE454857396F362A243724FD75
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -645,26 +576,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273990   (795031) от 05.01.2019
+###  Публикация: 1200638   (795640) от 21.01.2018
 
-Classic Weather Premium 4.0 [Multi/Ru]
+Журнал | Приусадебное хозяйство №1 [+ Приложения] (январь 2018) [PDF]
 
->>Программы для macOS
->>Утилиты для macOS
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795640.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Виджеты, погода в доке и в строке меню.
-Mac-версия любимого приложения с прогноза погоды ClassicWeather созданного для iOS.Тип издания: macOS SoftwareРелиз состоялся: 03.01.2019Разработчик: Demodit GmbHПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+Журнал знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не обойдены вниманием и владельцы домашних ферм — здесь они находят ответы на многие вопросы по содержанию животных (   Читать дальше...   )Жанр: Дача, сад, огородФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7095F21487B2572E1876E0E658B4F96185D95256
+magnet:?xt=urn:btih:47C3BF31C34898BC315F4E1E52E085CEF71AD797
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -672,28 +602,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274099   (795030) от 05.01.2019
+###  Публикация: 1012096   (795639) от 29.04.2016
 
-Хоккей. Молодёжный Чемпионат мира 2019. Предварительный раунд. Группа A. Дания — Чехия (2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Гордей Щеглов | Год 1863. Забытые страницы (2013) [FB2]
 
->>Спорт и активный отдых
->>Хоккей
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795639.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 января 2019, вторник. 00:00 МСК
-43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
-Предварительный раунд. Группа A.
-Дания — Чехия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:51:36
+Книга повествует о малоизвестных страницах польского национально-сословного восстания 1863–1864 годов и посвящена главным образом судьбам двух православных церковнослужителей — священника Даниила Конопасевича и псаломщика Федора Юзефовича, убитых повстанцами. В книге содержатся интереснейшие факты и материалы, касающиеся сложных национальных, сословных и религиозных (   Читать дальше...   )Жанр: История, РелигиоведениеФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D04C7AB292B48243A600402093D61BAF533F2F0D
+magnet:?xt=urn:btih:12365B98A8E94EB9EEE17AB2A16FF16117833060
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -701,28 +628,82 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273811   (795029) от 05.01.2019
+###  Публикация: 1011855   (795638) от 29.04.2016
 
-Taylor Swift - Essentials (2018) [MP3|320 Kbps] <Pop>
+Новости Life News в 22-00 (28.04.2016) SATRip
 
->>Архив торрентов
->>Архив Музыки
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795638.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Delicate
-2. Blank Space
-3. Shake It Off
-4. Call It What You Want(   Читать дальше...   )Жанр: PopПродолжительность: 01:54:50
+Новости Life News - это всегда самые срочные новости и актуальные обзоры событий в России и в Мире.Телекомпания: Life NewsЖанр: ТелепередачаПродолжительность: 00:54:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:07FA510837ED252A15846901603D23F2CFBE6F2D
+magnet:?xt=urn:btih:6BEF1049D405A8CE60842CE53786BE09D568BEAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012111   (795637) от 29.04.2016
+
+Гордей Щеглов | Отнятый крест (2013) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание посвящено памяти псаломщика Федора Юзефовина, убитого в 1863 году польскими повстанцами. В нем подробно описаны обстоятельства его гибели, а также история о том, как памятный крест, поставленный Юзефовину в 1911 году, во время польской оккупации Западной Белоруссии был демонтирован и установлен на могиле повстанцев.
+
+Издание рассчитано на широкий круг читателей, (   Читать дальше...   )Жанр: История, РелигиоведениеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE8730B57340BC99B4DB25C3149D49569149F737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011798   (795636) от 29.04.2016
+
+Forteba - Space Between Us (2007) [APE|Lossless|image + .cue] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfect Present
+02. Space Between Us
+03. Relax (feat. From P60 & Virag)
+04. Thinkin About(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6104A61135EA7E0B0CF91E46168FA4F0D664F172
 ```
 
 https://mybot314.ru/tekegram_catalog/

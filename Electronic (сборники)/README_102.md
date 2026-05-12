@@ -1,3 +1,32 @@
+###  Публикация: 908257   (633976) от 14.06.2015
+
+VA - Vocal Trance Collection Vol. 135 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Two & One feat. Eskova - I Say Goodbye (Frainbreeze Remix)
+02 Orkidea feat. Ben Lord - Neo Romance (Original Mix)
+03 Alex M.O.R.P.H. feat. Natalie Gioia - 4Ever (Original Mix)
+04 Neo & Farina - Alba Rossa (Remastered Original Vocal Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170C8CE10A0CC38AC2BC93BAF8EB86A0FED52C1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519882   (633881) от 08.07.2012
 
 VA - Club 86 Recordings Ibiza 2012 (2012) [MP3|320 кб/с]<House>
@@ -746,35 +775,6 @@ VA - Beatport Techno: Electro Sound Pack #507 (2022) [MP3|320 Kbps] <Techno, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8277668C4802E9B576DB2892ACCB14D3BDA95DCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543443   (629668) от 11.04.2022
-
-VA - Beatport Synth Electronic: Sound Pack #509 (2022) [MP3|320 Kbps] <Electronic, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629668.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом релизе от Beatport вас ждет полное погружение в загадочный мир синтетической электронной музыки. Слушайте с открытой душой и будьте готовы познать кульминацию электронного искусства и глубину открытого космоса!001. Red Axes - Little Prince
-002. The Wise Thinker - World Beyond
-003. Marco Berto - Solidarity
-004. Vindata - Skin(   Читать дальше...   )Жанр: Electronic, SynthwaveПродолжительность: 10:18:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F70EBB401AA685581CF75658662B6242C6C2BFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1201874   (791560) от 26.01.2018
+
+Бузулук - Славьтесь, славьтесь казаки! (2006) [MP3|320 Kbps] <Folk, Казачья песня>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На речке было на Лазорьевой (3:45)
+02. На сухом было пруду (4:25)
+03. Ни сокол с орлом солеталися (3:42)
+04. 25 июня (3:15)(   Читать дальше...   )Жанр: Folk, Казачья песняПродолжительность: 01:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:477F4856A312FCEBA45343CF0BEF1711C98E653C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201875   (791557) от 26.01.2018
+
+Бузулук - Гордись, Русская Слава! (2008) [MP3|320 Kbps] <Folk, Казачья песня>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гордись,гордись, русская слава (4:31)
+02. Вдоль по линии Кавказа (4:50)
+03. На речке Камышинке (4:26)
+04. Со горы горы (2:56)(   Читать дальше...   )Жанр: Folk, Казачья песняПродолжительность: 01:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92CA4E4D11752C322E5B43DC2B0D0B9908D6F24D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201780   (791509) от 26.01.2018
+
+Calexico - The Thread That Keeps Us (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Indie Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End Of The World With You 03:08
+02. Voices In The Field 03:26
+03. Bridge To Nowhere 03:07
+04. Spinball 01:11(   Читать дальше...   )Жанр: Indie FolkПродолжительность: 01:07:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B24A5638D4EE36C1ABFE19EF562C0319D0153ED3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201852   (791441) от 26.01.2018
+
+Khruangbin - Con Todo El Mundo (2018) [FLAC|Lossless|WEB-DL|tracks] <Funk / Soul, Folk, World, & Country>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cómo Me Quieres (3:45)
+02. Lady and Man (4:18)
+03. Maria También (3:11)
+04. August 10 (4:25)(   Читать дальше...   )Жанр: Funk / Soul, Folk, World, & CountryПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CA93F6F11CAEFCDDCBBAFB6EC7D0551665966AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274819   (791120) от 10.01.2019
 
 Philip Wesley - Hope Endures (2012) [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient, Solo Piano>
@@ -628,122 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68973B58DFADDDBE9E86B1DE8978D62F4879C0FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511319   (788804) от 21.11.2021
-
-Kvitka Cisyk - Two Colors (1989) Kacey Cisyk, Квитка Цисык [FLAC|Lossless|tracks + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788804.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Де ти тепер
-2. Черемшина
-3. Коломийка
-4. Тече річка(   Читать дальше...   )Жанр: FolkПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD5E9E6D993F5C44F9F637648A90703A97686269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202903   (788646) от 01.02.2018
-
-Ernesto Cortazar - Blue Waters (2009) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remembrance (4:02)
- 02. Mournful Seaside (2:52)
- 03. Blue Waters (3:33)
- 04. Perpetual Breeze (3:29)(   Читать дальше...   )Жанр: New Age, Piano, Classical, RomanticПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC2488799085856D7C227D375782658FA6682E86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276205   (788587) от 15.01.2019
-
-Thomas Cappeau - Commando Ninja / Коммандос-ниндзя (Original Motion Picture Soundtrack) (2018) [MP3|320 Kbps] <Soundtrack, Score, Synthwave>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The 'Nam (01:24)
-02. The Raid On The House (03:29)
-03. The Deal (03:20)
-04. Confronting The Red Ninja (02:43)(   Читать дальше...   )Жанр: Soundtrack, Score, SynthwaveПродолжительность: 00:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:016656C863E3ED94228EF3E3919295CF44361EFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511614   (788316) от 22.11.2021
-
-Квітка Цісик - Пісні з України (1980) Kvitka Cisyk, Kacey [FLAC|Lossless|tracks + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Іванку, купи ми рум'янку
-02. Пісня про рушник
-03. Стоїть гора високая
-04. Ой, видно село(   Читать дальше...   )Жанр: FolkПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC432D9FC5DF1079CF890E09C1675043A0689EEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1046007   (556910) от 25.08.2016
+
+Nick Murray - To the Stars (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light of the World (feat- Merethe Soltvedt)
+02. Hopes & Dreams (feat- Juliet Lyons)
+03. Gift of Life
+04. Beautiful Forever(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC3E779AD1C4ADC7640CCCEE40CD9ABF218FA83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236499   (554451) от 17.07.2018
 
 Lewellynl - Reiki Gold 2 (2018) [MP3|320 Kbps] <New age, Meditative>
@@ -737,39 +766,6 @@ Gala - Gregorian Dance (1994) [MP3|320 Kbps] <New Age, Enigmatic, Eurodance, Amb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49971BBA626ED5F4CBE0834F6E6DECA3907725CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 368373   (529491) от 27.07.2011
-
-Omkara - Let Nothing Remain (2010) [MP3|~264 kbps]<Mantras, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guru Stotram
-02. Om Bhagavan Sri Ramana
-03. Pathless Path
-04. Everything is Shiva
-05. Om Mani Padme Hum
-06. Infinite Dance
-07. Shower of Grace
-08. Heart of FireЖанр: Mantras, New AgeПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C85BE61C6878FF8102EBB8F67C76C6382DFAC31
 ```
 
 https://mybot314.ru/tekegram_catalog/

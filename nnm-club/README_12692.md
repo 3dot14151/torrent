@@ -1,160 +1,25 @@
-###  Публикация: 817119   (546575) от 29.08.2014
+###  Публикация: 1047832   (548504) от 31.08.2016
 
-Проекты - VideoHive - Clean Kinetic Typography v2 - 6925574 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великолепный проект в стиле kinetic typography позволит вам в оригинальной форме представить свой текст. Идеален при создании видеоряда для караоке или гимна вашей организации. Всё зависит только от вашего творческого воображения.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B45AE10BFD3259BAD3855E5FC2B8D6385103F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 694538   (546554) от 29.08.2013
-
-Журнал | Вязание ваше хобби. Спецвыпуск №3 (2013) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вязание ваше хобби - ежемесячный журнал по вязанию на спицах и крючком. В новом спецвыпуске «Модные шапки» вы найдете головные уборы на любой вкус к наступающему осеннему сезону. Мужские и женские модели, спортивные и элегантные комплекты, которые сделают осень ярче и уютнее!Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F515591AA46E5F7A06D490DA48CE0F066D7963ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 694683   (546543) от 29.08.2013
-
-Журнал | Vogue [Россия] №9 (сентябрь 2013) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546543.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Vogue" совмещает в себе модные тенденции и современную историю, вписывая моду в культурные рамки эпохи. Благодаря усилиям редакции Vogue Россия встал на один уровень со своими западными аналогами и мнение российского Vogue в мире моды и культуры имеет на сегодняшний день большое и важное значение.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657792F10D7F929A9BEE1BA39C7088E7FF51FF70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048475   (546540) от 02.09.2016
-
-VA - Uplifting Sound Of Egypt Horizon (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Emotional>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546540.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aly & Fila with Omar Sherif & Jonathan Carvajal  -  A New Age (FSOE 400 Anthem)  7:20
-002. Mohamed Bahi & Omar Vinyl  -  Empire Earth (Original Mix)  8:35
-003. Geert Huinink & Mike van Fabio  -  The Kingdom (Original Epic Mix)  9:30
-004. Arctic Moon & Apple One Ft Diana Leah  -  Who We Are Feat. Diana Leah (Bjorn Akesson Remix)  7:33(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Energy, EmotionalПродолжительность: 14:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E5FB898BF538B0826E50E1546E735FDD2E0BDC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048083   (546539) от 02.09.2016
-
-И. С. Свенцицкая | От общины к церкви: [О формировании христианской церкви] (1984) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546539.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге автор, доктор исторических наук, опираясь на большой фактический материал и новейшие открытия исторической науки, с марксистских позиций освещает ранний (I–III вв.) период истории христианской церкви, обстановку, в которой происходил переход от христианских общин к церковной организации.
-
-Рассчитана на преподавателей и студентов вузов, пропагандистов (   Читать дальше...   )Жанр: История, религиоведение, политология, культурологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D2534DF4D6A7FE880438D1231DA5B093463D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048604   (546538) от 02.09.2016
-
-Rufus Harley - Scotch & Soul (1966) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Jazz-Funk>
+Charles Gayle Quartet - Blue Shadows (1993) 2008, Silkheart[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548504.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Feeling Good [07:35]
- 02.If You Could See Me Now [06:18]
- 03.Taurus The 20th [06:59]
- 04.Scotch & Soul [05:06](   Читать дальше...   )Жанр: Hard Bop, Soul-Jazz, Jazz-FunkПродолжительность: 00:39:59
+01.Inside the Sun [03:01]
+ 02.Blue Shadows [11:31]
+ 03.Eternity Promised 1 [17:14]
+ 04.Eternity Promised 2 [02:09](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 01:10:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DAA450EE1C5E2634F0465CBB77FA0B329850BF6
+magnet:?xt=urn:btih:F26D1BDC804ACB7F1DDF3816BFC9F02A102D7876
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -162,28 +27,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048318   (546537) от 02.09.2016
+###  Публикация: 1047979   (548503) от 31.08.2016
 
-VA - Just Now Dance Ladies (2016) [MP3|195~320 Kbps] <House, Club, Dance>
+Место встречи. Граждане - без языка? (31.08.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день по будням гости в студии вместе с ведущими будут в прямом эфире разбирать наиболее актуальные темы, которые подбрасывает сама жизнь. Все, что волнует зрителей, — от сезонных эпидемий до военной операции в Сирии — может стать поводом для обсуждения.В этом выпуске: Почему в Латвии объявили охоту на русскоязычных чиновников? Во сколько прибалты оценили «советскую оккупацию»? И как Запад использует национальные разногласия против России?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A73A4226D09282152C16B5322C4B066BFA1E5EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047783   (548502) от 31.08.2016
+
+VA - Selections by Alexander Descroix (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zen Baboon - Chido Clara (5:40)
+02. Desert Dwellers - Saraswati's Twerkaba (5:36)
+03. Eat Static - Superior Technology Dub (6:34)
+04. Erot - Empty Thoughts (6:42)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6870F8C05BEDC7E9DFBF372D747DAE0434F6A022
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047914   (548501) от 31.08.2016
+
+VA - All Shades Of Sky - Uplifting Mix (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548501.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Edward Maya feat. Yohana  -  Feeling (Radio Version)  2:58
-02. Clyde Trevor  -  Aftershock (Radio Edit)  2:40
-03. DJ MNS Vs. E-Maxx  -  Monster Sound  3:21
-04. Fireattack Ft. Elisa  -  Is This The End  4:55(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 04:20:58
+001. Joop  -  The Future (Mateusz Remix)  5:43
+002. Lence & Pluton  -  No More Fire (Original Mix)  5:38
+003. Airscape  -  Beautiful Tomorrow (Original Mix)  5:30
+004. Marcel Woods  -  Lemon Tree (Johann Stone Remix Edit)  3:37(   Читать дальше...   )Жанр: Trance, Uplifting Trance, MelodicПродолжительность: 12:50:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1E369EBB1252A492E7BAFCFE769B8BB09A7B072
+magnet:?xt=urn:btih:24C20FD0DC763A26932EBE0289F2BB8AE369D5EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -191,366 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048489   (546536) от 02.09.2016
+###  Публикация: 1047919   (548500) от 31.08.2016
 
-Record Lectures 3.0.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Record Lectures был разработан с целью помочь тем, кто записывает лекции, встречи и беседы, чтобы иметь возможность сохранять их в календаре, снабжать текстовыми комментариями и в дальнейшем с лёгкостью использовать.
-
-Record Lectures может быть востребовано всеми, кто собирается в школу или посещает встречи и конференции. Простота работы этого приложения действительно (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 31 августа 2016Разработчик: iLifeTouchПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский, Французский, Немецкий и др
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AAA9D0E8E1E209E0FE6BA2FA02FD0273E0B9C3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048494   (546535) от 02.09.2016
-
-VA - Vocal House Need Massive (2016) [MP3|320 Kbps] <House, Electro House, Vocal House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hardwell & Dannic Feat. Haris  -  Survivors (Radio Edit)  3:08
-02. Deadmau5  -  Some Chords (Andrei Stephen Remix)  4:23
-03. Jason Derulo feat. 2 Chainz  -  Talk Dirty (TJR Rmx)  4:08
-04. DBN &  Tony Romera  -  Gorilla (Original Mix)  4:06(   Читать дальше...   )Жанр: House, Electro House, Vocal House, Club, DanceПродолжительность: 07:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC0AF3353C66B1F1BCE0D86ECF1389476EBE37B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048479   (546534) от 02.09.2016
-
-VA - Candy Beach Water Fiesta (2016) [MP3|240-320 Kbps] <Synthpop, Indie Dance, Tropical>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546534.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Locus - Creatures
-002. On June Feat. Tesity - The Devil's Tears
-003. Jfk - Angel (Passion Theme 2015)
-004. Hedegaard Feat. Lukas Graham - Happy Home(   Читать дальше...   )Жанр: Synthpop, Indie Dance, TropicalПродолжительность: 08:09:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0E726EE658AF1CF799F33FE88D236326A22A5AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048360   (546533) от 02.09.2016
-
-Shotgun - Dallasian Rock (2014) [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Star Queen 03:10
-02. In The Music 04:15
-03. Seems Like You Would Understand 02:38
-04. Play The Game 03:31(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F98660F9A4E99E7D4346390A287B501A47491131
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048518   (546532) от 02.09.2016
-
-Unwritten Rulz - Burn It Down (2016) [MP3|320 Kbps] <Alternative Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Striking Matches
-02. Burn It Down
-03. Everyday
-04. Hayseed(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99CFCA99E3D3D0D2C2C7A7DCAD8426932E9C3A40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048552   (546531) от 02.09.2016
-
-Unwritten Rulz - Life of the Party (2014) [MP3|256 Kbps] <Alternative Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disappeared
-02. Gone Crazy
-03. Hey Girl
-04. Chamber(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 00:26:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51836071CEAD4E83E2FEB76E31633A736F04881B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048435   (546530) от 02.09.2016
-
-Anthony Green - Pixie Queen (2016) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You'll Be Fine (4:38)
-02. I'm Not Holding You Back (3:48)
-03. Will It Be (2:08)
-04. A Reason to Stay (3:29)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A620DF63E24CB5EC5FD61D2F72217B33CFAC2392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048461   (546529) от 02.09.2016
-
-З. Лилина | От коммунистической семьи к коммунистическому обществу (1920) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юным коммунарам — будущим творцам коммунистического общества — посвящаю я эти строки.
-
-История всего предшествующего общества есть история борьбы классов. Все предшествовавшие движения были движениями меньшинства или движениями в интересах меньшинства. Пролетарское движение есть самостоятельное движение громадного большинства в интересах большинства.
-(   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C9D1337E345C9520E946DF84C64B88495666900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048208   (546528) от 02.09.2016
-
-Авдотья Панаева | Степная барышня (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авдотья Яковлевна Панаева - русская писательница. Дочь актёра Я. Г. Брянского. В 1837 году вышла замуж за писателя И. И. Панаева. С середины 40-х годов в течение 15 лет - гражданская жена Н. А. Некрасова. В 1863 г. вышла замуж за актера Головачева. Собственные проивзедения публиковала под псевдонимом Н. Станицкий. Совместно с Некрасовым написала романы "Три (   Читать дальше...   )Жанр: классическая прозаПродолжительность: 03:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66FA19404D0BEDA7F11B8A5D38BAE6A6256A77B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048442   (546527) от 02.09.2016
-
-Blues Pills - Golden Treasures (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady In Gold
-02. Elements And Things
-03. Bliss
-04. High Class Woman (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51626D3980D07B57CAE7834A8558F5D9366FFBE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048690   (546526) от 02.09.2016
-
-Журнал | Старый лекарь №8 (2016) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему-то мы привыкли лечить все хвори и недуги дорогостоящими таблетками, микстурами и порошками, веря в то, что вскоре они вернут нас к нормальной жизни. Возможно, но риск остаться в проигрыше все же существует. Ведь нет гарантии того, что за деньги сегодня можно купить здоровье. Только не подумайте, что мы предлагаем вам сложить руки и ничего не делать для решения (   Читать дальше...   )Жанр: Народная медицинаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F26ECEEEF0175675A192F89DE67020FAB47A279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048447   (546525) от 02.09.2016
-
-Артур Рив | Неуловимая Констанция Данлап (2013) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Констанция Данлап была рождена не для тихой жизни. В ее крови гуляет вирус тяги к приключениям и аферам, а острый ум и смекалка позволяют ей проворачивать совершенно невероятные комбинации. Ей нравится преступать черту закона — это горячит ее сердце. Конек Констанции — финансовые махинации. В конце концов, в эпоху американского «дикого капитализма» воруют все — и (   Читать дальше...   )Жанр: ДетективФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36B3FB89DB5D0047373D83A8A35AE77A9F5B091F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048612   (546524) от 02.09.2016
-
-Jill DeCoy Association - The Best Selection A to J (2016) [MP3|320 Kbps] <Jazz, Vocal Jazz, Female Vocal>
+Johnny "Hammond" Smith - Talk That Talk (1960) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
 
 >>Jazz, Blues, Soul
->>Jazz
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548500.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Like ameba
-02. Wa
-03. Jolly Jolly
-04. No name collection(   Читать дальше...   )Жанр: Jazz, Vocal Jazz, Female VocalПродолжительность: 01:09:34
+01.Talk That Talk [05:12]
+ 02.An Affair To Remember [02:36]
+ 03.The End Of A Love Affair [05:22]
+ 04.Minors Allowed [05:46](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:35:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA104CEBF7CC4E48696503DF22266E6FD17FBC77
+magnet:?xt=urn:btih:DEFF27108E63C476A12957FA810A39E8975F31DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -558,28 +140,169 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048358   (546523) от 02.09.2016
+###  Публикация: 1047732   (548499) от 31.08.2016
 
-King Company - One For The Road (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+VA - From Ibiza To Your Heart (2016) [MP3|320 Kbps] <Techno, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mauro Picotto - Science (09:13)
+02. D. Diggler - Apricot (10:19)
+03. Margot - Er Suonone (05:53)
+04. Mauro Picotto - The Player (06:10)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 10:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12A21CC3C9A1ED01CCDDFD645A3E29BD2E98A21F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047817   (548497) от 31.08.2016
+
+VA - Uplifting See You Again (2016) (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Metcalfe & Sue McLaren  -  Stardust (Original Mix)  6:27
+02. Cold Rush And Elles De Graaf  -  Daydreamer (Alan Morris Remix)  7:20
+03. Sound Apparel  -  Making End Of Heart Tale (2016 Remaster)  12:13
+04. Omar Sherif feat. Crystal Blakk  -  Hear You Calling (Extended Mix)  7:08(   Читать дальше...   )Жанр: Trance, Uplifting Trance, MelodicПродолжительность: 04:20:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7224C5F1A8B87525198B4E307039482FD187BFB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047767   (548496) от 31.08.2016
+
+VA - Heaven and Paradise Vol. 3 (20 Heavenly Tunes) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Backsoul System - Come Away with Me (Original Mix) (3:02)
+02. Edison Morris - Do Not Destroy (Original Mix) (3:13)
+03. Alexandre Mark - On Edge (Original Mix) (3:13)
+04. Jonic Elements - Until the Morning (Original Mix) (3:35)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A2D59BCE638EF7DF8CF246D593EAC82FF40600B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048037   (548495) от 31.08.2016
+
+VA - Paris Lounge (2016) [MP3|320 Kbps] <Chillout,Deep House>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deeper Sublime - Femme Fatale (05:37)
+02. Twopandas - Make Me Alive (Slowdown Mix) (04:14)
+03. Matisse. Jury Jet. S. Khovansky - Early Sunrise (04:11)
+04. Project Blue Sun - About Love (07:34)(   Читать дальше...   )Жанр: Chillout,Deep HouseПродолжительность: 01:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B53F85ECEE1494AD18F525C856DDC4BDF4C3FBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309946   (548494) от 22.06.2019
+
+PDF Eraser Pro 1.9.4.4 RePack (& Portable) by TryRooM [En]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548494.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Eraser Pro - программа для редактирования файлов в формате PDF. При помощи этой программы Вы сможете удалить и стереть текст, изображения, логотипы и все ненужные объекты из PDF файлов. Пользователи могут использовать программу для удаления некоторого оригинального содержания из PDF файла, а затем добавить свой текст и изображения. Кроме того, PDF Eraser имеет (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43182C901179E39DA7F2344168793289AACB8ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310011   (548493) от 22.06.2019
+
+PassMark BurnInTest Pro 9.0 Build 1016 RePack (& Portable) by elchupacabra [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548493.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. One For The Road     (04:13)
-02. Shining     (03:58)
-03. In Wheels Of No Return     (04:35)
-04. Coming Back To Life     (03:59)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:56:11
+Passmark BurnInTest — профессиональная версия программы для всестороннего и детального тестирования компонентов компьютера. Утилита тестирует скорость процессора, оперативную память, жесткие диски, CD/DVD приводы, звуковые карты, видеокарты, принтеры, сетевые соединения.
+
+BurnInTest Professional также может проводить тестирование последовательных (до 12 портов одновременно) (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46E525798E50393A8035B8EB97D4FF842CCFBA11
+magnet:?xt=urn:btih:08C5EDCAAB805419D258B93FFF4714656A265AA5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -587,25 +310,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048535   (546522) от 02.09.2016
+###  Публикация: 1309260   (548492) от 22.06.2019
 
-Поездка в Орегон / The Oregon Trail (1959) DVDRip [VO]
+Astra Image PLUS 5.5.6.0 RePack (& Portable) by TryRooM [Ru/En]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548492.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В 1846 году журналист «Нью-Йоркского Вестника» присоединяется к каравану фургонов, отправляющихся на Орегонские территории. Он надеется подтвердить слухи о том, что президент Джеймс Полк посылает с караваном солдат, замаскированных под поселенцев, с целью укрепить американские позиции на этих землях, и подготовиться к войне с Англией.Телекомпания: США, 20th Century Fox Film CorporationЖанр: вестерн, приключениеПеревод: Одноголосый закадровый, любительскийПродолжительность: 01:22:31
+Astra Image PLUS - графический редактор, который позволит навести резкость и повысить разрешение цифровых изображений. Благодаря новой технологии обработки изображений, программа поможет улучшить и восстановить цвет и шкалу яркости изображения. Приложение позволяет вычислить статистические данные изображения, производить гистограммы, просматривать метаданные, получать (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7ABFC62A7F0A0DA46C24B4322C6953F18835C7FD
+magnet:?xt=urn:btih:D01D7660332393209A8FF51A44929D8A24A8FC6F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -613,25 +336,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048695   (546521) от 02.09.2016
+###  Публикация: 1309929   (548491) от 22.06.2019
 
-Журнал | Домашняя энциклопедия здоровья №2 (60) (июнь 2016) [PDF]
+Multrin 0.4.1 + Portable [En]
 
->>Журналы
->>Другие журналы
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548491.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вера в то, что вода обладает магическим зарядом, сохраняется на протяжении тысячелетий. И религия, и наука, которые иногда противоречат друг другу, едины в одном: источником жизни на Земле является ВОДА...Жанр: Здоровье, домоводствоФормат: PDF
+Простая программа, которая позволяет организовать запущенные программы в одном окне в виде вкладок. Для этого необходимо всего лишь перетащить нужные окна в Multrin. Принцип работы интерфейса с вкладками напоминает классический веб-браузер.
+Поддерживает светлый и темный интерфейсы. Комбинация клавиш Ctrl + Tab осуществляет переключение между вкладками.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A9569AAB8C9736735FFDD524C123D9614BBE0F7
+magnet:?xt=urn:btih:2AE1B8F3382D86C5D3CBACE35A508151B330F5C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -639,25 +363,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 817034   (546520) от 29.08.2014
+###  Публикация: 1309952   (548489) от 22.06.2019
 
-Чужой против Хищника - Дилогия / AVP: Alien vs. Predator [Dilogy] (2004,2007) BDRip [H.264/720p-LQ] [Hi10P] [UNRATED]
+Шэньчжэнь / Shenzhen (2019) WEBRip [VP9/2160p] [4K, UHD]
 
->>След.
->>Зарубежное кино (коллекции / *логии)
+>>Документалистика и Телепередачи
+>>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548489.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Атакованный «Предалиеном», жутким гибридом Хищника и Чужого, корабль Хищников терпит крушение в лесах, окружающих маленький техасский городок. И пока на сигнал о помощи, посланный в момент падения, спешит подкрепление, Чужие успевают инфицировать половину населения города.Производство: СШАЖанр: Ужасы, Фантастика, Боевик, ТриллерРежиссер: Колин Штраус, Грег ШтраусАктеры: Стивен Паскуале, Рейко Эйлсворт, Джон Ортиз, Джонни Льюис, Эриель Гейд, Кристен Хагер, Сэм Траммелл, Роберт Джой, Дэвид Петкау, Том Вудрафф мл.Перевод: Дублированны, Многоголосый x2, АвторскийЯзык субтитров: Русский, АнглийскийПродолжительность: 01:41:04
+Сегодня Шэньчжэнь - это один из самых крупных и современных городов Китая, расположенный возле границы с Гонконгом. Мегаполис с населением свыше 10 млн. жителей. Китайская «силиконовая долина», по некоторым оценкам, производит большую часть всей бытовой электроники в мире. И трудно поверить, что всего 40 лет назад на этом месте была лишь рыбацкая деревушка с населением (   Читать дальше...   )Производство: КитайЖанр: Документальный, видовойРежиссер: Кин Шинг Джефф ИпПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:02:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1CFDB79E4587C749856FEFACDF8F9D70DB7690C5
+magnet:?xt=urn:btih:A09A714A9FFA1585722D6892E6AD71B71094054A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,26 +389,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 817132   (546518) от 29.08.2014
+###  Публикация: 1309724   (548488) от 22.06.2019
 
-VideoHive - Watercolor & Ink Slideshow - 8514684 [AEP]
+Пилигрим  (2018) WEB-DLRip [576p] iPad
 
->>Проекты
->>Слайдшоу (проекты)
+>>Аудио и Видео
+>>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548488.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Художественное и очень универсальное слайд-шоу.
-Превью, файл помощи - в раздаче.Формат: AEP
+В жизни Миры всё замечательно: она — владелица модной галереи, дома ждёт любящий муж. Но однажды на берегу моря находят мужчину с амнезией, который помнит её имя. Никто не знает, кто он. Его нет ни в одной базе данных. Но он знает о ней то, что может знать только очень близкий человек, хотя Мира ни разу в жизни его не видела. Благополучный мир Миры начинает разрушаться, (   Читать дальше...   )Производство: Россия / Кинокомпания «Север»Жанр: ТриллерРежиссер: Александр БаршакАктеры: Игорь Петренко, Елена Север, Алексей Серебряков, Владимир Ильин, Татьяна Васильева, Анна Банщикова, Дмитрий Мухамадеев, Дмитрий Куличков, Сергей Беляев, Павел КузьминПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:37:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E545C7A9D1A85F1D9D460E70DF627B8CD106925
+magnet:?xt=urn:btih:A600071DA3E401EF0C23351507AD2585BE3286CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -692,25 +415,288 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 817232   (546515) от 29.08.2014
+###  Публикация: 1309416   (548487) от 22.06.2019
 
-Последние дни на Марсе / The Last Days on Mars (2013) HDRip
+Красный угол / Red Corner (1997) BDRip [H.264/720p]
 
 >>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548487.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В последние дни пребывания на Марсе астронавты делают поразительное открытие: на собранных ими образцах грунта обнаружились микроскопические следы некой формы жизни. Вскоре землян должен забрать корабль, и оставшиеся часы они решают потратить на сбор дополнительных доказательств, для чего возвращаются в марсианскую долину...Производство: Великобритания, ИрландияЖанр: Ужасы, Фантастика, ТриллерРежиссер: Рори РобинсонАктеры: Лив Шрайбер, Ромола Гарай, Элиас Котеас, Оливия Уильямс, Джонни Харрис, Горан Костич, Том Каллен, Юсра ВарсамаПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:38:29
+Преуспевающий американец Джек Мур, добившийся небывалого делового контракта в Китае, ощущал себя на вершине мира. Но торжество оказалось недолговечным. Он проводит ночь с прекрасной женщиной, после чего обвиняется в ее зверском убийстве. По милости непреклонного китайского правосудия, по которому подозреваемый равен виновному, Джек остается абсолютно одиноким, если (   Читать дальше...   )Производство: США, Avnet/Kerner Productions, Metro-Goldwyn-Mayer (MGM)Жанр: триллер, драма, криминалРежиссер: Джон ЭвнетАктеры: Ричард Гир, Бай Линь, Брэдли Уитфорд, Байрон Манн, Питер Донэт, Роберт Стэнтон, Цай Чинь, Джеймс Хонг, Тзи Ма, Ричард Вентура, Роджер Юан, Генри ОПеревод: Многоголосый профессиональный, двухголосый профессиональный, авторскийСубтитры: АнглийскиеПродолжительность: 02:02:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:042E038B9E374CF1D47603BD9FA368D03769CC2C
+magnet:?xt=urn:btih:89655B12D5427761BCF443D38EA39252AAEF0A3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309918   (548486) от 22.06.2019
+
+FastStone Image Viewer 7.3 RePack (& Portable) by KpoJIuK
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548486.jpg" />
+</div>
+
+
+###  Подробнее
+
+FastStone Image Viewer - вьювер, редактор и конвертор графических файлов. Поддерживает все популярные форматы графики, включая JPEG, JPEG 2000, GIF, PNG, PCX, TIFF, WMF, BMP, ICO, RAW и TGA. Обладает простым и удобными интерфейсом, сочетая его с большим количеством полезных возможностей. Поддерживается пакетное изменение размеров и переименование картинок, удаление (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F53136148F3A59FAC8254CDD404B5200A089ED64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309634   (548485) от 22.06.2019
+
+Caramba Switcher 2019.06.18 (beta) [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Caramba Switcher - это новый, понятный автоматический переключатель раскладки клавиатуры, предназначенный для работы с русским, английским и немецким языками.Тип издания: macOS SoftwareРелиз состоялся: 20.06.2019Разработчик: Sergey MoskalevПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Мультиязычный, включая русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEBC98D4B6B791677C026511982354C4ECA30FEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310071   (548484) от 22.06.2019
+
+Капитан Марвел / Captain Marvel (2019) BDRemux [H.264/1080p] [2D/3D] [IMAX Edition] [ISO]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548484.jpg" />
+</div>
+
+
+###  Подробнее
+
+После столкновения с враждующими инопланетными расами, пилот военно-воздушных сил Кэрол Дэнверс обретает суперсилу и становится неуязвимой. Героине предстоит совладать со своими новыми способностями, чтобы противостоять могущественному врагу.Производство: США, Marvel Studios Inc.Жанр: Фантастика, боевик, приключенияРежиссер: Анна Боден, Райан ФлекАктеры: Бри Ларсон, Сэмюэл Л. Джексон, Бен Мендельсон, Джуд Лоу, Аннетт Бенинг, Джимон Хонсу, Ли Пейс, Лашана Линч, Джемма Чан, Кларк ГреггПеревод: Дублированный (iTunes)Субтитры: Русские (forced, full, SDH), Английские (full, SDH, SDH Colored)Продолжительность: 02:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19B2DC3DB4425EB99A3F283B2E1DD393581EAD0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 356761   (548483) от 22.06.2019
+
+Планета деревьев 2 / Planete des Arbres 2 (2010) HDTVRip [H.264] (серии 1-9)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548483.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире насчитывается 100000 видов деревьев. О многих из них мы знаем с детства. Лист дуба, липы или еловая ветвь знакомы каждому. Но не все знают об удивительных фактах, которые раскрывает эта замечательная программа, посвящённая самым красивым и полезным для человека деревьям Европы и тропического пояса.Производство: Франция, Beta ProdЖанр: Документальный, природа, флора, фаунаРежиссер: Николя ГруоПеревод: Двуголосый закадровый, профессиональный (ТПО Ред Медиа)Субтитры: отсутствуютПродолжительность: серии x ~ 00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B227A5FB94589EE3F9022A91EA7F8125CD54225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310001   (548479) от 22.06.2019
+
+FastStone Image Viewer v7.3 Corporate + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548479.jpg" />
+</div>
+
+
+###  Подробнее
+
+FastStone Image Viewer - вьювер, редактор и конвертор графических файлов. Поддерживает все популярные форматы графики, включая JPEG, JPEG 2000, GIF, PNG, PCX, TIFF, WMF, BMP, ICO, RAW и TGA. Обладает простым и удобными интерфейсом, сочетая его с большим количеством полезных возможностей. Поддерживается пакетное изменение размеров и переименование картинок, удаление (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35ED4E62FF3AEC83ECA8C9348EB919377F12E534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309973   (548478) от 22.06.2019
+
+Семь пар нечистых / Рейс 13-01 (2018) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548478.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам одноименной повести Вениамина Каверина.
+1941 г. Бунт на корабле — это всегда страшно. Особенно, если это бунт заключенных против охраны: из людей выплескивается ненависть, от которой некуда деться в открытом море. Этот бунт может привести к смерти не только охраны судна, но и матросов, и лейтенанта Сбоева, плывущего с секретным грузом, и случайной пассажирки (   Читать дальше...   )Производство: Россия, АРК фильм при поддержке Фонда киноЖанр: боевик, драма, военный, приключенияРежиссер: Кирилл Астахов, Юрий ИльинАктеры: Юрий Борисов (II), Мари Ворожи, Василий Мищенко, Тимофей Трибунцев, Михаил Евланов, Александр Вершинин, Евгений Куршинский, Микаэл Джанибекян, Бесо Гатаев, Кирилл Белевич-ОболенскийПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6ABEAC243A700BD306ADF42826C51A108A95992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310017   (548476) от 22.06.2019
+
+Энн Руни | Математика за 15 минут (2016) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548476.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Математика за 15 минут» позволяет доступным образом понять математику как часть нашей повседневной жизни. Каждая глава отвечает на важный вопрос и разъясняет, как числа используются для передачи информации. Математика составляет основу всей науки, и именно благодаря ей человечество за века достигло такого огромного прогресса.
+
+Это мировое достижение и международный (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C89BAA9BC6EABEC8AE1B2301775728FCE728CD34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309969   (548475) от 22.06.2019
+
+А. С. Пчелко, Г. Б. Поляк | Арифметика. Учебник для 3-го класса начальной школы (1955) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник написан в русле так называемого классического образования, в русле традиций советской педагогической школы, получивших развитие в 30–50-е годы в СССР. Для учебника по арифметике это означает следующее: обилие текстовых задач, большое внимание к устному счету, постоянная апелляция к образному мышлению и интуиции без излишней формализации.Жанр: История, науковедение, арифметикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DD1133726D4F0C7A7C1EAFC6171DA0B2BA2781A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 693735   (548471) от 27.08.2013
+
+Журнал | Маленькая Diana. Спецвыпуск №10 [2013] [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал по вязанию «Маленькая Диана» представляет специальный выпуск «Узоры. Спицы». Рельефные шахматки, геометрические и ажурные узоры – 74 узора для вязания детских, женских и мужских трикотажных вещей.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD2D17CFC02AB010B4B9BAFD1A3769B4AC66BE8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 693944   (548456) от 27.08.2013
+
+Журнал | Yoga Journal [Россия] №56 (сентябрь-октябрь 2013) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548456.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Yoga Journal" завоевал популярность во всем мире. На его страницах представлены материалы, посвященные практике йоги, восточной философии и о здоровом образе жизни вообще. Авторами издания являются опытные российские и американские преподаватели йоги, которые работают в этой области не один десяток лет.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8F4A0D201FD3EA3E178C79AAB42E5EFBBBEDA9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

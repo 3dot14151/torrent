@@ -1,3 +1,125 @@
+###  Публикация: 1256346   (356161) от 21.10.2018
+
+Супердискотека 90-х от Радио Рекорд в Санкт-Петербурге (20.10.2018) WEB-DL [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этой осенью Радио Рекорд раскрутил Петербургский СКК на все 360 градусов. Да, по многочисленным заявкам на наш пейджер снова поставили сцену в центре арены. Ведь классным пацанам и девчонкам нужно больше места для энергичных танцев и отличный вид на любимых артистов с любой точки трибун!
+Самое главное остается неизменным: атмосфера отвязных, музыкальных и таких наших (   Читать дальше...   )Intro
+ID
+Дискотека Авария - Хиа-хоп хаус / Пей пиво / Влечение / Новогодняя / Свет далеких планет
+Света - Что мне делать / Твои глаза / Хватит довольно / Я тебя люблю(   Читать дальше...   )Производство: РоссияЖанр: Музыка, ШоуПродолжительность: 03:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C903CDEC3EEE6843AAA009D4E159AE81CDFB07C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 831765   (356087) от 03.11.2014
+
+The Beatles: Концерт на стадионе Шей / Shea stadium concert (1965) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт The Beatles на стадионе Shea (New York) 15.08.1965
+В данном релизе представлена вторая часть концерта, в которой выступала группа "Битлз".01. Twist & Shout
+02. I Feel Fine
+03. Dizzy Miss Lizzie
+04. Ticket To Ride(   Читать дальше...   )Жанр: КонцертПродолжительность: 00:25:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF4EE25CD1FD7B2BEDBF47441633EBE3F756ED0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177705   (355946) от 28.10.2017
+
+Masami Okui - GIGS 2007 Masami Life (2009) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись концерта Masami Okui - Live tour 2007 Masami Life, прошедшего в Shibuya O-East 20 октября 2007. Сам DVD был выпущен 25 марта 2009.
+
+Источник: лицензионный DVDIt's my life
+Limited War
+紫音-sion-
+GAIA2012(   Читать дальше...   )Производство: Япония, evolution/GodSpeed, dwango AG EntertainmentЖанр: J-Pop, J-RockСубтитры: отсутствуютПродолжительность: 01:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9A4E75CF6B82120BE1382FD7A838A80D850490C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176551   (355942) от 28.10.2017
+
+Masami Okui - GIGS 2006 GodSpeed (2006) 2xDVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись концерта Masami Okui - Spring tour 2006 God Speed, прошедшего в Shibuya O-East 13 марта 2016.
+
+Источник: perfect darkDISC-1
+
+God Speed
+SUBLIMINAL(   Читать дальше...   )Производство: Япония, evolutionЖанр: J-Pop, J-RockСубтитры: отсутствуютПродолжительность: 00:50:29 + 00:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C644555862398FC4618AA4A69EC2C4124C1F8D1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177761   (355931) от 28.10.2017
 
 Testament - Dark Roots Of Thrash (2013) BDRip [H.264/1080p-LQ]
@@ -623,119 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:320044EA26FBF0216D5CECFDFD0C569B6AB22AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178886   (349051) от 31.10.2017
-
-Kreator - Dying Alive 2012 (2013) BDRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Kreator записанный в Turbinehalle (Oberhausen, Germany) 22 декабря 2012 года и выпущенный на CD/DVD/Blu-Ray 30 августа 201301. Intro: Mars Mantra
-02. Phantom Antichrist
-03 .From Flood into Fire
-04. Enemy of God(   Читать дальше...   )Производство: Nuclear Blast (Germany)Жанр: Thrash MetalПродолжительность: 01:32:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:262CA364985A2988D399EC8DB3DAF0C2B6512110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179409   (348902) от 31.10.2017
-
-Avantasia - The Flying Opera: Around The World In Twenty Days (2011) BDRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый концертный альбом Avantasia, выпущенный в марте 2011 года. Он был записан в 2008 году во время первого мирового турне Avantasia в поддержку альбома The Scarecrow.01. Twisted Mind
-02. The Scarecrow
-03. Another Angel Down
-04. Prelude / Reach Out For The Light(   Читать дальше...   )Производство: Nuclear Blast (Germany)Жанр: Heavy Metal, Symphonic Metal, Power MetalПродолжительность: 02:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA4EE971407267EE944EFD49FFA90BC997DBB48D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 724547   (348423) от 21.11.2013
-
-ZZ Top - Definitely Then (Double Down) 1980 (2008) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это первый диск из альбома "ZZ Top - Double Down Live 1980/2008"01. I Thank You
-02. Waitin’ For the Bus
-03. Jesus Just Left Chicago
-04. Precious And Grace(   Читать дальше...   )Жанр: Hard & Blues RockПродолжительность: 01:32:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B803698EC7A9DD9EB5FC64E111185EAB571D29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 408329   (348212) от 12.11.2011
-
-Lady Gaga - Marry The Night / MTV EMA 2011  (2011) HDTVRip [1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electro-PopПродолжительность: 00:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBEF8F2380DF51C84C1878C8BDD2A1243F6615DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

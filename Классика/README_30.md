@@ -1,3 +1,58 @@
+###  Публикация: 934402   (502400) от 05.09.2015
+
+Vanhal - Symphonies (Concerto Koln) (2007) [FLAC|image +.cue]<Classical, Orchestral, Classical Period, Symphony>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical, Orchestral, Classical Period, SymphonyПродолжительность: 01:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50CD79510D0EFADC0527715400749C778F2E6727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934417   (502324) от 05.09.2015
+
+Nikita Magaloff - La Valse (1990) [FLAC|image +.cue]<Classical, Romantic Period, 20th Century Period, Modern, Suite, Post-Romantic, Character Piece, Waltz, Incidental, Lied, Rondo, Scherzo, Tran ...
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valse, for piano, Op. 34/1 (07:05)
+02. Valse Triste, for orchestra (from Kuolema), Op. 44/1: Valse Triste (04:33)
+Invitation to the Dance (Aufforderung zum Tanze), rondo brillant for piano, J. 260 (Op. 65)
+03. Aufforderung Zum Tanze (Invitation to the Dance), transcribed by K. Ta (10:25)(   Читать дальше...   )Жанр: Classical, Romantic Period, 20th Century Period, Modern, Suite, Post-Romantic, Character Piece, Waltz, Incidental, Lied, Rondo, Scherzo, Transcription, ArabesqueПродолжительность: 01:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D2BA60BB76D479F6E29BEAC22E90998F80538FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 539371   (502009) от 30.08.2012
 
 VA - The Top 100 Masterpieces Of Classical Music: 1685-1928 (1991) [FLAC|Lossless]<Classical>
@@ -737,64 +792,6 @@ Hauser, London Symphony Orchestra - Classic (2020) Conductor Robert Ziegler [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7E351065A559E90C8F3E96798DA59B57F5AEC2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244137   (481795) от 01.09.2018
-
-VA - Russian Legends (Legendary Russian Soloists Of The 20-th Century) (100 CD  Box Set) (2007) [WavPack|Lossless|image + .cue] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481795.jpg" />
-</div>
-
-
-###  Подробнее
-
-LUDWIG VAN BEETHOVEN (1770-1827)
-PIANO SONATA in E minor Op. 90
-1. Mit Lebhaftigkeit und durchaus mit Empfindung und Ausdruck 5:47
-2. Nicht zu geschwind und sehr singbar vorzutragen 6:41(   Читать дальше...   )Жанр: ClassicalПродолжительность: 108:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ADDA14C042B35AA2D3A53F7A4E7D946686F13E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159475   (481737) от 21.08.2017
-
-Christian Grovlen - BACH - Inside Polyphony (2017) [MP3|320 Kbps] <Classical>
-
->>Классика
->>Фортепиано
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chromatic Fantasia and Fugue in D minor, BWV 903; Fantasia  6:55
-02.  Chromatic Fantasia and Fugue in D minor, BWV 903; Fugue  5:12
-03.  Sinfonia No. 1 in C major, BWV 787  1:03
-04.  Sinfonia No. 2 in C minor, BWV 788  2:22(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E3E8C5200062361F41430987F92D239289B451
 ```
 
 https://mybot314.ru/tekegram_catalog/

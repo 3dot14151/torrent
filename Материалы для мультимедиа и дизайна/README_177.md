@@ -1,3 +1,108 @@
+###  Публикация: 914135   (599392) от 01.07.2015
+
+Векторный клипарт - Сборка векторных изображений 2 / Vectorstock 2 [AI, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй пак векторных изображений самой разнообразной тематики.
+Превью в PDF.Формат: AI, EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D42E99AFC87E3F686FB7748FAC5B1086FE2059A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038968   (599295) от 30.07.2016
+
+Экшены - GraphicRiver - Creative Vintage Watercolor Actions Bundle [ATN, GRD, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Creative Vintage Watercolor - набор для Вашего творчества. Этот пакет поможет вам создать из ваших фото  великолепные старинные акварельные  произведения.Формат: ATN, GRD, PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:358A9FB1E555B5224149A0E276B8A9D09FC54101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526028   (599130) от 23.07.2012
+
+Фоны - Природные фоны для Вашего творчества [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Природные фоны для Вашего творчестваРазрешение файлов: ~ 2300x1800 - 3000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D46C75F849DF2A02EFC8B3C591B922399FC1AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 388414   (598700) от 23.07.2012
+
+Digital Juice Color Rules v1.3 Build 106 for After Effects CS6 (EN/WIN)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_598700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плагин COLOR RULES для Adobe After Effects предназначен для сокращения времени пользователя, при подборе и определении наилучшей цветовой схемы для ваших композиций. Плагин Color Rules работает как с отдельными слоями так и со всей композицией, и в отличии от стандартных плагинов Adobe After Effects, очень прост в использовании. Плагин дает вам мгновенный доступ (   Читать дальше...   )Язык интерфейса: English
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149812   (597998) от 12.07.2017
 
 Экшены - GraphicRiver - Cartoon Oil Paint - 19587810 [ATN]
@@ -569,110 +674,6 @@ Da Vinci Style Sketch - данный экшен фотошоп поможет в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C2538CD4E594E74CF552A5E9879A6FA5D9F522F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039614   (594437) от 02.08.2016
-
-Экшены - GraphicRiver - Torn Photoshop Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Torn - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BDDA5ABC720A05C66758E6C02D1E2981C8D35F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039827   (594434) от 02.08.2016
-
-Экшены - GraphicRiver - Etching Photoshop Action V.2 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Etching - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4563BE8D6EDB95CB8B0266F175C4C585E82A835E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039610   (594432) от 02.08.2016
-
-Экшены - GraphicRiver - Pure Art Photoshop Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pure Art - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCBB5DF893C395142A366C3DFDAB443F020CBC82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039834   (594428) от 02.08.2016
-
-Экшены - CreativeMarket - Watercolor Photoshop Action [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Watercolor - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36FD133B8FF1D9DEB00333FA4C4D370C04CAB2CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

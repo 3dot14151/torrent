@@ -1,3 +1,113 @@
+###  Публикация: 1235243   (562048) от 10.07.2018
+
+Векторный клипарт - Certificate vector design template #66 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Шаблоны оформления сертификатов
+9 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8D1580AE4EB15C0C9F804441A5A3F2E8CA5895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235236   (562045) от 10.07.2018
+
+Векторный клипарт - Luxury vector wedding invitation [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Роскошные свадебные приглашения
+12 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E439CCC7137611BE90337FD1C46A0DA208AEE4B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235244   (561926) от 10.07.2018
+
+Векторный клипарт - Premium packaging vector design [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Премиум этикетки для упаковок
+9 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F5CB7FF69432680DC770E1FB4414311B17A8E9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304863   (561707) от 27.05.2019
+
+Звуковые библиотеки - Epic Stock Media - Fantasy Game [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fantasy Game - это большой пакет звуковых эффектов, вдохновленных такими популярными компьютерными играми, как World of Warcraft и Diablo. Fantasy Game предоставляет сегодняшним разработчикам игр, ремиксерам звука, инженерам-звукорежиссерам, ди-джеям и даже современным подкастерам, ориентированным на игру, невероятно захватывающую коллекцию звуков. Эта коллекция, (   Читать дальше...   )Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F0012A0FAB151939F4BFB5843001EAC442F1F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 690800   (561446) от 19.08.2013
 
 Шаблоны сайта - 29 шаблонов для Joomla 2.5-3.1 от студии YooTheme [HTML,PHP,XML,PNG]
@@ -584,111 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB1A65A406435BC8D5E42AB267D14BF3D0186CEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045389   (559111) от 23.08.2016
-
-Шаблоны - Fassion Passion V5 PSD Flyer Template + Facebook Cover [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Флаер и Facebook Cover для Вашего творчества. Многие оценят их по достоинству.Формат: PSDРазрешение файлов: 1275x1875 / 3546х1313 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F26C54CFBD72961C35CC1C8D8A7E589A96B7B36F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045541   (559108) от 23.08.2016
-
-Шаблоны - Kids Salon V1 Flyer PSD Template + Facebook Cover [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Флаер и Facebook Cover в стиле детского праздника для Вашего творчества.
-Многие оценят их по достоинству.Формат: PSDРазрешение файлов: 2625x3375 / 3546х1313 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2090A2B07FF975694E0F0DA992BCA052D0B96EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045495   (559102) от 23.08.2016
-
-Шаблоны - Best Price Offer V1 PSD Flyer Template + Facebook Cover [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Флаер и Facebook Cover для Вашего творчества. Многие оценят их по достоинству.Формат: PSDРазрешение файлов: 1350x1950 / 3546х1313 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CDDA072DF9764F63AAD4FA00ACD43565765FDE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045499   (558985) от 23.08.2016
-
-Шаблоны - Elegantflyer - Restaurant Menu – Free PSD Tri-Fold PSD Brochure Template [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двух-сторонняя складывающая ресторанная брошюрка с меню.Формат: PSDРазрешение файлов: 3657х2631 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EFC63366A3F62BDAE8BB2417ED036C32A2C7251
 ```
 
 https://mybot314.ru/tekegram_catalog/

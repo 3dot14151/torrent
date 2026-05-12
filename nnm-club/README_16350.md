@@ -1,54 +1,22 @@
-###  Публикация: 1254066   (377523) от 12.10.2018
+###  Публикация: 573755   (379128) от 11.11.2012
 
-VA - Coastal Remixes Vol.03 (2018) [MP3|320 Kbps] <Trance, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airtraffic - Nightdrive (Solewaas Remix)
-02. Alex Byrka - Aeria (Alex Wright Remix)
-03. Archx - Journey Home (Sailing Airwave Remix)
-04. Asioto - Last Dance (Myni8hte Remix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 01:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580C27A2B8C7D9307604767BA124745826C21C9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254018   (377522) от 12.10.2018
-
-Sync Diversity & Danny Claire - For the Love of Trance (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
+Computer Desktop Wallpapers Collection (09.11.12) [Wallpapers]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379128.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sync Diversity & Danny Claire- The Meaning (Friso Schaap Remix)
-02. Sync Diversity & Danny Claire & Veela - I Need You
-03. Sync Diversity & Danny Claire - Waiting in Paradise
-04. Sync Diversity & Danny Claire - Sound of Trance(   Читать дальше...   )Жанр: Trance,Vocal TranceПродолжительность: 00:52:46
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCF860E7982295771CDD4B2F448B027BA3B9901A
+magnet:?xt=urn:btih:AA88E6A79AC923C400EDB0F13081BD66E62FFCFB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,25 +24,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254145   (377521) от 12.10.2018
+###  Публикация: 573906   (379126) от 11.11.2012
 
-Иван Васильевич Попов | Труды по патрологии [2 книги] (2004 - 2005) [FB2]
+VA - Новая коллекция 71 (2012) [MP3 |256 кб/с]<Pop, Dance>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379126.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Впервые после многих лет незаслуженного забвения отдельным изданием выходят в свет труды И.В.Попова по патрологии. В 1 том его сочинений вошли исследования о Макарии Египетском, Афанасии Александрийском, иконийском епископе Амфилохии, пиктавийском епископе Иларии, отдельные заметки о Дионисии Ареопагите Иоанне Златаусте, Тертуллиане, Дионисии Александрийксом (Великом). (   Читать дальше...   )Жанр: ПатристикаФормат: FB2
+001. Инь-Ян - Oh, Yeah!
+002. Полина Гагарина - Нет
+003. Олег Винник - Па-па
+004. Дима Билан и Ева - Малыш
+005. David - Я Люблю Тебя За Это
+006. Ольга Литвиненко - Листья
+007. Митя Фомин - Наглый Ангел
+008. Ани Лорак - Зажигай Сердце
+009. Валерий Меладзе feat. Вахтанг - Свет уходящего солнца
+010. Анна Семенович - Любовь Под Облаками(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:08:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B5CE7CD33F8B775F28B348BA8B0C2C2CB220282
+magnet:?xt=urn:btih:7E31D8CB59AADF9303D24F8B168B832FE55619FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,83 +59,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254146   (377520) от 12.10.2018
+###  Публикация: 573765   (379124) от 11.11.2012
 
-General Lafayette - Jester (1993) [FLAC|Lossless|image + .cue] <Pop, Ballad, Instrumental>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377520.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Oh My Beloved Father
-2.	The Power Of Music
-3.	Love In The Eyes Of A Child
-4.	Blow The Trumpet At The New Moon(   Читать дальше...   )Жанр: Pop, Ballad, InstrumentalПродолжительность: 00:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D7F5807719B1A47C4AD26CD25B25B9DC036607D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254165   (377519) от 12.10.2018
-
-General Lafayette - King Of The Broken Hearts (1999) [FLAC|Lossless|image + .cue] <Pop, Ballad, Instrumental>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377519.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	King Of The Broken Hearts
-2.	True Love Will Never Die
-3.	Like A Story You Read In A Book
-4.	Country Blues(   Читать дальше...   )Жанр: Pop, Ballad, InstrumentalПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48020EDF4B913031BE0477200569577599BBFE24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254086   (377518) от 12.10.2018
-
-Boxy SVG 3.22.0 [En]
+Sexy Girls (09.11.12) [Wallpapers 16+]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379124.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цель проекта Boxy SVG - создать редактор SVG для рядовых пользователей, а также для профессиональных дизайнеров и разработчиков.Тип издания: macOS SoftwareРелиз состоялся: 16.07.2018Разработчик: © Jaroslaw FoksaПоддерживаемая ОС: macOS 10.9.0 +Язык интерфейса: Английский
+Обои для рабочего столаРазрешение файлов: 1680х1050 - 3100х2045
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83BEDF5895A4450CCC773D8D69C32BA9DA25B917
+magnet:?xt=urn:btih:9D6E06ED889FA581D923DF636FE9A693A7FA7A90
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,28 +85,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254135   (377517) от 12.10.2018
+###  Публикация: 573904   (379123) от 11.11.2012
 
-General Lafayette - Love Is A Rhapsody (1992) [FLAC|Lossless|image + .cue] <Pop, Ballad, Instrumental>
+VA - Русский Улетный Hit-Прорыв (2012) [MP3|256 кб/с]<Pop>
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.	Angel In Blue
-2.	For The Girl Who Couldn't Find Love
-3.	Melody For You
-4.	Angelitos(   Читать дальше...   )Жанр: Pop, Ballad, InstrumentalПродолжительность: 00:54:30
+01. Винтаж feat. Bobina - На На На (Mariya Malyakina & Stanislav Shik BMM Radio Remix)
+02. Катя Чехова - По Буквам Слова
+03. Блестящие - Зеленые Глаза
+04. 140 ударов в минуту - Надышаться тобой
+05. Алабама - Отпускаю
+06. Егор Сесарев - Громче Музыка (Space4 Official Remix)
+07. Вера Каретникова - Vera
+08. Достучаться До Небес - Все Это Временно
+09. Iowa - Ищу Мужа
+10. Анна Семенович - Любовь под облаками(   Читать дальше...   )Жанр: PopПродолжительность: 05:57:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2CECAF8B8748D7EED7407770DDDE7EA7A33EF4E6
+magnet:?xt=urn:btih:AEA29636CD824BA2D442C128553D9675D3B0D993
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,25 +120,31 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253974   (377516) от 12.10.2018
+###  Публикация: 573660   (379122) от 11.11.2012
 
-Иван Васильевич Попов | Труды по патрологии [2 книги] (2004 - 2005) [PDF]
+VA - Trancern 38.1: Official Compilation (November 2012) (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379122.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Впервые после многих лет незаслуженного забвения отдельным изданием выходят в свет труды И.В.Попова по патрологии. В 1 том его сочинений вошли исследования о Макарии Египетском, Афанасии Александрийском, иконийском епископе Амфилохии, пиктавийском епископе Иларии, отдельные заметки о Дионисии Ареопагите Иоанне Златаусте, Тертуллиане, Дионисии Александрийксом (Великом). (   Читать дальше...   )Жанр: ПатристикаФормат: PDF
+VA - Trancern 38.1: Official Compilation (November 2012) (2012)
+Год: 2012
+Жанр: Trance, Vocal Trance, Uplifting Trance
+Продолжительность: 03:01:58Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:001. Alexander Popov - Attractive Force (Original Mix)
+002. Andy Tau & Sean Truby - Rapture (Original Mix)(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8C01684636999873EA59E0175F82BCBA4DCDA3F
+magnet:?xt=urn:btih:1AB93E1617FCAABC0BBD7C91D321802858797DFA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -221,26 +152,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254110   (377515) от 12.10.2018
+###  Публикация: 1414446   (379121) от 11.10.2020
 
-Maxthon Browser 5.2.5.1000 Portable by Cento8 [Ru/En]
+808hardcore - 4 Albums (2018-2020) [FLAC|Lossless|WEB-DL]<Hardcore, Chaotic Hardcore, Mathcore>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Maxthon (официально называется Облачный браузер Maxthon, изначально известный как MyIE2) — это бесплатный веб-браузер для Windows и OS X, разработанный в Китае компанией Maxthon Ltd.
-MX5 - новая версия веб-браузера от Maxthon для Windows наглядно показывает прогресс продукта, который превратился из классического браузера в персонального ассистента для всех видов (   Читать дальше...   )Язык интерфейса: Русский, Английский
+01. Интро [00:00:40]
+02. Плеть [00:05:05]
+03. Ты - страх [00:05:04]
+04. Сон [00:05:28](   Читать дальше...   )Жанр: Hardcore-PunkПродолжительность: 4 CD, 02:15:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B7883A31B4263A84102A11D21D4644165626E2C
+magnet:?xt=urn:btih:B52D8E5AD02CB068AF3BFF972E6C5F03B70C7628
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -248,28 +181,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254161   (377514) от 12.10.2018
+###  Публикация: 1415245   (379120) от 11.10.2020
 
-Ian Boddy & Erik Wøllo (Erik Wollo) - Meridian (2018) DiN [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
+Adware Zap Pro 2.8.3 [Multi/Ru]
 
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Программы для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Uncharted (03:45)
- 02. Verdant (05:49)
- 03. Colony (04:23)
- 04. Isolation (04:04)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 00:58:18
+Приложение Adware Zap восстанавливает первоначальное состояние браузера, удаляя нежелательные расширения, cookie-файлы и кеш, а также сбрасывая настройки браузера. Adware станет для вас оптимальным выбором в следующих случаях:
+Ваш браузер постоянно отображает всплывающую рекламу мошеннических или просто подозрительных продуктов и услуг, даже если вы отказываетесь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2020Разработчик: VorInn IncПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16B4DB14E86FEC16EA818B41BD2DD915839DE612
+magnet:?xt=urn:btih:99FF3E432C6E6375C27E93010A9114B994050E85
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -277,25 +208,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254093   (377513) от 12.10.2018
+###  Публикация: 1415327   (379119) от 11.10.2020
 
-QLab Pro 4.3.3 [En]
+Neander - 1 Album / 1 Single (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Doom-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purpur (Prelude) [00:02:35]
+02. Purpur [00:08:01]
+03. Eremit [00:07:34]
+04. Ora [00:08:10](   Читать дальше...   )Жанр: Post-Metal, Doom-MetalПродолжительность: 2 CD, 00:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99DF750D0FA02D63750EFEA8CF1176F6A588FFC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415293   (379118) от 11.10.2020
+
+IconJar 2.6.1 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379118.jpg" />
 </div>
 
 
 ###  Подробнее
 
-QLab - Мощный инструмент для создания и проведения мульмедийным шоу, который поможет управлять звуком, видео и MIDI из единого рабочего пространства. QLab предназначена не для простых презентаций, а для мультимедийных шоу, театра и других развлекательных мероприятий и обладает отличным функционалом.Тип издания: macOS SoftwareРелиз состоялся: 10.10.2018Разработчик: Figure 53, LLC.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+Все ваши иконки отлично организованы в удобный интерфейс
+Разработанный, чтобы сделать жизнь разработчиков приложений и дизайнеров немного легче, IconJar представляет собой легкий и удобный органайзер иконок для вашего Mac.
+
+Если вы дизайнер или просто-напросто кто-то, чья линия работы включает в себя работу со значками (или глифы), то вы знаете, как громоздким оказывается (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.10.2020Разработчик: Davey Heuser and Curtis HardПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC1439377A424A6CDA47DC3C83D2406096A6FAFD
+magnet:?xt=urn:btih:3403962EBE997845991D5412F041E59FAAFAB363
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -303,28 +266,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253995   (377512) от 12.10.2018
+###  Публикация: 1415255   (379117) от 11.10.2020
 
-VA - Markus Schulz - We Are the Light (2018) [MP3|320 Kbps] <Trance,Downtempo>
+La Fin - 2 Albums: Empire of Nothing / The Endless Inertia (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Post Hardcore, Extreme Metal>
 
->>Electronic
->>Trance
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379117.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Markus Schulz – The Awakening (Original Mix)
-02. Markus Schulz & Omnia & Seri – Road of No Return (Original Mix)
-03. Markus Schulz & Alina Eremia – You Light up the Night (Original Mix)
-04. Markus Schulz – Heaven (Original Mix)(   Читать дальше...   )Жанр: Trance,DowntempoПродолжительность: 01:57:12
+01. Inertia [00:08:57]
+02. Zero [00:04:40]
+03. Hypersleep [00:06:30]
+04. Memory [00:00:53](   Читать дальше...   )Жанр: Post-Metal, Post Hardcore, Extreme MetalПродолжительность: 2 CD, 01:18:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB2E0126CC241F2165715123F83820C96433D033
+magnet:?xt=urn:btih:B79C8EF88184108E53C223ED48E29C8F7CBE0A68
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -332,28 +295,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253999   (377511) от 12.10.2018
+###  Публикация: 1415385   (379116) от 11.10.2020
 
-VA - Markus Schulz - Global DJ Broadcast - We Are the Light Album Special (2018) [MP3|320 Kbps] <Trance>
+Leger De Main - A Lasting Impression (2005) 2xCD [FLAC|Lossless|image + .cue] <Progressive Rock, Metal>
 
->>Electronic
->>Radioshow, Live Mixes
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Markus Schulz & Jared Lee - Together (from We Are the Light)
-02. Ummet Ozcan - The Cell (Instrumental Mix)
-03. Markus Schulz featuring Nikki Flores - We Are the Light (from We Are the Light)
-04. Markus Schulz & Alina Eremia - You Light Up the Night (from We Are the Light)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:36
+CD - 1:
+01. To Live The Truth
+02. Crystal Fortune
+03. Immobile Time(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 01:39:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D8C9827DB4B08F4FB0636B9C4DC0AE9093746CE
+magnet:?xt=urn:btih:7C18405D675E04DFC3C43754B53BD7154FB57354
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -361,28 +324,310 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254040   (377510) от 12.10.2018
+###  Публикация: 1415332   (379115) от 11.10.2020
 
-Duplicate Detective: Cleaner 1.99.1 [Multi/Ru]
+PhotoSweeper X 3.8.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379115.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoSweeper — отличный способ поиска дубликатов изображений
+Проблема очистки компьютера остро стоит у многих пользователей. При «обычной» эксплуатации жесткий диск забивается ненужными файлами не очень быстро, но у тех, кто активно работает с определенными типами файлов, проблема с появлением дубликатов файлов весьма актуальна. Наиболее острую необходимость в приложениях (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07.10..2020Разработчик: Gwinno Software IncПоддерживаемая ОС: OS X 10.12.2 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5235B7FAFC76EF74F39CBDB8349AFF04B5FA6BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415311   (379114) от 11.10.2020
+
+Psychostasy - Unworthy Grave (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:01:21]
+02. Burned at the Stake [00:03:03]
+03. Eternal Recurrence [00:03:56]
+04. Game of Man and Earth [00:03:00](   Читать дальше...   )Жанр: Progressive DeathcoreПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19F91CD5BB018B268C7B6A7E72739BF279C2ED23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412627   (379113) от 11.10.2020
+
+Memoira - Memories, Tragedies, Masquerades (2019) [AAC|~328 Kbps] <Gothic Metal>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Recoil (4:46)
+02. Failure to Commit (3:53)
+03. Medusa (5:21)
+04. Drops of Decadence (4:42)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C88AD2BE52A835482D91CF428176BBD841081F19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415218   (379112) от 11.10.2020
+
+Every Hour Kills - Reawaken (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Metalcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Veiled Aurora (feat. Dayshell & Bloodshot Dawn) [00:04:18]
+02. Anthelion (feat. Threat Signal) [00:04:26]
+03. Re:awaken [00:04:12]
+04. Time (feat. Rick Graham) [00:05:04]Жанр: Modern Metal, Metalcore, ElectronicПродолжительность: 00:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4871D99445EF3B0DEF6B797796FFD1860BFC37E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415125   (379111) от 11.10.2020
+
+Suicide Of Society - War Investment (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream of the Plague [00:05:25]
+02. Heterotopia [00:03:37]
+03. War Investment [00:06:15]
+04. Mass of Violence [00:04:09](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF14C55A8CB53B84CF53E569E067382C56AA8805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415178   (379110) от 11.10.2020
+
+Walter Bishop, Jr. Trio - Speak Low + 3 (1961) 1987, Tokuma [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sometimes I'm Happy (alternate take) [7:30]
+02. Sometimes I'm Happy [6:34]
+03. Blues in the Closet (alternate take) [3:55]
+04. Blues in the Closet [4:04](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19AEE630D315816596E6932937EAB0C7E3ABBDB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415393   (379109) от 11.10.2020
+
+SwitchGlass 1.4.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379109.jpg" />
+</div>
+
+
+###  Подробнее
+
+SwitchGlass это новый проект Джона Сиракузы который приносит выделенный переключатель приложений Mac со многими вариантами настройки.Тип издания: macOS SoftwareРелиз состоялся: 05.09.2020Разработчик: Hypercritical LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD15E59DE5BF47BEE614D6A85E4F98A23C6C132D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415111   (379108) от 11.10.2020
+
+Bootblacks - Thin Skies (2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Traveling Light [00:03:40]
+02. The Jealous Star [00:04:12]
+03. Thin Skies [00:03:22]
+04. Hidden Things [00:03:40](   Читать дальше...   )Жанр: Indie Rock, Post-Punk, DarkwaveПродолжительность: 00:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3BF1DF9599DAACC48BF0831EFE19D9632D256BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415130   (379106) от 11.10.2020
+
+DeadRise - DeadRise (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Doctor Will See You Now [00:01:27]
+02. Slipping Away [00:04:25]
+03. Close Your Eyes [00:03:34]
+04. Stubborn Heart [00:04:52](   Читать дальше...   )Жанр: Alternative Metal, Post-HardcoreПродолжительность: 00:21:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:175CD4D4B5FABF4D2884D7ABA0E3A7049CFBFCBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415275   (379105) от 11.10.2020
+
+Empress - Premonition (2020) [MP3|320 Kbps] <Doom Metal, Sludge Metal, Post Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379105.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A Pale Wanderer (08:09)
+ 2. Sepulchre (04:44)
+ 3. Passage (04:57)
+ 4. Trost (06:12)(   Читать дальше...   )Жанр: Doom Metal, Sludge Metal, Post MetalПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78044D990D04EA829A5F8315A17E3400EF9CFB12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415213   (379104) от 11.10.2020
+
+Seasonality Core 2.7.2 [En]
 
 >>Программы для macOS
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379104.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Duplicate Detective является наиболее полным приложением для поиска дубликатов для вашего Mac. Он быстро сканирует жесткий диск, чтобы найти все дубликаты файлов и папок на вашем Mac. Вы можете затем выбирать, какие дублируются и удалить, освободить тем самым драгоценное пространство на жестком диске.
-
-• Интуитивно понятный и простой для навигации
-• Поддержка Retina-дисплеев(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2018Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+Seasonality Core - превращает ваш Mac в домашнюю метеостанцию, показывая вам, прогноз погоды с использованием спутниковых и радиолокационных изображений, с помощью которых вы сможете посмотреть облачность и где идет дождь или снег. Также можно посмотреть погоду на следующие 7 дней. Вы можете следить за погодой не только в вашем городе, но и по городам всего мира. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2020Разработчик: Gaucho Software, LLC.Поддерживаемая ОС: macOS 10.8.0+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF402C4AC028014C7828912CD999F044C22E12E0
+magnet:?xt=urn:btih:6CE3B00C5BE610998474FDDC07969E8EBE83B119
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -390,28 +635,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254102   (377509) от 12.10.2018
+###  Публикация: 1415296   (379103) от 11.10.2020
 
-VA - Охота 84 (2018) [MP3|320 Kbps] <Rock>
+Zao - Preface: Early Recordings (1995-1996), Compilation, Remastered, 2020, Steadfast Records [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379103.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Deviltears - Верни мне сердце
-02. Александр Шумнов - Наше детство
-03. Долбушина и Пугач - Опять снишься
-04. El Mashe - Б.Б.Б.(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:04
+01. Conflict [00:02:02]
+02. Rest [00:02:56]
+03. Sickness [00:03:55]
+04. Increased [00:02:18](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:50:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6BA683160E704BC83F52524A44DAEDE452370DA3
+magnet:?xt=urn:btih:3CC2E5037C6FC542F0B0C3E640A64E1F30C9D213
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -419,28 +664,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253904   (377508) от 12.10.2018
+###  Публикация: 1415177   (379102) от 11.10.2020
 
-Passion - Passion (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+Robert Tepper - No Easy Way Out (1986) [APE|Lossless|image + .cue] <New Wave, Pop Rock>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379102.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. In New York (11:35)
-02. Midnight Lovers (4:07)
-03. Don't Bring Back Memories (6:37)
-04. Dancing And Romancing (7:47)Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:30:06
+01. No Easy Way Out [4:23]
+ 02. Angel Of The City [4:32]
+ 03. Don't Walk Away [4:23]
+ 04. Your Love Hurts [4:51](   Читать дальше...   )Жанр: New Wave, Pop RockПродолжительность: 00:38:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54BA6567157E34C4FDF805F4D489E751C681D8D3
+magnet:?xt=urn:btih:8B33C43D34FB955F57E10EA0098FE858A261E1B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -448,28 +693,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254133   (377507) от 12.10.2018
+###  Публикация: 1253927   (379101) от 11.10.2018
 
-Johnny Winter - Paradise Blues (2018) Live [MP3|320 Kbps] <Blues, Blues Rock>
+Эльвира: Повелительница тьмы / Elvira: Mistress of the Dark (1988) BDRip [H.264/1080p-LQ]
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379101.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sen-Sa-Shun (7:24)
- 02. You're Humbuggin' Me (6:57)
- 03. Third Degree (13:46)
- 04. Got To Find My Baby (5:13)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:14:05
+На телезвезду Эльвиру неожиданно обрушивается наследство в виде тетушкиного поместья в маленьком городишке. Местное население при виде Эльвиры в сногсшибательном платье со сногсшибательным декольте испытывает настоящий шок. Женская половина обитателей города приходит в негодование, мужская — в восторг. Но Эльвира дает отпор не только местным ханжам, но и зловещему (   Читать дальше...   )Производство: США / NBC Productions, New World Pictures, Queen B Productions, Panacea EntertainmentЖанр: Комедия, Фэнтези, УжасыРежиссер: Джеймс СиньореллиАктеры: Кассандра Петерсон, Уильям Морган Шеппард, Дэниэл Грин, Сьюзэн Келлерман, Джефф Конэвей, Эди МакКлерг, Уильям Дюэл, Фил Рубенштейн, Ларри Флэш Дженкинс, Джозеф Ариас, Дамита Джо Фриман, Тресс МакНилл, Эдвина Мур, Ли МакЛафлин, Билл СверингенПеревод: Многоголосый закадровый (DVD Магия)Субтитры: русские, английскиеПродолжительность: 01:36:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52B42D87554EC5CFD5CB2038804AE2C2929A5F6E
+magnet:?xt=urn:btih:4AC5BCF2B2434909E877D6A35114508E743EEEC9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -477,235 +719,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 834489   (377500) от 25.10.2014
+###  Публикация: 1253745   (379100) от 11.10.2018
 
-Шаг вперед: Все или ничего / Step Up All In (2014) BDRip [H.264/720p-LQ]
+X-Morph: Defense (2017) [Ru/Multi] (1.12/dlc) Repack R.G. Catalyst
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Win Игры
+>>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379100.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В переливающемся огнями Лас-Вегасе лучшие танцоры планеты сойдутся в батле, который решит все. Талантливый самоучка Шон и красотка Энди, мечтающие о славе и богатстве, примут участие в популярном реалити-шоу и бросят вызов «непобедимым» командам противников, а главное — самим себе. Смогут ли они преодолеть страх, пережить предательство и обуздать страсть, чтобы стать (   Читать дальше...   )Производство: СШАЖанр: Драма, Мелодрама, МузыкальныйРежиссер: Триш СиАктеры: Райан Гузман, Бриана Эвиган, Стивен Босс, Миша Гэбриел Хэмилтон, Изабелла Мико, Элисон Стоунер, Адам Дж. Севани, Стивен Стево Джонс, Дэвид Шрейбман, Мари КодаПеревод: Дублированный (iTunes)Субтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:51:51
+Уникальное сочетание шутера с видом сверху и стратегии в жанре Tower Defense. Вы — захватчик! Используйте оружие или заманите врага в смертоносный лабиринт защитных башен. Планируйте атаку в режиме строительства, возводя разнообразные башни, или сразу ворвитесь в самую гущу боя.Тип издания: RepackРазработчик: EXOR StudiosЖанр: Action, Strategy (Tower Defense)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:408C63B82918CF1136CB6A65CDB6405931E30044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 833560   (377497) от 25.10.2014
-
-Highlights School | Начальный курс ретуши (2014) PCRec
-
->>След.
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс по ретуши и обработки фото в фотошопеЖанр: Обучающее видеоПродолжительность: 10:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1F72232D8AB8466FD27CEAD9B9B499DE24E4589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 832769   (377494) от 25.10.2014
-
-Ласло Габани, Игорь Гуляев | Нет Говнoфоткам - 3 (2014) [PCRec]
-
->>След.
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотели бы Вы узнать, как обрабатывать свои фотографии быстро, не сложно и самое главное - прибыльно и результативно?
-*Откройте для себя Самое Ценное в ОБРАБОТКЕ любых фотографий
-*Узнайте, как Вы можете это использовать в любых ситуациях, в любых направлениях фотографииЖанр: Обучающие видеурокиПродолжительность: 42:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE817E496F06D733746CDC3AC7ED07267D9FEE90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068752   (377481) от 02.11.2016
-
-Owlboy (2016) [En] (1.0) License GOG [Collector's Edition]
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Owlboy, фантастический полёт по миру с ретро-графикой и уникальной «платформенной» игровой механикой. Отус немногословен, но его решительность и отвага красноречивы. Мальчик-филин не успел толком повзрослеть, когда небесные пираты напали на его деревню, после чего ему пришлось довериться ветру перемен и отправиться в опасное приключение.Тип издания: LicenseРазработчик: D-Pad StudioЖанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F66533ED8D4DA30B55DF1ACBD8AB77BA751840C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068888   (377480) от 02.11.2016
-
-Не дыши / Don't Breathe (2016) WEBRip [Line]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_377480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грабители забираются в дом одинокого слепого старика с целью украсть огромную сумму, которая, по слухам, спрятана где-то внутри. Казалось бы — что может быть проще, чем вынести деньги из дома практически беспомощного человека. Но они жестоко ошибаются: преследуемый становится преследователем. И тайна, которую он хранит, гораздо страшнее, чем обычные пенсионные накопления.Производство: СШАЖанр: Ужасы, Триллер, КриминалРежиссер: Федерико АльваресАктеры: Стивен Лэнг, Джейн Леви, Дилан Миннетт, Дэниэл Дзоватто, Эмма Берковичи, Франциска Тёрёчик, Кристиан Сахиа, Катя Бокор, Сергей Онопко, Оливия Гиллис.Перевод: Дублированный (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 01:28:22Реклама: Присутствуют аудио, текстовые вставки рекламы. Начальный рекламный видеоролик вырезан.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068713   (377479) от 02.11.2016
-
-Дуэлянт (2016) WEB-DLRip [H.264]
-
->>След.
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377479.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета профессиональный дуэлянт, который зарабатывает на жизнь, участвуя в поединках за других людей.Производство: Россия / Студия компьютерной графики ТРЕХМЕР, ARSPRO, ConversiumЖанр: драмаРежиссер: Алексей МизгирёвАктеры: Пётр Фёдоров, Владимир Машков, Юлия Хлынина, Франциска Петри, Мартин Вуттке, Сергей Гармаш, Павел Табаков, Юрий Колокольников, Александр Яценко, Юрий КузнецовПеревод: Не требуется (Русский, iTunes)Продолжительность: 01:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC70B3FBBB876C22325A18634489D9157077C28D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068785   (377478) от 02.11.2016
-
-WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2016.11.01 [Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9FF8EF3EC0A84E72B09678B9FD9E773634B7235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068834   (377477) от 02.11.2016
-
-Полный расколбас / Sausage Party (2016) BDRip [H.264/1080p-LQ]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_377477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая анимационная комедия для взрослых о невероятных приключениях еды из супермаркета. Съедобным друзьям предстоит получить ответ на главный вопрос: есть ли жизнь за стенами супермаркета, и что же происходит с продуктами после того, как они попадают к людям домой?Производство: США / Annapurna Pictures, Columbia Pictures, Nitrogen Studios CanadaЖанр: мультфильм, фэнтези, комедия, приключенияРежиссер: Грег Тирнан, Конрад ВернонПерсонажи: Алистэр Эбелл, Айрис Апатоу, Стефани Бирд, Майкл Сера, Йен Джеймс Корлетт, Майкл Дэйнджерфилд, Брайан Добсон, Майкл Добсон, Джеймс Франко, Билл ХейдерПеревод: Дублированный (iTunes)Язык субтитров: АнглийскийПродолжительность: 01:28:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068853   (377476) от 02.11.2016
-
-Искусственный интеллект. Доступ неограничен / I.T. (2016) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вся жизнь Майка Ригана и его семьи построена на последних достижениях искусственного интеллекта и высоких технологий, а его «умный» дом — настоящее произведение технического искусства. Когда Майк пытается прекратить зашедшие слишком далеко отношения своего IT-специалиста Эда с юной дочерью, жизнь Ригана и его семьи оказываются под угрозой. Они попадают в ловушку (   Читать дальше...   )Производство: Ирландия, Франция, ДанияЖанр: Триллер, Драма, Криминал, ДетективРежиссер: Джон МурАктеры: Пирс Броснан, Джейсон Бэрри, Карен Москоу, Кай Риссдал, Брайн Малвей, Мартин Хайнди, Рико Хисон, Анна Фрил, Стефани Скотт, Майкл Лысак.Перевод: Дублированный (iTunes)Субтитры: английскийПродолжительность: 01:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30172F5D158B38AEF2A25BEAC98718A869483CC7
+magnet:?xt=urn:btih:0838CA211390208F161954E63DDF6AF3B1CA4E46
 ```
 
 https://mybot314.ru/tekegram_catalog/

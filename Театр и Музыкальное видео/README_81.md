@@ -1,3 +1,119 @@
+###  Публикация: 546313   (478713) от 13.09.2012
+
+Colonia - Laz za laz (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD31AF4D92BB77CF39A254A5CFF1A920F092E46B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546179   (478696) от 13.09.2012
+
+Igor Garnier feat. Malena - Feel Desire (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8500FADF8AB7E7CF25A86D22D37AA4E73ABCB2F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 384818   (478526) от 08.09.2011
+
+DJ VJ Magrao Videomix Volume 10 (2011) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летний мегамикс бразильского ви-джея Magrao01 - DJ VJ Magrão - Introdução 2011 Parte 2
+02 - Adele - Rolling In The Deep
+03 - Rihanna - California King Bed
+04 - Flo Rida & Akon - Who Dat Girl
+05 - DJ Antoine, Timati Feat.Kalenna - Welcome To St. Tropez
+06 - Jean Roch, Flo Rida & Kat DeLuna - I\'m Alright
+07 - Far East Movement - Rocketeer
+08 - Tiko\'s Groove & Gosha - I Don\'t Know What To Do
+09 - Katy Perry - Last Friday Night (TGIF)
+10 - Jessie J & B.O.B - Price Tag(   Читать дальше...   )Жанр: Pop, Club, DanceРежиссер: DJ VJ MagraoАктеры: разные исполнителиПродолжительность: 1:09:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82DA292DEB42BC15FFEA15C25D82A1EB1CE346A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 701115   (478384) от 17.09.2013
+
+Madonna: The MDNA Tour (2013) BDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Virgin Mary (Intro)
+02. Girl Gone Wild
+03. Revolver
+04. Gang Bang(   Читать дальше...   )Производство: США, Live Nation Global TouringЖанр: Pop, DanceРежиссер: Дэнни ТуллПеревод: ОригиналЯзык субтитров: ОтсутствуютПродолжительность: 01:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A36D0773D737057B167CEBF879C419C3A7DDC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 546445   (478379) от 13.09.2012
 
 Nikita - Avocado (2012) [H.264/1080p] WEBRip
@@ -609,116 +725,6 @@ Beat Club - Progressive Times - Vol3. 1970 (2009) DVDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2700AED505F926128A1466972005A2A2A603CA29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701921   (472726) от 20.09.2013
-
-Beat Club - Progressive Times - Vol 2. 1970 (2009) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Sabbath - Black Sabbath
-02. Rare Bird - Sympathy
-03. Blodwyn Pig - See My Way
-02. Canned Heat - Future Blues(   Читать дальше...   )Жанр: Музыка,  RockПродолжительность: 01:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA0B189738625619CEA2B2BED8140927CB903B35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406371   (472536) от 04.09.2020
-
-Def Leppard: Hysteria at the O2 (2018) BDRip [H.265/1080p] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Def Leppard - британская рок-группа из Шеффилда, Йоркшир, Англия, образована в 1977 году. Их стилевая манера с годами претерпела ряд изменений, двигаясь от хард-рока к глэм-металу. Def Leppard дебютировали как NWOBHM-группа с альбомом "On Through the Night" в 1980 году. Пик популярности этой группы пришёлся на 1984-89 годы, когда вышли их платиновые альбомы (   Читать дальше...   )Производство: Великобритания / Eagle Rock EntertainmentЖанр: hard rock, glam metal, heavy metal, pop rockАктеры: Def Leppard, Джо Эллиотт, Фил Коллен, Вивиан Кэмпбелл, Рик Сэвидж, Рик АлленПеревод: ОтсутствуетПродолжительность: 01:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27988AA32CA2EB79E6AD73018ACB1F971C1F94C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547677   (471962) от 16.09.2012
-
-Jelena Karleusa feat. Nesh - SO (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3786F13CC68F6FCE303C8A7D757B385235A7017F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 386346   (471949) от 11.09.2011
-
-Deadmau5 - Live @ Earl's Court (2011) [Progressive House / Minimal Trance / Techno] DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление Deadmau5 18 декабря 2010 года в Лондоне, Earl's Court, собравшее 19 000 фанатов мауса и любителей электронной музыки. Грандиозная атмосфера, яркие спецэффекты, треки из последнего альбома мауса "4x4=12", выступление с LED mau5head и mau5cube, а также использование сенсорного микшера "Holodesk".01. Deadmau5 - Limit break
-02. Some Chords
-03. The Reward Is Cheese (feat. Jelo)
-04. Bad Selection(   Читать дальше...   )Производство: Ultra Records (США)Жанр: House, Trance, Progressive, Electro, DubstepПродолжительность: 01:57:35
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

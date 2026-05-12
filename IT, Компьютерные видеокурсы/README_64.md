@@ -1,3 +1,31 @@
+###  Публикация: 1169021   (403747) от 26.09.2017
+
+Специалист | VMware vSphere. Уровень 1. Внедрение и эксплуатация vSphere 5.5 (2015) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403747.jpg" />
+</div>
+
+
+###  Подробнее
+
+VMware vSphere – решение виртуализации масштаба предприятия, построенное на базе гипервизоров ESXi/ESX, и управляемое с помощью решения vCenter Server.
+
+Цель курса: Научиться внедрять и поддерживать в работоспособном состоянии инфраструктуру виртуализации масштаба предприятия на основе Vmware vSphere: VMware ESXi /ESX и vCenter Server.Жанр: VMWare vSphere, Системное администрированиеПродолжительность: 21:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7602B24A25E3EFB60898ECE463F1A030A452F267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 473045   (402658) от 23.10.2012
 
 lynda.com | Основной курс Logic Pro 9 Essential Training [2011] [RUS] PCRec
@@ -687,35 +715,6 @@ Angular является одним из самых популярных фре�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:018241364D36ED3A84D11AD0EA94FFFD24C16793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415134   (378014) от 11.10.2020
-
-[Udemy] Piotr Jura | Изучите Laravel с GraphQL, Vue.js и Tailwind / Master Laravel with GraphQL, Vue.js and Tailwind (2020) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите GraphQL в Laravel и Vue, создав клон Trello с помощью Tailwind CSS!
-Если вы хотите узнать, как создавать SPA с помощью Laravel, Lighthouse, Vue.js, Apollo Client, Tailwind CSS и GraphQL, вы нашли лучшее место.
-В этом курсе вы создадите клон Trello (проект Laravello) и приложение блога, вдохновленное Netlify (проект BlogQL).
-По пути вы узнаете:(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 17:48:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ECA111D89AFF0C37B52D027942F11719794D62D
 ```
 
 https://mybot314.ru/tekegram_catalog/

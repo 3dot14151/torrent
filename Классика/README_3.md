@@ -1,3 +1,63 @@
+###  Публикация: 614154   (980872) от 05.02.2013
+
+Антонио Вивальди - Времена года (2002) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Весна
+02. Лето
+03. Осень
+04. Зима
+
+Исполняет Английский камерный оркестр под управлением Леонарда СлаткинаЖанр: ClassicalПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BAA694A337D1B89A25A7117524930D11B4155F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973590   (978946) от 09.01.2016
+
+Chopin - The Nocturnes (Maria Joao Pires)(2CDs) (1996) [FLAC|Lossless|image + .cue] <Classical, Recitals, Romantic Period, Chamber Music, Nocturne>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nocturne No. 11 in G minor, Op. 37 - I - Andante sostenuto (05:47)
+02. Nocturne No. 12 in G Major, Op. 37 - II - Andantino (05:57)
+03. Nocturne No. 13 in C minor, Op. 48 - I - Lento (06:45)
+04. Nocturne No. 14 in F sharp minor, Op. 48 - II - Andantino (07:18)(   Читать дальше...   )Жанр: Classical, Recitals, Romantic Period, Chamber Music, NocturneПродолжительность: 01:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4A6CF46D8BC7009B7DF0CF1528A67B0AC2274CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973602   (978938) от 09.01.2016
 
 Rosetti - Sinfonies - Concerto Köln (Vol.1) (1995) [FLAC|Lossless|image + .cue] <Classical, Classical Period, Symphony>
@@ -740,66 +800,6 @@ Stabat Mater per soprano, contralto, archi e continuo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:146988C0F98EC56045A1EA9486B0E7FF81CC43AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 169715   (962396) от 28.01.2010
-
-Трио Сергея Жилина - П.И.Чайковский In Jazz - Времена Года (2005) [MP3|320 kbps]<Classical crossover, Jazz>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962396.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Декабрь	07:01
-2. У камелька	05:17
-3. Баркарола	11:05
-4. Осенняя песнь	07:47(   Читать дальше...   )Жанр: Classical crossover, JazzПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978951   (962094) от 24.01.2016
-
-Stravinsky - The Rite Of Spring / Mahler - Symphony No.1 (2014) [FLAC 2.0|48.0/24|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Композитор: Igor Stravinsky,  Gustav Mahler
-Дирижер: Zubin Mehta
-Оркестр / Ансамбль: Australian World OrchestraThe Rite Of Spring
-01. The Rite of Spring: Part 1, "The Adoration of the Earth" (16:43)
-02. The Rite of Spring: Part 2, "The Sacrifice" (18:54)
-Symphony No.1(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:35:37 - 01:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:887DA99D08E78894AE62BBA0A67E28B0FCC5E9FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

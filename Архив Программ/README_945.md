@@ -1,3 +1,29 @@
+###  Публикация: 528643   (571166) от 29.07.2012
+
+Aiseesoft Total Media Converter Platinum 6.3.10 + Portable by fisher3 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_571166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft Total Media Converter – мощная,универсальная программа, которая состоит из: граббера видео DVD, конвертера видео файлов и экстрактора аудио из DVD и видео файлов. Утилита поддерживает AVI, MPEG, WMV, MP4, RM, MOV, 3GP, VOB, FLV, HD видео форматы (AVI, MPEG, WMV, MP4, H.264/AVC, MOV, MKV, AVCHD, 3GP) и другие популярные видео и аудиоформаты. Программа также способна создавать файлы, совместимые с iPod, iPod Touch, iPod Touch 2, iPod Nano, iPod Nano 4, iPod Classic и другими портативными устройствами. Имеет приятный и удобный интерфейс. В Platinum версии поддерживается конвертирование в 3D.Название программы: Aiseesoft Total Media Converter PlatinumЯзык интерфейса: En
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043674   (571056) от 17.08.2016
 
 CoolUtils PDF Combine 5.1.87 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -651,32 +677,6 @@ SlimBrowser 8.00 Build 003 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C91307533BBB5C236D5BDCEE39AC94A069A5DC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303660   (570495) от 22.05.2019
-
-Google Chrome 74.0.3729.169 Stable + Enterprise [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7728551F32464E4AE778B6AB4E6EED61C221F59D
 ```
 
 https://mybot314.ru/tekegram_catalog/

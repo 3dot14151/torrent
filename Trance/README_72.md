@@ -1,3 +1,61 @@
+###  Публикация: 1814877   (5669) от 27.08.2025
+
+VA - In Search Of Sunrise 21 Mix 2: Nirvana (Mixed by Markus Schulz) (2025) [MP3|320 Kbps] <Trance, Progressive, Melodic House & Techno>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noctello - Velvet Cabaret (Mixed) [2:31]
+02. Hellmuth - Stockholm Syndrome (Mixed) [4:01]
+03. Eelke Kleijn - Regenerator (Mixed) [5:16]
+04. Rцyksopp & Susanne Sundfør - Stay Awhile (Fideles Remix) (Mixed) [4:12](   Читать дальше...   )Жанр: Trance, Progressive, Melodic House & TechnoПродолжительность: 02:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0ED6A79C65ACE7148664AFEC73C89F43600A52C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815073   (5501) от 28.08.2025
+
+VA - 25 Years Of Anjuna Mixed by SØNIN (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joonas Hahmo - Together (Original Mix) [7:58]
+02. Carrie Skipper - Time Goes By (David West Vocal Mix) [7:50]
+03. Supermodels From Paris - Keep On (Komytea Remix) [6:48]
+04. Super8 & Tab feat. Anton Sonin - Black Is The New Yellow (Original Mix) [8:13](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:12:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAADE22B8DF0594B8AC3D904ACBAEC1DE8183906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815379   (5174) от 30.08.2025
 
 VA - The Best Trance Tunes Of 2025 Vol. 1 - Mixed by Roan Gosling (2025) [MP3|320 Kbps] <Trance>

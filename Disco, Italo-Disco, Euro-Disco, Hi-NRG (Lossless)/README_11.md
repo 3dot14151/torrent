@@ -1,3 +1,32 @@
+###  Публикация: 553178   (627107) от 12.04.2022
+
+VA - Хиты 80-х в Новых Версиях (2012) [FLAC|Lossless] <Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Al Bano Carrisi - Felicita (New Version) [3:52]
+02. Bad Boys Blue - You're A Woman (Re-Recorded) [3:44]
+03. Ricci E Poveri - Mamma Maria (Reloaded) [5:15]
+04. Mauro - Buona Sera Ciao Ciao (New Party Version) [3:56](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E70AB327ABF236F6B066A599C2F72C79BB6D57C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294844   (625965) от 09.04.2019
 
 Miko Mission - Greatest Hits & Remixes (2019) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco>
@@ -735,35 +764,6 @@ Imagination - Like It Is - Revised And Remixed Classics (1989) [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A5D9015D3FDD625DC1DA26501060C49DE04319D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549118   (594744) от 05.05.2022
-
-VA - Disco Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Dance, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bee Gees - Stayin Alive (4:46)
-02. Kool & The Gang - Celebration (Single Version) (4:57)
-03. Donna Summer - Hot Stuff (12'' Version) (6:41)
-04. Sylvester - You Make Me Feel (Mighty Real) (6:35)(   Читать дальше...   )Жанр: Dance, DiscoПродолжительность: 03:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6855E91651D9210D19845A5D7BDAE7F8E6708143
 ```
 
 https://mybot314.ru/tekegram_catalog/

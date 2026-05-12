@@ -1,32 +1,3 @@
-###  Публикация: 1149268   (602514) от 09.07.2017
-
-Shade Empire - Poetry Of The Ill-Minded (2017) [MP3|320 Kbps] <Melodic Death Metal, Sympho Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602514.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lecter (Welcome)
-2. Wanderer
-3. Drawn To Water - The Path
-4. Thy Scent(   Читать дальше...   )Жанр: Melodic Death Metal, Sympho Black MetalПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16831F90FFED52E34385074B1E035BA1D85E5DA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148755   (602486) от 09.07.2017
 
 Orden Ogan - Gunmen (2017) [MP3|320 Kbps] <Melodic Power Metal>
@@ -450,6 +421,39 @@ Chaos Magic (Timo Tolkki & Caterina) - Chaos Magic (2015) [MP3|320 кб/с]<Symp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:997FACAC8D2A1AF6E6459990A5A7A917EED07A64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 355468   (597131) от 29.06.2011
+
+Byfrost - Of Death (2011) [MP3|320 kbps]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_597131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. May The Dead Rise (3:36)
+02. Eye For An Eye (5:51)
+03. Buried Alive (5:06)
+04. Of Death (3:50)
+05. Full Force Rage (2:44)
+06. Shadow Of Fear (4:28)
+07. Sorgh (6:00)
+08. All Gods Are Gone (6:09)Жанр: Melodic Death Metal / Black metalПродолжительность: 00:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5804A920D2F844B5AA9CB98A0EF6A11F30500A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

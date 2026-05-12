@@ -1,3 +1,61 @@
+###  Публикация: 1438518   (1041178) от 08.01.2021
+
+VA - NaHiM Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, UpliftingTrance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Khoa Tran - Reality Somewhere (SounEmot Intro Mix)
+02. David Surok - South Beach (Original Mix)
+03. Dawid Jurzyk - Waiting For Sunrise (Original Mix)
+04. KBK feat. Mary Syll - Moments Of Life (Marco MC Neil Remix)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 02:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD25B6F1F9A63AD65838596B967689A4BAC3AA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610968   (1041173) от 12.02.2023
+
+VA - The Sound Of 2023 Mix 2: Seoul (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blufeld - Allusive Alive (Original Mix) [6:00]
+02. Gabriel Carminatti & Abel Mezzomo - Ignition (Original Mix) [4:19]
+03. Vladislav Maximov & 3-YA - Heartbeat (Original Mix) [3:52]
+04. DatabassЖанр: Trance, Progressive, ElectronicПродолжительность: 03:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BECCF098231711DC2E5653386E7556FF42FE0884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438415   (1041107) от 08.01.2021
 
 VA - A State of Trance: Year Mix (Mixed by Armin van Buuren) (2020) [MP3|320 Kbps] <Trance, Progressive Trance, Uplifting Trance>
@@ -685,64 +743,6 @@ VA - A State Of Trance - Celebration Weekend (2023) [MP3|320 Kbps] <Trance, Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:789D05DCCA83D7CC183ABE1B978F9CF92398D95A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614821   (1038366) от 23.02.2023
-
-VA - Black Hole Trance Music (02-23) (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somna - Hold You [02:48]
-02. LTN - Lone Wolf [02:56]
-03. Ram - Where I Want To Be [03:15]
-04. Markus Schulz - Prestwick [03:24](   Читать дальше...   )Жанр: TranceПродолжительность: 01:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:130DD79798D0F6C1C8D648E10754D71F26F2E93D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440872   (1038282) от 19.01.2021
-
-VA - Elliptical Sun Recordings - (Mixed and Compiled by Leo Lauretti) (2020) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Chris Giuliano - Dream You (Nick Hayes Extended Mix)
-02.Leo Lauretti & Taygeto ft. Giovanna Bianchi - Find My Own (Mind Of One Extended Mix)
-03.East & Atlas - Samoa (Apollo Nash Extended Mix)
-04.Elypsis - Adira (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F55F8B65DB3A05BA5111F736ECF707ECD16F2DE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

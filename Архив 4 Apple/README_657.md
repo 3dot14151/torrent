@@ -1,3 +1,30 @@
+###  Публикация: 1679548   (138092) от 25.11.2023
+
+TablePlus 5.6.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управление базой данных стало проще
+Современный, родной и удобный графический интерфейс для реляционных баз данных: MySQL, PostgreSQL, SQLite и др.Тип издания: macOS SoftwareРелиз состоялся: 10.11.2023Разработчик: © 2023 TablePlus Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E8213E29C396DAA4E6CCE828BE9CE4ECFC466F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195949   (137935) от 31.12.2017
 
 DxO FilmPack 5 Elite 5.5.15 [En]
@@ -658,32 +685,6 @@ Lyn - легкий, быстрый и удобный просмотрщик из
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8C6CE433F48EAA6FE7D4DE572AFB9E6712E956C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679943   (134888) от 27.11.2023
-
-Easy Data Transform for Mac 1.45.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преобразование файлов Excel и CSV без программирования с помощью Easy Data Transform.Тип издания: macOS SoftwareРелиз состоялся: 26.11.2023Разработчик: © 2022 Oryx Digital LtdПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CE7304C4EF4DF6F24F1E0888928B6DB98155499
 ```
 
 https://mybot314.ru/tekegram_catalog/

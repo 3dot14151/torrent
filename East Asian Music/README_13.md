@@ -1,3 +1,31 @@
+###  Публикация: 833063   (387164) от 21.10.2014
+
+signum/ii - 3 альбома (2012-2013) [FLAC|Lossless] <Touhou, Vocal, Doujin Ongaku, J-Pop, Electronic>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387164.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012.05.27 (SGNM-001) INVITATION SiGN (Reitaisai 9)
+2012.12.30 (SGNM-003) effulgent Sign (C83)
+2014.05.26 (SGNM-004) Brighter Oath (Reitaisai 10)Жанр: Touhou, Vocal, Doujin Ongaku, J-Pop, ElectronicПродолжительность: 00:02:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2AA9373E128A56957977DC65EA6C28A32F5F79A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 833389   (384705) от 22.10.2014
 
 Draw the Emotional - 7 альбомов (2010-2012) Touhou Vocal, Vocaloid /Doujin/ [FLAC|Lossless] <Metalcore>
@@ -769,35 +797,6 @@ Seikima-II - Bloodiest (2022) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F1A321848CDD2699B31A486DDFFB75E2488C4D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179667   (346467) от 01.11.2017
-
-Masayoshi Takanaka - The Rainbow Goblins (1981) 2013, Universal [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue [03:16]
-02. Once Upon a Song [05:11]
-03. Seven Goblins [03:13]
-04. The Sunset Valley [04:24](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:08:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF70A6911249D874FCA8DA52F9A936DADA0C15C
 ```
 
 https://mybot314.ru/tekegram_catalog/

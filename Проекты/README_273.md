@@ -1,3 +1,57 @@
+###  Публикация: 953516   (348677) от 04.11.2015
+
+Проекты - VideoHive - Galactic Tour II [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания интро для видео на космическую тематику.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16AD484E9D40BD0585F3EC7BB1E0E6348A26A6FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953438   (348672) от 04.11.2015
+
+Проекты - VideoHive - Minimal Glass Logo Reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для эффектного представления вашего логотипа.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7C7EB098F11D2017E920C710135746B1B22CCE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953430   (348671) от 04.11.2015
 
 Проекты - VideoHive - Fire Logo Intro [AEP]
@@ -629,60 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44D0C40FA58E72AAB136118AC0CF16EB382E25C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953802   (346227) от 05.11.2015
-
-Проекты - VideoHive - Album memories Old Film Look - Full HD [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для семейного (домашнего) фото-видео слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88E891AD5F2B0E0CE6CA8B2DBF1841FB3D7FDCF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953825   (346225) от 05.11.2015
-
-Проекты - VideoHive - Beautiful Logo Intros - 10278470 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для эффектного представления вашего логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AB297487356101FE78A6192EA788D9F52AFED60
 ```
 
 https://mybot314.ru/tekegram_catalog/

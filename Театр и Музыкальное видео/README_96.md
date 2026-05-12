@@ -1,3 +1,107 @@
+###  Публикация: 577454   (358335) от 19.11.2012
+
+Kelly Clarkson - Catch My Breath (2012) [H.264/1080p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:946C98579EA9B841903BA25270836D64F7B0C2FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577919   (358229) от 19.11.2012
+
+Nelly Furtado - Spirit Indestructible (2012) [H.264/1080p]  WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79AF792345187D7656F1B6C9E2D7B8FE8C2B16B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577666   (358221) от 19.11.2012
+
+Alloise - Love me or leave me (2012) [H.264/1080p]  HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:181CCEE2223589BC5E54990E2820F343EABCBE44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577519   (358213) от 19.11.2012
+
+Robbie Williams - Candy (2012) [1080p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7450B2FCCB47F86EEB5713D95247FAC404BD0289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577924   (358211) от 19.11.2012
 
 Pitbull - Get It Started ft. Shakira (2012) [H.264/1080p]  WEB-DLRip
@@ -589,128 +693,6 @@ Evanescence - Synthesis Live (2018) DVD5 [hand made]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACE99537EC82453852A24D13B66391C20BF7B63A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256346   (356161) от 21.10.2018
-
-Супердискотека 90-х от Радио Рекорд в Санкт-Петербурге (20.10.2018) WEB-DL [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этой осенью Радио Рекорд раскрутил Петербургский СКК на все 360 градусов. Да, по многочисленным заявкам на наш пейджер снова поставили сцену в центре арены. Ведь классным пацанам и девчонкам нужно больше места для энергичных танцев и отличный вид на любимых артистов с любой точки трибун!
-Самое главное остается неизменным: атмосфера отвязных, музыкальных и таких наших (   Читать дальше...   )Intro
-ID
-Дискотека Авария - Хиа-хоп хаус / Пей пиво / Влечение / Новогодняя / Свет далеких планет
-Света - Что мне делать / Твои глаза / Хватит довольно / Я тебя люблю(   Читать дальше...   )Производство: РоссияЖанр: Музыка, ШоуПродолжительность: 03:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C903CDEC3EEE6843AAA009D4E159AE81CDFB07C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 831765   (356087) от 03.11.2014
-
-The Beatles: Концерт на стадионе Шей / Shea stadium concert (1965) DVDRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт The Beatles на стадионе Shea (New York) 15.08.1965
-В данном релизе представлена вторая часть концерта, в которой выступала группа "Битлз".01. Twist & Shout
-02. I Feel Fine
-03. Dizzy Miss Lizzie
-04. Ticket To Ride(   Читать дальше...   )Жанр: КонцертПродолжительность: 00:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4EE25CD1FD7B2BEDBF47441633EBE3F756ED0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177705   (355946) от 28.10.2017
-
-Masami Okui - GIGS 2007 Masami Life (2009) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись концерта Masami Okui - Live tour 2007 Masami Life, прошедшего в Shibuya O-East 20 октября 2007. Сам DVD был выпущен 25 марта 2009.
-
-Источник: лицензионный DVDIt's my life
-Limited War
-紫音-sion-
-GAIA2012(   Читать дальше...   )Производство: Япония, evolution/GodSpeed, dwango AG EntertainmentЖанр: J-Pop, J-RockСубтитры: отсутствуютПродолжительность: 01:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9A4E75CF6B82120BE1382FD7A838A80D850490C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176551   (355942) от 28.10.2017
-
-Masami Okui - GIGS 2006 GodSpeed (2006) 2xDVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись концерта Masami Okui - Spring tour 2006 God Speed, прошедшего в Shibuya O-East 13 марта 2016.
-
-Источник: perfect darkDISC-1
-
-God Speed
-SUBLIMINAL(   Читать дальше...   )Производство: Япония, evolutionЖанр: J-Pop, J-RockСубтитры: отсутствуютПродолжительность: 00:50:29 + 00:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C644555862398FC4618AA4A69EC2C4124C1F8D1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,22 @@
-###  Публикация: 1850577   (1054392) от 28.01.2026
+###  Публикация: 1851180   (1055082) от 01.02.2026
 
-Ужас Тролленберга / Ползучий глаз / The Trollenberg Terror / The Crawling Eye (1958) BDRip [H.264] [VO]
+Peter von Oven | Learning VMware Workstation for Windows. Implementing and Managing VMware’s Desktop Hypervisor Solution. Volume 1 and 2 [2 книги] (2023-2024) [PDF, EPUB] [EN]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055082.jpg" />
 </div>
 
 
 ###  Подробнее
 
-По пути в Женеву обладающая телепатическими способностями девушка Анна решает, что ей непременно нужно сойти с поезда в городке Тролленберг. В городке её попутчик доктор Алан Брукс понимает, что тут происходит что-то зловещее: участились случаи гибели и исчезновений альпинистов, а горная обсерватория фиксирует подозрительное радиоактивное облако...Производство: Великобритания, Tempean Films Ltd.Жанр: фантастика, ужасыРежиссер: Квентин ЛоуренсАктеры: Форрест Такер, Лоуренс Пэйн, Дженнифер Джейн, Джанет Манро, Уоррен Митчелл, Фредерик Шиллер, Эндрю Фолдс, Стюарт Сондерс, Колин Дуглас, Дерек СидниПеревод: любительский одноголосый (SATKUR)Язык озвучки: русский, английскийСубтитры: русские (VampirO), английскиеПродолжительность: 01:23:49
+Master VMware Workstation to create and run virtual machines, containers, and Kubernetes clusters simultaneously on physical devices without having to reformat or dual boot the underlying device. This book provides a practical, step-by-step guide to creating and managing virtual machines using VMware Workstation, a software solution that provides a type-2 hypervisor, (   Читать дальше...   )Жанр: Cloud Computing, Software Development, Operating SystemsЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E80AC51348B23059ADA7802D1E79CDE5B363D44F
+magnet:?xt=urn:btih:19B7731223C966BC473A4E3ED66FDEA3394BAA2B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,27 +24,215 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850585   (1054391) от 11.02.2026
+###  Публикация: 1851183   (1055081) от 01.02.2026
 
-Medalist (2026) | Медалистка [ТВ-2] [2026, TV, 1 из 9] WEBRip 720р raw
+М.В. Новосадова | Справочник IТ-терминов (2023) [PDF]
 
->>Аниме с субтитрами
->>Онгоинги
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055081.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Турнир Chubu Block начался! В категории новичков девушек из престижных клубов, посвятивших себя фигурному катанию с детства, ждет ожесточенная конкуренция. Инори, которая только в прошлом месяце перешла в категорию новичков, и ее тренер Цукаса бросают вызов элите, стремясь к заветному Всеяпонскому чемпионату.
+Представлены основные IТ-термины в области разработки, тестирования, системного администрирования, облачных вычислений.
+Для начинающих IТ-рекрутеров и всех, кто интересуется информационными технологиями.Жанр: Компьютерная литератураИздательство: Инфра-ИнженерияФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E058649F9B5EB077582FE6C4CC9F39223E3227EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851184   (1055080) от 01.02.2026
+
+Натан Козыра, Мэтт Батчер, Мэтт Фарина | Go на практике. 2-е изд. (2026) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итак, вы освоили азы Go, что дальше? Чтобы создавать надежные и готовые к использованию Go-приложения, вам нужно научиться реализовывать конкурентность, налаживать сетевые взаимодействия, получать доступ к файлам, использовать такие нативные протоколы передачи данных, как gRPC и TCP/REST, а также разбираться во множестве практических нюансов. В этой книге приводятся (   Читать дальше...   )Жанр: Компьютерная литература, Веб-программирование,  Язык GoИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2C8F11B469259537F5B92852DF97ED35456830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851187   (1055079) от 01.02.2026
+
+Dan Gookin | Tiny C Projects (2023) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learn the big skills of C programming by creating bite-size projects! Work your way through these 15 fun and interesting tiny challenges to master essential C techniques you’ll use in full-size applications.
+In Tiny C Projects you will learn how to:
+Create libraries of functions for handy use and re-use
+Process input through an I/O filter to generate customized output(   Читать дальше...   )Жанр: C Programming Language, Microsoft Programming, Software DevelopmentЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:624623BEC6988762DFF2480B92D38DD91084BC69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851188   (1055078) от 01.02.2026
+
+Ш. Бхуян, Т. Исаченко | Генеративный ИИ. С обучением больших языковых моделей (LLM) для джунов (2025) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это практическое руководство по созданию приложений на основе генеративного искусственного интеллекта и больших языковых моделей (LLM). Особое внимание уделяется прикладным аспектам: промпт-инжинирингу, работе с локальными LLM, тонкой настройке моделей на частных данных и созданию автономных AI-агентов. Приводятся примеры реальных решений, таких как интеллектуальная (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: Бомбора, ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:055D869BFF82A70DE0818A0A04714372B54DC593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851189   (1055077) от 01.02.2026
+
+Jens Gustedt | Modern C. Covers the C23 standard. 3rd Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Discover the full power of modern C programming, with an inside look at the new C23 standard.
+For programs that need to be small, fast, and reliable, C is the gold standard. Whether you’re writing embedded code, low-level system routines, or high-performance applications, C is up to the challenge. This unique book by Jens Gustedt, a member of the ISO C standards (   Читать дальше...   )Жанр: C Programming Language, Software Design & Engineering, Software DevelopmentЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEDE2518C6550E6D63613E7236821CA766229DBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851191   (1055076) от 01.02.2026
+
+Зандер Брамбо | Программирование в Roblox. Сделать игру – проще простого. Создание игр с помощью Roblox Studio и языка программирования Lua от «А» до «Я» (2022) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055076.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге описывается работа на развлекательной платформе Roblox – от программирования в Roblox Lua до создания игр в жанре обби и «Королевская битва». Подробно рассмотрены возможности Roblox Studio, приёмы изменения настроек игры, сценарии программирования. Читатель сможет выполнить практические упражнения, используя примеры кода, и узнает, как достичь максимальной (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F7861015407A0779607B8891DE2559000A3351F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851195   (1055075) от 01.02.2026
+
+Brian Beuken | The Fundamentals of C/C++ Game Programming. 2nd Edition (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055075.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book gives novice coders an understanding of the methods and techniques used in professional games development. Projects are designed to help develop and strengthen problem solving and basic C/C++ skills. This book also helps develop familiarity with Microsoft Visual Studio’s ability to target and use fixed/restricted hardware, which are key skills in console (   Читать дальше...   )Жанр: Rendering & Ray Tracing, Game Programming, Graphics & Multimedia ProgrammingЯзык: АнглийскийИздательство: CRC PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A41A1250071F3A466E3D131B9AFA663217087B24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851203   (1055074) от 01.02.2026
+
+РедСофт, Николай Краев | Основы администрирования RedOS (2025) PCRec [RU]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс основ администрирования RedOS, подойдет эникеям и начинающим сисадминам.
 
-Любимая семья Каго также присутствует на трибунах, наблюдая (   Читать дальше...   )Производство: ENGIЖанр: спортРежиссер: Yamamoto YasutakaПеревод: Архив Субтитров (Donate); (остальное - официалы)Язык озвучки: ЯпонскийСубтитры: Русские (мультисаб)Продолжительность: 9 эп. по 25 мин.
+1. Введение
+2. Установка RedOS(   Читать дальше...   )Производство: РедСофтЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 16:08:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:173CABC820F1D50B4426FA89A60FE5FC7F11308E
+magnet:?xt=urn:btih:BB6E00E21224BEABED9485527502F667E8331C26
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,25 +240,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850589   (1054390) от 28.01.2026
+###  Публикация: 1851202   (1055073) от 01.02.2026
 
-Заклятие 2 / The Conjuring 2 (2016) BDRip [H.265/1080p] [10-bit]
+Annegret Junker | Mastering Domain-Driven Design. Collaborative modeling with domain storytelling, event storming, and context mapping (English Edition) (2025) [PDF] [EN]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055073.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый случай, с которым сталкиваются исследователи паранормальных явлений Эд и Лоррейн Уоррены. На этот раз вызов приходит из северного пригорода Лондона, где семья из четырех детей и матери-одиночки подвергается нападениям потусторонних сил.Производство: Канада, США, Великобритания / Atomic Monster, Evergreen Media, New Line Cinema, RatPac-Dune Entertainment, Safran Company, TheЖанр: ужасы, детективРежиссер: Джеймс ВанАктеры: Патрик Уилсон, Вера Фармига, Мэдисон Вульф, Фрэнсис О’Коннор, Лорен Эспозито, Бенжамин Хэй, Патрик МакОли, Саймон Макберни, Мария Дойл Кеннеди, Саймон ДилейниПеревод: дублированный официальный («КупиГолос»)Язык озвучки: русский, английскийСубтитры: русские (full, forced), английские (full, SDH)Продолжительность: 02:13:52
+Mastering Domain-Driven Design provides a comprehensive guide to understanding and implementing DDD, an approach to software development that helps you tackle complex projects by aligning your code with the core business concepts.
+
+The book explains the process for designing and modernizing software applications, applying Domain-Driven Design methods to all design (   Читать дальше...   )Жанр: Computer Systems Analysis & Design, Software Design, Testing & Engineering, Internet & TelecommunicationsЯзык: АнглийскийИздательство: BPB PublicationsФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5694E5B9E249C8B562C0343FB209AE1A9277FF3D
+magnet:?xt=urn:btih:4A7ACB256B6A2BEB9BD07ADECA5ECA34E2BAA43B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -78,26 +268,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850573   (1054389) от 28.01.2026
+###  Публикация: 1851204   (1055072) от 01.02.2026
 
-Звуковые библиотеки - Dopamine Frame - SFX Origins [WAV]
+Jerome Gotangco, Luca Berton | Red Hat Enterprise Linux 9 for SysAdmins. A technical guide for building secure production systems using RHEL 9 administration (English Edition) (2025) [PDF] [EN]
 
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055072.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Придайте своим видеороликам кинематографическую выразительность с помощью пакета SFX Origin Pack, включающего более 250 высококачественных звуковых эффектов, разработанных для того, чтобы поднять ваше повествование на новый уровень. Мгновенно добавьте глубину, эмоции и профессиональный звуковой дизайн в каждый проект.
-Идеально подходит для кинематографистов, монтажеров (   Читать дальше...   )Формат: WAV
+Red Hat Enterprise Linux (RHEL) is the de facto standard for Linux in the enterprise and the latest version (RHEL 9) offers the best of open-source software to date with the stability and security provided by the biggest name in open-source, Red Hat.
+
+The book begins with an introduction to RHEL 9's features, architecture, and its role in the open-source ecosystem, (   Читать дальше...   )Жанр: Linux Programming, Linux & UNIX Administration, Linux Networking & System AdministrationЯзык: АнглийскийИздательство: BPB PublicationsФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:495A62B14A034A12ACB5D11829BAC9DF172CCB58
+magnet:?xt=urn:btih:557995A1F61EA5177D892B97FCAA57942658EA49
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,25 +296,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850588   (1054388) от 28.01.2026
+###  Публикация: 1851205   (1055071) от 01.02.2026
 
-Проекты - VideoHive - Smart Text Animator Toolkit - 61538940 [AEP]
+Robin Nixon | Learning PHP, MySQL & JavaScript. A Step-by-Step Guide to Creating Dynamic Websites. 7th Edition (2025) [PDF, EPUB] [EN]
 
->>Проекты
->>Титры (проекты)
+>>Компьютерная литература
+>>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055071.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Smart Text Animator Toolkit - это мощная коллекция полностью настраиваемых пресетов текстовой анимации, разработанная для After Effects и Premiere Pro. Благодаря интеллектуальным выражениям и гибким элементам управления, каждая анимация динамически адаптируется, обеспечивая каждый раз свежие и уникальные результаты.Формат: AEP
+Build interactive, data-driven websites with the potent combination of open source technologies and web standards, even if you have only basic HTML knowledge. With the latest edition of this popular hands-on guide, you'll tackle dynamic web programming using the most recent versions of today's core technologies: PHP, MySQL, JavaScript, CSS, HTML5, jQuery, Node.js, (   Читать дальше...   )Жанр: PHP Programming, MySQL Guides, Introductory & Beginning ProgrammingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F215B7136DEEAFC7572E57EF744FEBF8C5336C3
+magnet:?xt=urn:btih:ED285EE72CAB1A7B32194BD359F50EAAF4145B03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,26 +322,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850592   (1054387) от 28.01.2026
+###  Публикация: 1851206   (1055070) от 01.02.2026
 
-Авиатор / The Aviator (1985) HDTVRip [DVO]
+Joos Korstanje | Advanced Forecasting with Python. Mastering Modern Forecasting Techniques with Machine Learning and Cloud Tools. Second Edition (2025) [PDF, EPUB] [EN]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Компьютерная литература
+>>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055070.jpg" />
 </div>
 
 
 ###  Подробнее
 
-По роману Эрнеста Ганна.
-В 1920-х годах пилот почтовой службы и дочь богача совершают аварийную посадку на горе полной голодных волков...Производство: США / United Artists, Mace Neufeld ProductionsЖанр: драма, приключения, экранизацияРежиссер: Джордж МиллерАктеры: Кристофер Рив, Розанна Аркетт, Джек Уорден, Сэм Уонамейкер, Скотт Уилсон, Тайн Дейли, Марша Стрэссмен, Уилл Хэр, Роберт Пирс, Гленн НеуфелдПеревод: Двуголосый профессиональный (НТВ+)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:32:37
+Advanced Forecasting with Python, Second Edition, is a comprehensive and practical guide to mastering modern forecasting techniques using Python. Designed for data scientists, analysts, and machine learning practitioners, this updated edition bridges the gap between classical forecasting models and cutting-edge, AI-powered techniques that are reshaping the field.Жанр: Artificial Intelligence, Statistics, Computer Programming LanguagesЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:901AA4701786EB42452DC8B70FAA7D90BED5F14D
+magnet:?xt=urn:btih:AD96263C0513578142DB7B6EEB58E66A64F4EF8E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -158,25 +348,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850413   (1054386) от 27.01.2026
+###  Публикация: 1851207   (1055069) от 01.02.2026
 
-Сайлент Хилл 2 / Silent Hill: Revelation (2012) BDRip [AV1/1080p-LQ] [Open Matte] [handmade AI]
+Marco Peixeiro | Time Series Forecasting Using Foundation Models (2026) [PDF] [EN]
 
->>Остальное
->>hand made * video
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055069.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хизер терзается ночными кошмарами с одиннадцатилетнего возраста и вынуждена со своим отцом постоянно менять место жительства, скрываясь от таинственных сил. Накануне своего восемнадцатого дня рождения Хизер, вернувшись домой, обнаруживает, что её отец исчез. Единственное, что она нашла дома — нарисованный на стене оккультный символ с надписью «отправляйся в Сайлент (   Читать дальше...   )Производство: Канада, Франция, Япония / Anibrain Digital Technologies, KonamiЖанр: ужасы, триллер, детективРежиссер: Майкл Дж. БассеттАктеры: Аделаида Клеменс, Кит Харингтон, Дебора Кара Ангер, Мартин Донован, Малкольм МакДауэлл, Кэрри-Энн Мосс, Шон Бин, Рада Митчелл, Роберто Кампанелла, Эрин ПиттПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:34:30
+Make accurate time series predictions with powerful pretrained foundation models!
+
+You don’t need to spend weeks—or even months—coding and training your own models for time series forecasting. Time Series Forecasting Using Foundation Models shows you how to make accurate predictions using flexible pretrained models.
+(   Читать дальше...   )Жанр: Data Processing, Computer Programming Languages, Python ProgrammingЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:992001329FC24D469909BFD909BC3682C9F0253B
+magnet:?xt=urn:btih:988E3A6B1D1A71788F730DEEE2DA52A31204C667
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -184,28 +377,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850386   (1054385) от 27.01.2026
+###  Публикация: 1851209   (1055068) от 01.02.2026
 
-Ravens and Roses - Super (2025) [MP3|320 Kbps] <synthpop, post-punk>
+Joseph Schmuller | Statistical Analysis with Python For Dummies. 1st Edition (2026) [PDF, EPUB] [EN]
 
->>Electronic
->>Synthpop, New Wave
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055068.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The New Serfs [00:04:00]
-02. The Human Battery (Live) [00:03:07]
-03. Silicon Masters [00:03:27]
-04. Voluntary Prisoners [00:05:10](   Читать дальше...   )Жанр: synthpop, post-punkПродолжительность: 00:47:23
+Wrangle stats as you learn how to graph, analyze, and interpret data with Python
+
+Statistical Analysis with Python For Dummies introduces you to the tool of choice for digging deep into data to inform business decisions. Even if you're new to coding, this book unlocks the magic of Python and shows you how to apply it to statistical analysis tasks. You'll learn to (   Читать дальше...   )Жанр: Mathematical & Statistical Software, Statistics, Python ProgrammingЯзык: АнглийскийИздательство: WileyФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A3706D95489A377089A8331558DC976CC11C2D8
+magnet:?xt=urn:btih:42E34C3883E5017C8F32EC4A52712BC69ED5612E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -213,25 +405,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850414   (1054384) от 27.01.2026
+###  Публикация: 1851212   (1055067) от 01.02.2026
 
-Наталья Александрова | Артефакт & Детектив. Зеркало Архимеда (2025) [MP3, Елизавета Корнилова]
+Nicole Koenigstein | Transformers in Action (2026) [PDF, EPUB] [EN]
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055067.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лена едет в Петербург, чтобы получить странное наследство от человека, имени которого она никогда не слышала. Однако обычное путешествие превращается в настоящий кошмар. Поезд, остановленный среди ночи, двое неизвестных, похищение и - чудесное спасение, которое оборачивается новым ужасом. Постепенно Лена понимает: случайности здесь нет. Она оказалась втянута в охоту (   Читать дальше...   )Жанр: ДетективИздательство: ЭксмоПродолжительность: 08:37:48
+Understand the architecture that underpins today’s most powerful AI models.
+
+Transformers are the superpower behind large language models (LLMs) like ChatGPT, Gemini, and Claude. Transformers in Action gives you the insights, practical techniques, and extensive code samples you need to adapt pretrained transformer models to new and exciting tasks.
+(   Читать дальше...   )Жанр: Data Processing, Natural Language Processing, Computer ScienceЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8387819893D56A6369A256B1BF76D62C3D001A9
+magnet:?xt=urn:btih:B6DFFA9E47B05B701FCA5B79E35C57EF62707100
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -239,25 +434,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850406   (1054383) от 27.01.2026
+###  Публикация: 1851214   (1055066) от 01.02.2026
 
-Нормальная семья / Botongui gajok / A Normal Family (2023) BDRip [H.264/1080p]
+Дэвид Кларк, Поль Кларк | SDR на практике. Основы разработки программно-определяемого радио (2025) [PDF]
 
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055066.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Беспринципный адвокат Чэ-ван защищает самых жестоких убийц без малейших угрызений совести, в то время как его брат-врач Чэ-гю считает себя порядочным и добрым человеком. Однажды общественный резонанс получает видеозапись, на которой двое подростков до полусмерти избивают бездомного, а Чэ-ван узнаёт в нападавших свою дочь и племянника. Потерпевший находится без сознания, (   Читать дальше...   )Производство: Южная Корея / Hive Media, HIGROUNDЖанр: триллер, драма, криминалРежиссер: Хо Джин-хоАктеры: Соль Гён-гу, Чан Дон-гон, Ким Хи-э, Клаудия Ким, Хон Е-джи, Ким Джон-чхоль, Чхве Ри, Ю Су-бин, Пён Джун-хи, Ан Е-римПеревод: Дублированный (Кипарис)Язык озвучки: Русский, КорейскийСубтитры: Русские, Корейские (Forced, SDH), АнглийскиеПродолжительность: 01:49:05
+Эта книга поможет читателям освоить основы разработки и применения программно-определяемой радиосвязи (software-defined radio, SDR). Благодаря
+сочетанию обучающих материалов с примерами продвинутых приложений вы получите надежную основу для углубленного изучения современных беспроводных систем.
+Издание будет полезно инженерам, разрабатывающим прототипы радиоустройств, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Books.kzФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5001000889B97AEDAA022B39DCDCDEEE5064E42
+magnet:?xt=urn:btih:6F21E72C33C6A859075E9566DFD2134C2E69164D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -265,25 +462,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850416   (1054382) от 27.01.2026
+###  Публикация: 1851215   (1055065) от 01.02.2026
 
-Анаконда / Anaconda (2025) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
+Н. Крокер | Разработка с ИИ. Как эффективно использовать ChatGPT и Copilot (2025) [PDF]
 
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055065.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Группа друзей отправляется в джунгли, чтобы снять ремейк «Анаконды», их любимого фильма юности. Однако вскоре после начала съёмок змея, главная звезда фильма, погибает, и друзьям приходится продвигаться в глубь джунглей, чтобы найти ей замену.Производство: США / Columbia Pictures, Fully Formed Entertainment, TSG EntertainmentЖанр: боевик, комедия, приключенияРежиссер: Том ГормикэнАктеры: Джек Блэк, Пол Радд, Стив Зан, Тандиве Ньютон, Даниэла Мелшиор, Селтон Мелу, Айс Кьюб, Айони Скай, Руй Рикардо Диас, Джон Биллингсли, Себастьян СероПеревод: Дублированный (MovieDalen)Субтитры: Русские (Forced, Full), Английские (Forced, Full, SDH) и другиеПродолжительность: 01:38:50
+Использование ИИ-инструментов вроде Copilot и ChatGPT похоже на наем суперумного и быстрого джуниор-разработчика, который готов взяться за любую задачу — от исследования до рефакторинга. Работа с ИИ помогает писать код быстрее, улучшать качество приложений и даже реализовывать идеи, которые могли быть недоступными вашей команде. Эта книга покажет, как использовать (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:089DD7A54AF70F72DA5C47BCD1C2E5F64B8E3548
+magnet:?xt=urn:btih:42AD1146DD57787EFFDD407D55D24CE80AC490A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -291,28 +488,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850418   (1054381) от 27.01.2026
+###  Публикация: 1851216   (1055064) от 01.02.2026
 
-VA - The Orient Collective: Golden Horizon (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+Майк МакГрат | Программирование для начинающих. Основные принципы. 2-е издание (2025) [PDF]
 
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055064.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Erhan Yılmaz - The Night Long Way Down (4:58)
-02. Rosa - Dunkelheit (5:22)
-03. Marga Sol - Memoria (4:45)
-04. Michael Simon - Umami (6:45)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 00:59:14
+Открывать новое бывает непросто, но с «Программированием для начинающих» вы легко погрузитесь в мир ИТ даже при отсутствии опыта. Следуйте понятным инструкциям, выполняйте интересные практические задания. Внутри есть вся необходимая информация, рассмотрены ключевые концепции разработки и подобраны наглядные цветные примеры. Вы научитесь: писать программный код на (   Читать дальше...   )Жанр: Компьютерная литература, PythonИздательство: Эксмо, БомбораФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91D99C79CC17AA765E8CE25882856ED8B6EF9EFC
+magnet:?xt=urn:btih:D5346FE337BA186B500C57F844A4B0347990C558
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -320,25 +514,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850419   (1054380) от 27.01.2026
+###  Публикация: 1851217   (1055063) от 01.02.2026
 
-Анаконда / Anaconda (2025) WEB-DLRip [H.264/720p]
+Анна Цыбина | Нейросеть. Помощник в изучении английского языка. И не только (2025) [PDF]
 
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>Научная и техническая литература
+>>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055063.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Группа друзей отправляется в джунгли, чтобы снять ремейк «Анаконды», их любимого фильма юности. Однако вскоре после начала съёмок змея, главная звезда фильма, погибает, и друзьям приходится продвигаться в глубь джунглей, чтобы найти ей замену.Производство: США / Columbia Pictures Corporation, Fully Formed Entertainment, TSG EntertainmentЖанр: боевик, комедия, приключенияРежиссер: Том ГормикэнАктеры: Джек Блэк, Пол Радд, Стив Зан, Тандиве Ньютон, Даниэла Мелшиор, Селтон Мелу, Айс Кьюб, Айони Скай, Руй Рикардо Диас, Джон БиллингслиПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английские (forced, full, SDH)Продолжительность: 01:38:50
+Погрузимся в практику, переосмыслив развитие языковых навыков — от грамматики и чтения до создания своих учебных материалов — всё через ИИ.
+Основные темы книги:
+5 стратегий промптинга для эффективного взаимодействия с ИИ.
+Пошаговые методики развития всех языковых навыков: от аудирования до письма.(   Читать дальше...   )Жанр: Английский язык, Искусственный интеллектИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB9D4664C15F2ADA478062ACCFB75AD37F639388
+magnet:?xt=urn:btih:917E85D18C79C65BFE65FDB784F388D17EB3884B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,25 +543,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850423   (1054379) от 27.01.2026
+###  Публикация: 1851218   (1055062) от 01.02.2026
 
-Городской охотник / Sing si lip yan / City Hunter (1993) BDRip [AV1/1080p-LQ] [MVO] [handmade AI]
+А.Н. Сыщикова | Японский язык для начинающих (2025) [PDF]
 
->>Остальное
->>hand made * video
+>>Научная и техническая литература
+>>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055062.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Городской охотник - кинореализация японской манги о частном сыщике, принимающим заказы исключительно от клиентов-женщин. В паре с ним работает Кэрри, младшая сестра его погибшего прежнего напарника. На этот раз Городской охотник (Джеки Чан), взявшись за дело о побеге из дома дочки японского миллионера, попадает на круизный лайнер, который захватывают террористы. (   Читать дальше...   )Производство: Гонконг, Япония / Golden Harvest Company Ltd, Paragon Films Ltd.Жанр: боевик, комедия, криминалРежиссер: Вон ЦзинАктеры: Джеки Чан, Джои Ван, Чингми Яу, Ричард Нортон, Майкл Вонг, Гэри ДэниелсПеревод: Профессиональный многоголосый (Первый канал, ИНИС)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 01:40:04
+Александра Сыщикова - дипломированный специалист по японскому языку и литературе, автор учебных и справочных пособий.
+Перед вами практическое пособие для тех, кто начинает изучение японского языка с нуля. Здесь представлена базовая грамматика, а также основные сведения о японской письменности, чтении и произношении.
+Пособие подходит для самостоятельных занятий и (   Читать дальше...   )Жанр: Языки, обучениеИздательство: АСТФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDD5EB23CF1539629609E923D3F275FDB87F1CC0
+magnet:?xt=urn:btih:3C002261A1B28D9EDB546F987756211CE198D38F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -372,25 +571,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850424   (1054378) от 27.01.2026
+###  Публикация: 1851219   (1055061) от 01.02.2026
 
-Проекты - VideoHive - Cinematic Fast Light Leaks Logo Revael - 61588078 [AEP]
+Н. Крнета, Н. Румак | Японский язык. Полная грамматика в схемах и таблицах (2025) [PDF]
 
->>Проекты
->>Логотипы (проекты)
+>>Научная и техническая литература
+>>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055061.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Cinematic Fast Light Leaks Logo Reveal — это динамичная и стильная анимация логотипа, разработанная для создания сильного, современного и кинематографичного представления бренда. Благодаря быстрым световым бликам, плавным вспышкам свечения, бликам от линз и энергичным переходам, эта анимация мгновенно производит визуальное впечатление, оставаясь при этом чистой и (   Читать дальше...   )Формат: AEP
+Наталия Крнета - преподаватель японского языка в ИСАА МГУ со стажем работы более 20 лет, кандидат филологических наук, автор многочисленных исследований в области языкознания, справочных и учебных пособий. Наталья Григорьевна Румак - преподаватель японского языка в ИСАА МГУ, кандидат филологических наук, переводчик художественной литературы и автор множества учебных (   Читать дальше...   )Жанр: Языки, пособиеИздательство: АСТФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49F9C10A49290E0479896C52E289191D42AF7934
+magnet:?xt=urn:btih:607B3FA075456D8AEBFDF28C72AB82C2521A3BC1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -398,25 +597,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850426   (1054377) от 27.01.2026
+###  Публикация: 1851220   (1055060) от 01.02.2026
 
-Шрифты - Creative Market - Basik Rough Typeface+bonus - 153552 [OTF, TTF]
+Чун Ин Сун, А.В. Погадаева | Корейский язык. Полная грамматика в схемах и таблицах (2020) [PDF]
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Научная и техническая литература
+>>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055060.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шрифт Innocents  был создан под вдохновением от рисования с детьми, основанного на традиционных техниках кисти и акварели, что позволяет добиться естественного типографического эффекта.Формат: OTF, TTFПоддержка кириллицы: Отсутствует
+Данное учебное пособие разработано признанными специалистами в области корееведения в России Чун Ин Сун и Анастасией Викторовной Погадаевой и включает подробное описание самой важной грамматики корейского языка.
+В пособии представлены подробные таблицы и схемы, емко и наглядно иллюстрирующие даже самые сложные и непонятные грамматические правила корейского языка. (   Читать дальше...   )Жанр: Языки, справочникИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:665E7B878755B3BB911883D5878BE458D3DEC58B
+magnet:?xt=urn:btih:1D1CA3304D86861DD2223E75611DC374D6DBF11C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -424,25 +624,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850328   (1054376) от 27.01.2026
+###  Публикация: 1851221   (1055059) от 01.02.2026
 
-Муфаса: Король Лев / Mufasa: The Lion King (2024) BDRip [H.264/720p]
+Alan Simpson | Python Automation For Dummies (2026) [PDF] [EN]
 
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055059.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Осиротевший Муфаса знакомится с наследником королевских кровей по имени Така. Вместе они отправляются в судьбоносное опасное путешествие, которое проверит их дружбу на прочность.Производство: США, Канада / Blue Sky Films, Fairview EntertainmentЖанр: мультфильм, мюзикл, драма, приключения, семейныйРежиссер: Барри ДженкинсАктеры: Аарон Пьер, Дональд Гловер, Келвин Харрисон мл., Тиффани Бун, Кагисо Ледига, Престон Найман, Блу Айви Картер, Джон Кани, Мадс Миккельсен, Сет РогенПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, full, SDH), английские (full, SDH)Продолжительность: 01:58:06
+Streamline Your Workflow and Boost Productivity with Python Automation
+
+In today's workplaces, there's a high demand for know-how on the Python programming language, especially for writing time-saving scripts that can simplify routine work tasks. Python Automation For Dummies delivers, with simple explanations of how you can use Python to automatically wrangle data (   Читать дальше...   )Жанр: Software Design Tools, Python Programming, Software DevelopmentЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1CA8B4F1555E0021517A7C3CD393A83CE240235
+magnet:?xt=urn:btih:E7F17B156995B8FCD4F7578520A0F665F6B0EC0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -450,25 +652,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850346   (1054375) от 27.01.2026
+###  Публикация: 1851222   (1055058) от 01.02.2026
 
-Зверополис 2 / Zootopia 2 (2025) WEB-DLRip [H.264/1080p]
+Chenyang Shi | Mastering Algorithms with Python. A Practical Approach to Problem Solving and Python Implementation (2025) [PDF] [EN]
 
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055058.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кролик-полицейский Джуди и лис Ник идут по следу загадочной рептилии, чьё прибытие в Зверополис переворачивает жизнь города с ног на голову. Чтобы раскрыть дело, Джуди и Ник вынуждены работать под прикрытием в разных районах города.Производство: США / Voltage PicturesЖанр: мультфильм, комедия, детектив, приключения, семейныйРежиссер: Джаред Буш, Байрон ХовардАктеры: Джиннифер Гудвин, Джейсон Бейтман, Ке Хюи Куан, Форчун Феймстер, Энди Сэмберг, Дэвид Стрэтэйрн, Идрис Эльба, Шакира, Патрик Варбертон, Кинта БрансонПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:47:41
+Gain a solid understanding of algorithms and improve your problem-solving abilities using Python code. With practical examples and clear explanations, this book bridges the gap between dense academic texts and overly simple industry guides.
+
+Focusing on the logic behind essential algorithms such as Breadth First Search (BFS), Depth First Search (DFS), Divide-and-Conquer, (   Читать дальше...   )Жанр: Computer Algorithms, Programming Algorithms, Python ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64C965BFEB6DF01137890007F18CEA0FC5DC91EC
+magnet:?xt=urn:btih:C77948D65247D41E5EF1E9F463A48C9927E50D49
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -476,213 +680,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850347   (1054374) от 27.01.2026
+###  Публикация: 1851223   (1055057) от 01.02.2026
 
-Зверополис 2 / Zootopia 2 (2025) WEB-DLRip [H.264]
+Abi Aryan | LLMOps. Managing Large Language Models in Production (2025) [PDF, EPUB] [EN]
 
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055057.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кролик-полицейский Джуди и лис Ник идут по следу загадочной рептилии, чьё прибытие в Зверополис переворачивает жизнь города с ног на голову. Чтобы раскрыть дело, Джуди и Ник вынуждены работать под прикрытием в разных районах города.Производство: США / Voltage PicturesЖанр: мультфильм, комедия, детектив, приключения, семейныйРежиссер: Джаред Буш, Байрон ХовардАктеры: Джиннифер Гудвин, Джейсон Бейтман, Ке Хюи Куан, Форчун Феймстер, Энди Сэмберг, Дэвид Стрэтэйрн, Идрис Эльба, Шакира, Патрик Варбертон, Кинта БрансонПеревод: Дублированный (MovieDalen)Язык озвучки: РусскийСубтитры: Русские (Forced, Full), английские (SDH)Продолжительность: 01:47:41
+Here's the thing about large language models: they don't play by the old rules. Traditional MLOps completely falls apart when you're dealing with GenAI. The model hallucinates, security assumptions crumble, monitoring breaks, and agents can't operate. Suddenly you're in uncharted territory. That's exactly why LLMOps has emerged as its own discipline.
+
+LLMOps: Managing (   Читать дальше...   )Жанр: Computer Systems Analysis & Design, Artificial Intelligence Expert Systems, Natural Language ProcessingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8463B744A713FED699433CA275DCBDA2638FC431
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850421   (1054373) от 27.01.2026
-
-День рождения весны (1985) 35mm Film Scan [H.264/1080p]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весёлая сказка о том, как обитатели леса праздновали Весну.Производство: СССР / Грузия-фильмЖанр: ультфильм, детский, рисованный, короткометражныйРежиссер: Константин МацаберидзеСубтитры: отсутствуютПродолжительность: 00:10:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DB2A85C0D026148B94048412DB8FB3B1AAD87F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850430   (1054372) от 27.01.2026
-
-Inkscape 1.4.3 + Portable [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Inkscape – редактор векторной графики. Программа имеет много самых разнообразных инструментов для создания векторных изображений. Созданные изображения будут полностью совместимыми CSS, XML и SVG.
-Inkscape имеет очень удобное расположение инструментов, полностью русифицированная, с момента инсталляции.
-Редактор имеет расширенные возможности для управления цветом, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:374C380815F4BDCA06B8133EA8298BA7BD37E9D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850376   (1054371) от 27.01.2026
-
-Anachronist - Light and Shadow (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Darksynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electronic Control (3:48)
-02. Centrifuge (3:04)
-03. Light and Shadow (3:48)
-04. Select Start (3:17)(   Читать дальше...   )Жанр: Synthwave, DarksynthПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF6A639078E987D95C54B40FB4A944A01AA76483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850210   (1054370) от 27.01.2026
-
-Сорок сердец (1931) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Кинолетопись Страны Советской
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм был снят к 10-летию плана ГОЭЛРО. Сорок сердец - образное определение для сорока строящихся районных электростанций, призванных обеспечивать электроэнергией советских граждан: "Без помощника нельзя человеку".
-В картине соединены документальные и игровые кадры, а также мультипликационные вставки, выполненные одним из основателей советской мультипликации (   Читать дальше...   )Производство: СССР / МежрабпомфильмЖанр: агитпроп, документальный, история, немое киноРежиссер: Лев КулешовЯзык озвучки: немойСубтитры: русские интертитрыПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1FF3BC86111053CB2DFDC1BB3887237F4D32CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850329   (1054369) от 28.01.2026
-
-Муфаса: Король Лев / Mufasa: The Lion King (2024) BDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осиротевший Муфаса знакомится с наследником королевских кровей по имени Така. Вместе они отправляются в судьбоносное опасное путешествие, которое проверит их дружбу на прочность.Производство: США, Канада / Blue Sky Films, Fairview EntertainmentЖанр: мультфильм, мюзикл, драма, приключения, семейныйРежиссер: Барри ДженкинсАктеры: Аарон Пьер, Дональд Гловер, Келвин Харрисон мл., Тиффани Бун, Кагисо Ледига, Престон Найман, Блу Айви Картер, Джон Кани, Мадс Миккельсен, Сет РогенПеревод: Дублированный (MovieDalen)Язык озвучки: РусскийСубтитры: Русские (Forced, full, SDH), английские (full, SDH)Продолжительность: 01:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A60F4FEDEDE8AE90DE43D8F51DB26D6DEE59EA1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850374   (1054368) от 28.01.2026
-
-Сергей Лобачев | Игра с нулевой суммой (2025) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена анализу систем, в которых выгода одной стороны означает убыток другой. Автор исследует природу паразитических отношений в обществе, где одни элементы эксплуатируют другие, не создавая новой ценности. Рассмотрены различные типы субъектов и стратегии выживания в таких системах. Особое внимание уделено проблемам глобального развития и путям построения (   Читать дальше...   )Жанр: Публицистика, Философия и логикаИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6E40C46839D3F8A72A1C8A289CB4EB7DDD56769
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850372   (1054367) от 28.01.2026
-
-Эстанислао Бахрах | Эффективное мышление. Настрой свой мозг на счастье и продуктивность (2022) [PDF, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга призвана развенчать мифы о человеческом мозге, показать, сколько еще неизведанного перед нами, и научить быть более творческими. Из нее вы узнаете об одной из самых ценных способностей нашего мозга – воображать несуществующее и генерировать новые идеи. Книга развеивает все предрассудки, касающиеся функционирования мозга, и демонстрирует, как работают скрытые (   Читать дальше...   )Жанр: Саморазвитие / личностный ростПеревод: с исп. Е. КуприяновойИздательство: MИФФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE6D43E074F7ED1A11176CD130942BCDCB381051
+magnet:?xt=urn:btih:964C916C9564305D57DCE6439F2CFFF69C3A4CD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

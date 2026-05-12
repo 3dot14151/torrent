@@ -1,3 +1,84 @@
+###  Публикация: 1501294   (836559) от 09.10.2021
+
+Crematory - Left The Ground (2006) DVDRip [H.264/1080p-LQ] [Upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crematory — готик-метал группа из Германии, образованная в 1991 году. Группа стала узнаваемой в середине 1990-х, выступая в турне на разогреве таких команд как My Dying Bride, Tiamat и Atrocity. Группа начала с традиционного стиля дэт-метал, затем взяла направления индастриал и готик-метал в записях поздних альбомов.CREMATORY - Left The Ground (2006)Жанр: Industrial, Gothic MetalПродолжительность: 00:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7AA554098E0CE5C618832973A14FBBA954B5D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 655686   (819998) от 13.05.2013
+
+Wax Audio (видеография) (2004-2007) WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Careless Rebel (George Michael + Billy Idol )
+02. Lady Judas (Lady Gaga vs Judas Priest )
+03. Maiden Goes To Bollywood (Iron Maiden vs Dhoom 2)
+04. Master Of Doin' It (Metallica + Herbie Hancock )(   Читать дальше...   )Жанр: Музыка, Mixes, Hard Rock, Heavy Metal, Pop, HumorПродолжительность: 01:01:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5713BED3FA46FAC93A2EBC169ED7FEA8DC39DBC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118101   (812889) от 25.03.2017
+
+Чичерина - Рвать (2017) WEB-DLRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известная уральская рок-звезда Юлия Чичерина выпустила клип на композицию «Рвать», посвященную войне на юго-востоке Украины.Производство: РоссияЖанр: RockСубтитры: отсутствуютПродолжительность: 00:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C561DE78898BFE39E25BFA5691CC50A6FDB2727D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 883543   (812614) от 31.03.2015
 
 Yello - Final Essential Exclusive Limited Edition (2009) DVDRip [H.264]
@@ -635,90 +716,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:389220E935F42ED35E4A40DE4BA4B4F1AA837713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211731   (776783) от 09.03.2018
-
-Фабрика / Вова Вова (2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Матвиенко в совместной творческой работе с группой Фабрика придумали и выпустили необычную песню-частушку «Вова Вова», на которую сразу же сняли клип. В основе сюжета песни обычные девушки, существующие в стандартной офисной рутине, но безудержно пытающиеся покорить сердце мужчины мечты с русским, всем нам знакомым именем - Вова.Производство: РоссияЖанр: ПопПродолжительность: 00:02:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A3DF551A4AE8FA01433CB4AC16FDC95B39887A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211562   (776740) от 09.03.2018
-
-VA - Весенний марафон № 227: С 8 Марта (2017-2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весенние (07.03.2018) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Alexandra Stan - Mami (3:30)
-2. Alexandra Stan - Noi 2 (3:22)
-3. Besford ft. Manu LJ - Another World (Official Video) (3:24)
-4. Claudia Leitte ft. Pitbull - Carnaval (3:45)(   Читать дальше...   )Жанр: Pop, Dance, House, Reggaeton, Rap, Hip-HopПродолжительность: 01:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:078CB43CA744F45B213999529F6D1F73C3325112
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211814   (776704) от 09.03.2018
-
-VA - Весенний марафон № 228: (Дискотека с размахом) (2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весенние (08.03.2018) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Akcent ft. Reea - Stole My Heart (Official Video) (3:36)
-2. Amme - Vis Strain (3:32)
-3. Andreea Banica ft. Balkan - Ce vrei de la mine (Official Video) (3:29)
-4. Andrey Exx, Elis M Feeling ft. Misha - Missing You (3:37)(   Читать дальше...   )Жанр: Pop, Dance, Electronic, Latino, ReggaetonПродолжительность: 01:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C97E6637362B38214E4D687A3C06CEF77340024E
 ```
 
 https://mybot314.ru/tekegram_catalog/

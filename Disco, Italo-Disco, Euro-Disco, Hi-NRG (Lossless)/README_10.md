@@ -1,3 +1,32 @@
+###  Публикация: 1539709   (657142) от 26.03.2022
+
+VA - Turbo Disco - Лучшие Хиты Дискотек (2001) [FLAC|Lossless|tracks + .cue] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eruption - One Way Ticket
+02. A La Carte - Doctor, Doctor (Help Me Please)
+03. Bad Boys Blue - Kiss You All Over, Baby
+04. Grant Miller - Wings Of Love(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:594C4E23183E8383C140C080F71861D54FA5CAE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539645   (656116) от 27.03.2022
 
 Scotch - Disco Collection (2003) Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco>
@@ -722,35 +751,6 @@ VA - The Best of Dance 80 (2015) [FLAC|Lossless|WEB-DL|tracks] <Dance, Disco, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B53CA357469A6315183E33316D72EEE19C7A152A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553178   (627107) от 12.04.2022
-
-VA - Хиты 80-х в Новых Версиях (2012) [FLAC|Lossless] <Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Al Bano Carrisi - Felicita (New Version) [3:52]
-02. Bad Boys Blue - You're A Woman (Re-Recorded) [3:44]
-03. Ricci E Poveri - Mamma Maria (Reloaded) [5:15]
-04. Mauro - Buona Sera Ciao Ciao (New Party Version) [3:56](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:19:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E70AB327ABF236F6B066A599C2F72C79BB6D57C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1016921   (769433) от 15.05.2016
+
+Shadow Complex Remastered (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shadow Complex Remastered - это переиздание игры Shadow Complex, в основе сюжета которой лежат романы американского фантаста Орсона Скотта Карда "Империя" и "Тайная империя". В улучшенной версии добавлены новые задания, достижения и улучшенная графика.Тип издания: RepackРазработчик: ChAIR EntertainmentЖанр: Arcade (Platform), 3DЯзык озвучки: Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2F1E7F056F92C955C72B1B2F87080684FC1DB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016948   (769425) от 15.05.2016
 
 Shadow Complex Remastered (2016) [Ru/Multi] (1.0) Repack Other s
@@ -641,32 +667,6 @@ NARUTO SHIPPUDEN: Ultimate Ninja STORM Legacy (2016-2017) [Ru/En] Rip R.G. Reven
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42D526C09C588F127C21DADD5B4459167B55202F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281721   (740018) от 16.02.2019
-
-Macrotis: A Mother's Journey (2019) [Ru/Multi] (1.0.2) License CODEX
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нескончаемый ливень в мире Макротиса разлучил Маму Билби с ее детьми. Отправляйтесь в захватывающее путешествие в поисках очаровательных малышей, разлучившихся с мамой из-за страшного наводнения. Стройте свой путь под землей в 2.5 D пазл-платформере Macrotis: A Mother's Journey. Решайте сложнейшие головоломки, взаимодействуя с красивым, но не менее опасным миром, (   Читать дальше...   )Тип издания: LicenseРазработчик: Proud DinosaursЖанр: Adventure, Action, Platform, PuzzleЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DCA4EBB811C720FBEB0F006A101D416B63BB256
 ```
 
 https://mybot314.ru/tekegram_catalog/

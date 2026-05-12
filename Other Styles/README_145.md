@@ -1,3 +1,155 @@
+###  Публикация: 1193505   (262117) от 21.12.2017
+
+VA - Mosaic - the Very Best New Age Music VA - Mosaic - the Very Best New Age Music   2017,  2CD  [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patrick Kelly — Sacred Mountain (Beyond the Horizon 2)
+02. Jon Richards — The Triple Goddess (The Sacred Tree)
+03. Paul Sills — Childhood (Awake and Dreaming)
+04. Karl Maddison — Sacred Mountain (On the Road to Tibet)(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C76B7C44E9F56EA5BCB77ED0A265985383858483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194045   (261786) от 23.12.2017
+
+Jon Richards - The Sacred Tree (2012) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song of the Seasons
+02. The Triple Goddess
+03. Lady of the Forest
+04. The Sacred Tree(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0279908A35900E11DEAFA800A62447A75E7065BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504972   (260875) от 03.06.2012
+
+I.E.M. (The Incredible Expanding Mindfuck) - Untitled (Complete IEM) - 2010 [FLAC|Lossless] <Krautrock, Abstract, Psychedelic Rock, Experimental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260875.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - I.E.M. (1996): (00:38:38)
+01. The Gospel Acording to the  I.E.M. (12:58)
+02. The Last Will and Testament of Emma Peel (08:10)
+03. Fie Kesh (08:23)
+04. Deafman (09:06)2010Жанр: Krautrock, Abstract, Psychedelic Rock, ExperimentalФормат: 4 × CD, Album, Reissue, RemasteredПродолжительность: 03:18:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838559   (260727) от 23.11.2025
+
+Willie Nelson - Workin' Man (Willie Sings Merle) (2025) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Workin' Man Blues (5:17)
+ 02. Silver Wings (5:58)
+ 03. Tonight The Bottle Let Me Down (2:48)
+ 04. Today I Started Loving You Again (3:24)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA3C8BB74A800A74453DA2E5FF364DCC310C330C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504462   (260580) от 02.06.2012
+
+VA - Diablo 3 (2012) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260580.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 And The Heavens Shall Tremble
+2 The Eternal Conflict
+3 New Tristram
+4 Demon Hunter
+5 Black Soulstone
+6 Azmodan
+7 Witch Doctor
+8 Tamoe Highlands
+9 I Am Justice
+10 Barbarian(   Читать дальше...   )2012Жанр: OSTПродолжительность: 01:17:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 503800   (260148) от 31.05.2012
 
 No-Man - 18 albums (1993-2012) [FLAC/APE|Lossless] <Progressive Rock, Ambient, Art Rock, Abstract, Experimental>
@@ -681,164 +833,6 @@ Love Sessions – Love Sessions (2002) [FLAC|Lossless] <Acoustic, Ethereal, Neof
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499451   (256363) от 21.05.2012
-
-Этнографические коллективы Краснодарского края - А у нас на Кубани... (2008) [MP3|320 кб/с]<Folk Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256363.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. За Лабою огонь горит (3:26)
- 2. В 1791 году (3:09)
- 3. Зажурились черноморцы (5:21)
- 4. По над лугом шлях (2:42)
- 5. Ой мало мало мне ночку спалось (2:38)
- 6. Вы казачки казачки (2:23)
- 7. Прощай ты Уманска станица (5:04)
- 8. Не полынно ты мое полюшко (3:10)
- 9. И не пьют не едят кони вороные (3:34)
- 10. То не пыль то курит (4:35)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 01:14:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40821ECB6899EE0062B2AA2B1D669E3BF006AE3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499496   (256292) от 21.05.2012
-
-Peter Buffett - 500 Nations. A Musical Journey (1994) [MP3|320 кб/с]<New age, Native american>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256292.jpg" />
-</div>
-
-
-###  Подробнее
-
-(1:20) 01. Foreword
-(4:10) 02. 500 Nations
-(2:51) 03. Maya
-(3:00) 04. Columbus
-(6:55) 05. No Turning Back
-(2:52) 06. Another Enemy
-(2:41) 07. We Became Orphans
-(3:23) 08. De Soto's MarchЖанр: New age, Native americanПродолжительность: 01:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68273179F3FEA4000B3D3ADA6068803730A781F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498602   (255791) от 19.05.2012
-
-Юрий Щербаков - Была весна - (2008) [MP3|320 кб/с]<Folk Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Folk Казачья песняПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11EBBC4038093744405F8DA499C34916557B1AAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498635   (255778) от 19.05.2012
-
-Susheela Raman - 4 albums (2001-2007) [FLAC|Lossless] <World Music, Ethnic, Chillout>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Set Free (04:34)
-02. Yoo Doo Right (07:13)
-03. Where Did You Sleeep Last Night (03:44)
-04. Like Roling Stone (06:31)
-05. Love Lies (07:11)
-06. Oh My Love (03:27)
-07. Voodoo Chile (03:48)
-08. Heart And Soul (04:03)
-09. Persuasion (06:34)
-10. Ruler Of My Heart (03:12)2001-2007Жанр: World Music, Ethnic, ChilloutПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624627   (255378) от 09.04.2023
-
-VA - American Tribal Songs (2011) [MP3|320 Kbps] <Native American, New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manuel Vasquez - Vientos del Sur [03:04]
-02. Atahualpa - The Lonely Shepherd [04:50]
-03. Atahualpa - Pan Flute [03:12]
-04. Mato Grosso - Buffalo Trail [06:08](   Читать дальше...   )Жанр: Native American, New Age, InstrumentalПродолжительность: 01:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D274D638DC396C0554067F0809FADC43443B0CF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 314199   (1030129) от 20.02.2021
+
+VA - Midnight Sax (1996) [FLAC|Lossless|tracks + .cue] <Instrumental, Saxophone>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John, Osbourne - Blue Eyes 		(03:28)
+02. Leiber, Stoller, King - Stand by Me (02:55)
+03. Masser, Creed - The Greatest Love of All (04:43)
+04. Bahler - She's Out of My Life 	(03:26)(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE8DA498F3DB3871377FE1FE50411870A4BEDC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 252875   (1030118) от 20.02.2021
+
+Albert Assayag - Accordion Dances: Tango Waltz Paso (2009) [FLAC|Lossless|tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tango Des Fleurs	    (03:46)
+ 02.  Tango Star		    (02:25)
+ 03.  Tango Magique	    (02:26)
+ 04.  Valse Blonde	    (02:06)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:22:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D67D23DE380ACEA81ABD742580C493D4A16AD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 209363   (1030107) от 20.02.2021
+
+Royal Philharmonic Orchestra - Legends (2004) 3CD Compilation [APE|Lossless|image + .cue] <Classical, Symphonic Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Королевский филармонический оркестр (Royal Philharmonic Orchestra) — Британский симфонический оркестр с площадкой в Лондоне. Он широко гастролирует, иногда его называют «Национальным оркестром Великобритании» (англ. Britain's national orchestra).Royal Philharmonic Orchestra - Legends CD-I
+01. Angels (4:39)
+02. Babylon (4:08)
+03. With or Without You (5:14)(   Читать дальше...   )Жанр: Classical, Symphonic RockПродолжительность: 03:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A89A2DAB43FC6C3C8CB9AA511E9D742C564548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 191215   (1030105) от 20.02.2021
+
+VA - Вдохновение - Оттенки настроения 5 альбомов (2004) [APE|Lossless|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Изумительная благодать
+02. Овцы могут спокойно пастись
+03. Гимн
+04. Адажио(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 05:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCC572B437E3DF5278DA0873CF2BA3C54A2109C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 273614   (1030103) от 20.02.2021
 
 101 Strings Orchestra - 2 альбома (2002, 2009) 3CD [FLAC|Lossless|tracks + .cue] <Instrumental>
@@ -627,124 +743,6 @@ Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига спр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2CF088060F5CEFE509A9D402115C6F7C98F7268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455942   (1025411) от 20.03.2021
-
-Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига справедливости Зака Снайдера (Original Motion Picture Soundtrack) (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025411.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:18] 01. Rose Betts - Song to the Siren
-[07:57] 02. Tom Holkenborg - A Hunter Gathers
-[00:57] 03. Tom Holkenborg - Migratory
-[01:04] 04. Tom Holkenborg - Things Fall Apart(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82E6AD641A9C918892A5672A82278DC447D02FA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455944   (1025266) от 21.03.2021
-
-Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига справедливости Зака Снайдера (Original Motion Picture Soundtrack) (2021) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025266.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:18] 01. Rose Betts - Song to the Siren
-[07:57] 02. Tom Holkenborg - A Hunter Gathers
-[00:57] 03. Tom Holkenborg - Migratory
-[01:04] 04. Tom Holkenborg - Things Fall Apart(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FB23EC2836944D8F911C6F32664E09F483D5B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456905   (1024572) от 25.03.2021
-
-Blackmore's Night - Nature's Light (2021) 2xCD, Jараnese Еditiоn [FLAC|Lossless|image + .cue] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ренессанс-рок-группа BLACKMORE'S NIGHT, которую создали Ritchie Blackmore и его жена Candice Night, выпустила первый альбом за шесть лет 12 марта 2021 года. Диск под названием "Nature's Light", уже 11-й полноформатник в дискографии BLACKMORE’S NIGHT, издан лейблом earMUSIC.
-
-"История 'Nature's Light' – это история природы, которая является настоящей (   Читать дальше...   )CD - 1:
-01. Once Upon A December (3:10)
-02. Four Winds (3:03)
-03. Feather In The Wind (4:30)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:28:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47490688F2F4763C74BFA149873FD5C2BE7424BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457240   (1024563) от 25.03.2021
-
-VA - Romantic Melodies: Classic In Pop (2005) [MP3|320 Kbps] <Pop, Rock, Classical>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ricky King - Mondscheinsonate (3:34)
-02. Francis Goya - Concerto Pour Une Voix (2:55)
-03. Jacques Loussier - Summer Adagio (4:21)
-04. Anthony Ventura - Menuet (3:41)(   Читать дальше...   )Жанр: Pop, Rock, ClassicalПродолжительность: 01:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE53F0D514C186EDD66A7DE440084AE599F31196
 ```
 
 https://mybot314.ru/tekegram_catalog/

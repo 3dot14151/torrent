@@ -1,3 +1,55 @@
+###  Публикация: 1803574   (13577) от 24.06.2025
+
+Шрифты - Sentavio - Envato - Ronald Gunfire Serif Font Family - UQMZEGL [OTF, EOT, SVG, WOFF, WOFF2, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт с кириллицей, с засечками.Формат: OTF, EOT, SVG, WOFF, WOFF2, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A43E1F9D97AC0865017F84F775EEE2B3DC712025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803578   (13575) от 24.06.2025
+
+Шрифты - Sentavio - Envato - Skyrox Font - AC42EQ8 [OTF, EOT, SVG, WOFF, WOFF2, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт с кириллицей, создает современную футуристическую атмосферу и стиль в стиле хай-тек.Формат: OTF, EOT, SVG, WOFF, WOFF2, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00D9D035D9748EE2005C411E30EEBF4462D815A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803580   (13567) от 24.06.2025
 
 Шрифты - MadeDeduk - Envato - Mongka Display Font - XHRXAV9 [OTF, WOFF, WOFF2, TTF]
@@ -624,60 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC6EC1399470239D0C5CBF92B153A4EC2F7BA714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807964   (10761) от 21.07.2025
-
-Шрифты - Behance - Nurbek Nas - Angeme - 178686145 [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный шрифт с кириллицей 2 стиля.Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C605FA0542A995BBBDF46E2E0DE5F45015BF2C1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807905   (10760) от 21.07.2025
-
-Шрифты - MyFonts - Seconda [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рубленый шрифт с собственной индивидуальностью. Шрифт, сочетающий в себе выразительность и удобочитаемость. Шрифт, сочетающий в себе деловитость и удовольствие. Умеренный контраст и сужающиеся концы придают этому шрифту мягкий и изысканный вид. Используйте его для книг, отчётов, журналов, деловых писем — и расслабьтесь.
-
-Seconda имеет шестнадцать стилей, расширенную (   Читать дальше...   )Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2951ADCE2A69E8E522142F5F0D25F51D671E0CB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

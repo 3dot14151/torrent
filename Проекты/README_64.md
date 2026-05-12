@@ -1,3 +1,55 @@
+###  Публикация: 1107048   (869237) от 21.02.2017
+
+Проекты - VideoHive - Corporate Slides 5 - 19296751 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Corporate Slides 5 - проект для создания корпоративной презентации. Все очень легко настраивается в пару кликов мыши.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D404696328392C4D468DCABF5E0C3538DA6477FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107054   (869133) от 21.02.2017
+
+Проекты - VideoHive - Logo ident 1 - Minimalist Intro - 19369025 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Logo ident 1 - Minimalist Intro - проект для создания простого минималистичного раскрытия вашего логотипа. Просто поместите ваш логотип или текст в соответствующую композицию!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4407DEE78C89646534412B19F6694AE63CAD7D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106630   (869132) от 21.02.2017
 
 Проекты - VideoHive - Quick Clean Bling Logo 4 - 19385104 [AEP]
@@ -632,58 +684,6 @@ Light Tunnel Logo - это удивительный проект для демо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EA0C14F301A44B1E6C8EF9C885584BDC689D811
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107751   (865704) от 23.02.2017
-
-Проекты - VideoHive - Flat Minimal Titles - 19421285 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет анимированных титров для творчества.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:618DB0431C6F79C3BF7585438087D6544DE0692B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107273   (865702) от 23.02.2017
-
-Проекты - VideoHive - Typography Opener - 19419664 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стильный типографический проект для создания промо-ролика или начального видео.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F96CDBD522C56D28EE17BA2301395508F1E74560
 ```
 
 https://mybot314.ru/tekegram_catalog/

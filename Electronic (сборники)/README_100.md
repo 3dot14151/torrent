@@ -1,3 +1,32 @@
+###  Публикация: 906932   (641461) от 10.06.2015
+
+Space - Лучшие хиты (2014) [MP3|320 кб/с]<Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic Fly
+02. Symphony
+03. Tango In Space
+04. Just Blue(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:15:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BF1C8E532599B07216D1EF0D54AAE0035569D68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 518620   (641396) от 04.07.2012
 
 VA - Kiss FM - Top-40 (03.07.2012) [MP3|320 кб/с]<Dance>
@@ -747,35 +776,6 @@ VA - Sexy Trance #41 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C50D122C56C1740FB6AA84949224B42EC41214F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143322   (637479) от 17.06.2017
-
-VA - Empire Records - Trance Disco (2017) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Solarstone & Meredith Call - I Found You (Giuseppe Ottaviani Remix)  6:51
-02.  Denis Kenzo & Hanna Finsen - Dancing In The Dark (Extended Mix)  6:00
-03.  Andy Tau & Sean Mathews - Shadows And Light (Andy Tau Extended Remix)  6:49
-04.  J.A.Y.H. - Morning Star  6:44(   Читать дальше...   )Жанр: TranceПродолжительность: 02:08:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D12D43F4E52B8147770265ADD8CC718592CE55A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

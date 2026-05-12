@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1869183   (1068095) от 04.05.2026
+
+Виктор Кирея - Диско 2026: Современная инструментальная музыка в стиле 80-х, 90-х (2026) [FLAC|Lossless|WEB-DL|tracks] <Disco, Instrumental>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сквозь туманность Ориона (3:31)
+02. Мелодия заката (3:42)
+03. Соната №8 (Патетическая) (2:40)
+04. Зов далёких миров (3:54)(   Читать дальше...   )Жанр: Disco, InstrumentalПродолжительность: 01:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA0C722A05A0CD479BF568E8415F8CDDD70C63BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1863811   (1063221) от 06.04.2026
 
 Mauro Farina - ∞ (2026) 3XCD, Compilation [FLAC|Lossless|tracks] <Italo-Disco, Eurobeat, Euro House>
@@ -714,35 +743,6 @@ Mark Ashley - MT (2021) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B11A2DD9775D8DD1BFF69761FF936F357A4B9B7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443589   (1035473) от 29.01.2021
-
-Mark Ashley - Christmas for My Fans (2020) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Wish You a Merry Christmas (Radio Version) (3:39)
-02. Give a Little Sweet Love (Lr Extended Version) (4:45)
-03. You're My Love, You're My Life (Modern Remix 2020) (3:47)
-04. Cinderella's Heart (Original Version) (4:42)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20D90C779B2ED7E8E5C730684E306073D32FCE22
 ```
 
 https://mybot314.ru/tekegram_catalog/

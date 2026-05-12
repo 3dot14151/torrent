@@ -1,3 +1,107 @@
+###  Публикация: 1302704   (579080) от 17.05.2019
+
+3D модели - CGTrader - Dosch 3D - Heavy Machines [Mental Ray|V-Ray|*.max, 3DS, OBJ, C4D]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продукт DOSCH 3D: Heavy Machines содержит 20 очень подробных и полностью текстурированных 3D-моделей автомобилей.Формат: Mental Ray|V-Ray|*.max, 3DS, ATL, C4D, DAE, DWG, DFX, FBX, LWO, LXO, OBJ, U3D, WRL, XSI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7617403CD4BE4F95A8F37539082A1FBF8477FD40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042735   (578334) от 13.08.2016
+
+Экшены - GraphicRiver - Splatter Photoshop Action [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Splatter - экшен для Вашего творчества.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64E8CF11ABE7EFE1A27C13A6DF743B439B5F3264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042741   (578332) от 13.08.2016
+
+Экшены - GraphicRiver - Splatter Displacement Action [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Splatter Displacement - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D641C4EE844425132F3783555943C692E786998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042743   (578316) от 13.08.2016
+
+Экшены - GraphicRiver - Splatter Ink Photoshop Action - 12720711 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Splatter Ink - экшен для Вашего творчества.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A421C8993E4705D0EA0C4EA6C47652DB3F400680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042756   (578308) от 13.08.2016
 
 Экшены - Splatter Photoshop Action [ATN, ABR, PAT]
@@ -573,111 +677,6 @@ Sketch (With 3D Pop Out Effect) - экшен для Вашего творчес�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B729ED7C861E9C7C135C72D97F89126A94317BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233917   (575900) от 02.07.2018
-
-Экшены - Watercolor Ink Art Photoshop Action [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Watercolor Ink Art - этот экшен фотошоп без особых усилий, поможет создать из ваших фотографий  красочный арт-этюд. После того, как действие закончит работу, вы получите хорошо организованный и структурированный файл со множеством слоёв, папок с настройками, для улучшения конечного результата.
-Чтобы получить наилучший результат, вам следует использовать изображения (   Читать дальше...   )Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8680A2A0DCC5753E04230BEA99DB3C08B8E79641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150549   (575610) от 17.07.2017
-
-Экшены - GraphicRiver - Another Days Photoshop Action [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Another Days Photoshop Action - позволяет создать картину заброшенных городов.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54870676E52DD2BFED9C435BA4A1EA62F2D1C332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234014   (574620) от 03.07.2018
-
-Растровый клипарт - Ripe strawberry in wicker basket [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спелая клубника в плетеной корзине для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3888x2592-6052x4276
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18046BF67DBC1F0FBA1CC59FEE6AE427E31155B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234013   (574603) от 03.07.2018
-
-Растровый клипарт - Backgrounds with assorted fruits and berries [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фоны с различными фруктами и ягодами для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2510x1673-6000x4004
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A64B3FD6F72DBCF8B0BE80EBF8B4CB1C52249A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

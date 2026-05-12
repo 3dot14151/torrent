@@ -1,3 +1,55 @@
+###  Публикация: 1344206   (170777) от 09.12.2019
+
+Проекты - VideoHive - Logo Light 4K Opening - 25223897 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Logo Light 4K Opening - проект для демонстрации вашего логотипа в полноцветном дизайне.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E87C1D4CDDB138CA31B1BDA65B63EE72B92C5468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596060   (170650) от 08.12.2022
+
+Проекты - VideoHive - TypeWriter | Realistic Titles - 41845888 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анимационный проект для ваших титров. Он выполнен в ретро-стиле для лучшего кинематографического восприятия зрителя. Этот проект должен подойти как для исторического, так и для любого документального фильма. Звуковые эффекты пишущей машинки будут автоматически регулироваться в соответствии с длиной текста. Эта пишущая машинка напечатает за вас 2 строки текста.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B88712FC1111B0368B43FC10863D678C1B388C48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344407   (170185) от 10.12.2019
 
 Проекты - VideoHive - Funky Film Strip - 23848468 [AEP]
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA23177FA1A3FAAB2FF5BD7FE3BC8DDE5B0E4CFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344913   (167779) от 13.12.2019
-
-Проекты - VideoHive - Parallax Promo - 18515367 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parallax Promo - создание слайдшоу с 3D эффектом.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F86CD90C5446B375EF88F132B5CA51F9CD3938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344918   (167769) от 13.12.2019
-
-Проекты - VideoHive - Neon Mood Slideshow - 19460533 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Neon Mood Slideshow - Создайте невероятную атмосферу высоких технологий и погрузитесь в мир будущего.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C352EF5BEB5649C29985E4BA4D29FD9C8F44A1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,22 @@
-###  Публикация: 1131376   (709107) от 05.05.2017
+###  Публикация: 1286733   (710356) от 03.03.2019
 
-Qbserve 1.62 [En]
+Лес (2018) WEB-DLRip
 
->>Архив торрентов
->>Архив 4Apple
+>>След.
+>>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710356.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отслеживание рабочего времени с комфортом.
-Qbserve в автоматическом режиме отслеживает время потраченное на работу и  помогает повысить производительность.  Qbserve обнаруживает деятельность автоматически с постоянно расширяющейся базой данных (более 5500 сайтов , приложений и игр ) .
-
-Qbserve дает мгновенные ответы на вопросы о том, как вы проводите свое время за (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 апреля 2017Разработчик: QotoQotПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+Даниле шестнадцать. Катя вдвое старше. Он часами украдкой наблюдает за ней из старого сруба на окраине леса. У него не рождается и мысли попытаться быть с ней вместе. Пока на пороге Кати не появляется отец Данилы с желанием сбежать в ее объятия от навалившихся проблем. Отца и сына затягивает водоворот событий, где люди, живущие на одной земле, разделились на своих (   Читать дальше...   )Производство: Россия / RZ StudioЖанр: ДрамаРежиссер: Роман ЖигаловАктеры: Олег Шибаев, Наталья Рычкова, Олег Феоктистов, Мария Аврамкова, Владимир Малюгин, Сергей Шеховцов, Сергей Шанин, Дмитрий Блохин, Сергей Подольный, Марианна ОвчинниковаПеревод: Не требуется (русский) - iTunesСубтитры: ОтсутствуютПродолжительность: 01:36:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E9381A07B4D66EC7337A37A41ED0A3F70A38807
+magnet:?xt=urn:btih:987702FEE04E0E91E8BE6718196D589843957A37
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532759   (709106) от 22.02.2022
+###  Публикация: 1058135   (710355) от 03.03.2019
 
-Martin Hiska - Coast to Coast (2021) [AAC|~349 Kbps] <Lounge, Chill Out, Downtempo>
+Cossacks 3 / Казаки 3 (2016) [Ru/Multi] (2.2.3.92.6008/dlc) License PLAZA [Digital Deluxe Edition]
 
->>нет
->>нет
+>>След.
+>>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_709106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710355.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Diving Sun (5:22)
-02. Martin Hiska, Michael Moses - Sandy (4:48)
-03. Intimate (4:28)
-04. Higher (4:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:05:25
+Возвращение легендарных «Казаков»! Масштабная стратегия о великих сражениях XVII–XVIII вв. Современный ремейк лучшей стратегии 2001 года, многотысячные армии и выверенная игровая механика. Настоящая классика жанра RTS со строительством и добычей ресурсов.Тип издания: LicenseРазработчик: GSC Game WorldЖанр: Strategy (Real-time), 3D, IsometricЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:ED0361028A08FAC1C4301271F8B09B1E53EB0151
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532776   (709105) от 22.02.2022
+###  Публикация: 1286534   (710354) от 03.03.2019
 
-VA - Notes from the Depth, Vol. 14 (2020) [AAC|~315 Kbps] <House>
+Коллекция аудиокниг: Российская фантастика, фэнтези, мистика, ужасы 2 (2002-2018) [M4A|AAC]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>След.
+>>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710354.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Israel Vich, Marco Tegui - Tortuga (Original Mix) (6:08)
-02. Foxall, Deaf Can Dance - Babel (Original Mix) (7:37)
-03. Fulltone - Looped (Original Mix) (5:20)
-04. Derrok, Biomigrant - Sueño Profundo (Just Emma Remix) (9:17)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:44:27
+Коллекция российской фантастики, фэнтези, мистики и ужасовЖанр: Фантастика, Фэнтези, Мистика, УжасыФормат: .m4a
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A36AE3641128A666A29A800511E63CEAA2860132
+magnet:?xt=urn:btih:02535E9D1075E0EBF2F1F9389AA47945EADA5FFF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532775   (709104) от 22.02.2022
+###  Публикация: 1229040   (710352) от 03.03.2019
 
-VA - Notes from the Depth, Vol. 13 (2020) [AAC|~316 Kbps] <House>
+Frostpunk (2018) [Ru/Multi] (1.3.3 HF) Repack R.G. Механики
 
->>Аудио и Видео
->>Музыка (AAC)
+>>След.
+>>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710352.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. JPattersson - Silkwood Shower (Dolph Bees & Bears Remix) (7:02)
-02. David Rausch - Substance (Original Mix) (7:46)
-03. Israel Vich, Tony V, Zufu - Ayahuasca Gift (Original Mix) (5:20)
-04. Fulltone - Cricket Groove (Original Mix) (7:45)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:42:16
+Frostpunk – это новейшая игра от создателей This War of Mine. Это игра на выживание общества, которая задает вопрос: на что способны люди, стоящие на грани выживания? В полностью вымерзшем мире люди разрабатывают паровые машины, чтобы противостоять невыносимому холоду. Правитель города должен управлять как его жителями, так и инфраструктурой, в которой они обитают.Тип издания: RepackРазработчик: 11 bit studiosЖанр: Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B6385E2FCDFC0D964474485A0457F494B1647C2
+magnet:?xt=urn:btih:2B82341E70F5745CB8AE4689D6A4231FF8300BE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,376 +102,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532757   (709103) от 22.02.2022
+###  Публикация: 792363   (710351) от 02.06.2014
 
-Martin Hiska - Arise (2019) [AAC|~346 Kbps] <Deep House>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_709103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arise (4:38)
-02. Dust (4:59)
-03. Oriental Moments (6:12)
-04. Hunted (4:59)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:30:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532975   (709102) от 22.02.2022
-
-VA - Notes from the Depth, Vol. 16 (2021) [AAC|~326 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PALMFooD - Bogogan (8:00)
-02. Amount - Tripping Octaves (6:04)
-03. Kotelett & Zadak - Sapiens (Original Mix) (7:34)
-04. Renga Weh - Kaleidoscope (Original Mix) (5:52)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52622C7A7192B5AF1B07553D6020A278E77D387E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532973   (709101) от 22.02.2022
-
-Martin Hiska - Abroad (2020) [AAC|~311 Kbps] <Lounge, Chill Out, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shahma (4:30)
-02. One On One (4:54)
-03. Bansi (6:33)
-04. Stepping Stone (5:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, Organic HouseПродолжительность: 01:18:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F7936C26C9BEDC59A8674A6A78D326172CC77B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532772   (709100) от 22.02.2022
-
-VA - Chill Out Pearls, Vol. 2 (Lazy Chill Out Tunes) (2019) [AAC|~328 Kbps] <Lounge, Leftfield, Downtempo>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_709100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alwood Johnson - Fly (Original Mix) (5:46)
-02. Danny Hay - Expectations (Original Mix) (7:41)
-03. Chuck Mertens - Moshy (Original Mix) (5:51)
-04. Alec Gonzalez - Lia (Original Mix) (3:39)(   Читать дальше...   )Жанр: Lounge, Leftfield, DowntempoПродолжительность: 03:01:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532755   (709099) от 22.02.2022
-
-Martin Hiska - Road to Oase (2019) [AAC|~314 Kbps] <Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1001 Desires (6:24)
-02. Stateless (5:31)
-03. Ali (4:10)
-04. Beyond Dreams (5:04)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD32F01A9FEE78EC44A22BE21ED978569CE1C91D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532777   (709098) от 22.02.2022
-
-VA - Notes from the Depth, Vol. 15 (2020) [AAC|~331 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kostakis - The Taking (Original Mix) (9:27)
-02. Moscow Noir, Night Vision - Come Undone (Original Mix) (8:00)
-03. Doyeq - My Hidden Winter (Original Mix) (8:19)
-04. Fat Cosmoe - Andromeda (David Dorad & Sebo Remix) (6:38)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53BA548D08EC194BF274DAAA5A4BF5FEEE38D6F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532972   (709097) от 22.02.2022
-
-Martin Hiska - Deep Blue Sunset Sessions (2020) [AAC|~343 Kbps] <Lounge, Chill Out, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunset Session (5:10)
-02. Lady In Blue (4:41)
-03. Seasides (5:58)
-04. Luna (3:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, Organic HouseПродолжительность: 01:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB225C09C36C770076238EACD33604667122255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532773   (709096) от 22.02.2022
-
-VA - Chill Out Pearls, Vol. 3 (Lazy Chill Out Tunes) (2019) [AAC|~301 Kbps] <Lounge, Leftfield, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jonic Elements - Until The Morning (Original Mix) (3:33)
-02. Wet Elements - Young Rebel (Sunrise Mix) (3:33)
-03. Cosmique Beats Ensemble - Grooman (Original Mix) (3:55)
-04. Pianistic Soul - Enchantment (Original Mix) (4:00)(   Читать дальше...   )Жанр: Lounge, Leftfield, DowntempoПродолжительность: 02:28:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E74484B63CBF54A2EE8E13527FF1C2B8905CF664
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532974   (709095) от 22.02.2022
-
-Martin Hiska - Globalearic (2021) [AAC|~341 Kbps] <Lounge, Chill Out, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Istanbul Lounge (5:23)
-02. Japanese Garden of Bliss (4:09)
-03. Sati (4:14)
-04. Orange (4:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, Organic HouseПродолжительность: 03:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2415977EDE9D9FDEF608151E1DF9BF2B56A2E1CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286841   (709094) от 04.03.2019
-
-Bobby van Deusen - The Naked Piano: Trio (2003) Melcome Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train [7:18]
-02. All the Things You Are [5:30]
-03. Summer Wind [3:45]
-04. Someone to Watch over Me [7:43](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A96A7516D913EEF4A8200D5958FF300A6D38C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286839   (709093) от 04.03.2019
-
-Dinah Washington - Queen Of The Juke Box ''Live'' 1949-1955 (2000) Baldwin Street Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want to Cry [3:27]
-02. It's Too Soon to Know [3:01]
-03. I'll Never Be Free [1:57]
-04. I Cross My Fingers [2:16](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E433BAF946E41EE0CB337DEB4162452BEDB5486
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286875   (709092) от 04.03.2019
-
-Desolate Horizons - Every Dream Is a Lifetime (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Unity (04:33)
-02. Nothing but Stardust (06:15)
-03. Every Dream Is a Lifetime (05:53)
-04. Stellar Essence (05:36)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC785B720182627EE20763CA80B7146CEB443156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286914   (709091) от 04.03.2019
-
-VA - German Top 50 Party Schlager Charts 04.03.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+VA - The Official UK Top 40 Singles Chart (01-06-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
 
 >>Неофициальные сборники
->>Pop (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710351.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kerstin Ott - Regenbogenfarben
-02. Maite Kelly - Heute Nacht für immer
-03. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
-04. Andrea Berg - Mosaik(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:00:35
+Публикую традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
+В нынешнем чате 6 новых исполнителей. Все новинки под спойлером NEW. Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
+Во все треки вшиты обложки альбомов.01. Second City - I Wanna Feel (Club Mix)  (5:20)
+02. Sam Smith - Stay With Me  (2:53)
+03. Klingande - Jubel  (2:28)
+04. Mr. Probz - Waves  (3:28)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:37:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75B6E6B788BF2E6E4A04FA9957F6254C21029A9B
+magnet:?xt=urn:btih:683D4F2304BB0F74E7C9A469D5CBD85F65B84382
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +133,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286797   (709090) от 04.03.2019
+###  Публикация: 1286475   (710350) от 03.03.2019
 
-Чемпионат мира по лыжным видам спорта 2019. Инсбрук-Зеефельд (Австрия). Лыжное двоеборье. Командный спринт. Эстафета 2х7,5 км (2019) WEB-DL [H.264/720p-LQ]
+Перевал / Der Pass (2018) WEBRip (сезон 1, серии 1-8 из 8) Кубик в Кубе
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Зарубежные сериалы
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710350.jpg" />
 </div>
 
 
 ###  Подробнее
 
-24 февраля 2019 года, воскресенье. 15:30 МСК
-Чемпионат мира по лыжным видам спорта 2019. Инсбрук-Зеефельд (Австрия)
-Лыжное двоеборье. Командный спринт
-Лыжная Гонка. Эстафета 2х7,5 км(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:41:29
+Она — жизнелюбивая немка Элли Стокер, которая пытается делать свою жуткую работу легко. Он — мрачный алкоголик Гедеон Винтер, оказавшийся на самом дне жизни. Вдвоем они включаются в расследование, которое все больше напоминает опасную игру, затеянную маньяком-убийцей, — и заодно демонстрируют, как важно при всей разности темпераментов и образов жизни держаться вместе.Производство: Германия, Австрия /  Wiedemann & Berg Television, Epo-Film ProduktionsgesellschaftЖанр: триллер, криминал, детектив, драмаРежиссер: Сирил Босс, Филипп ШтеннертАктеры: Юлиа Енч, Николас Офчарек, Франц Хартвиг, Ханно Коффлер, Лукас Мико, Наташа Петрович, Лукас Грегорович, Мартин Файфель, Кристофер Шерф, Джулиан ЛооманПеревод: Двуголосый закадровый, профессиональный (Кубик в Кубе)Субтитры: OтсутствуютПродолжительность: ~00:44:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0552308B09BD81D63051F4B8AF927A3DAB56E25
+magnet:?xt=urn:btih:25B1F2958E909E9462576096FCBAA0EE73753127
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,141 +159,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286867   (709089) от 04.03.2019
+###  Публикация: 1286506   (710348) от 03.03.2019
 
-Angela Bofill - Teaser (1983) Reissue CD, Arista, 1999 [MP3|320 Kbps] <Electronic, Disco, R & B>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Special Delivery (4:55)
-02. Call Of The Wild (5:01)
-03. Nothin' But A Teaser (4:45)
-04. I'm On Your Side (5:05)(   Читать дальше...   )Жанр: Electronic, Disco, R & BПродолжительность: 00:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7794425EC377516DA547A7D7F80975B8D8B0A8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286906   (709088) от 04.03.2019
-
-VA - German Top 100 Single Charts 11.03.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709088.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Shirin David - Gib Ihm
-002. KC Rebell - DNA (feat. Summer Cem Capital Bra)
-003. Capital Bra - Capital Bra je m'appelle
-004. Azet Zuna - Fragen(   Читать дальше...   )Жанр: PopПродолжительность: 05:25:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85275DBA902421778C1C3C73ECDF66A2DB58D0A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286759   (709087) от 04.03.2019
-
-ILUITEQ - Soundtracks For Winter Departures (2019) ...txt [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Arrival (04:49)
- 02. Burian (05:05)
- 03. A Prayer For The Departed (05:30)
- 04. In Every Place (05:14)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D2439A07D454E1C184232952790984E6D692A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286701   (709086) от 04.03.2019
-
-Е. А. Тучков | Сектантство и его идеология (1955) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слово «секта» происходит от латинского «secta» — учение, школа. Сектой принято называть религиозное течение или группу, отколовшуюся от господствующей церкви. В СССР, где нет никакой господствующей религии, где каждый гражданин может исповедовать любую религию или не исповедовать никакой, название «секты», присвоенное некоторым религиозным организациям, потеряло (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B201C9ADF6087A62C12E9FA6320EECA00E160A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286878   (709085) от 04.03.2019
-
-BestReminder v2019.03.04.11 Stable [Multi/Ru]
+ABBYY FineReader 14.0.107.232 Corporate [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710348.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ну кто из нас не забывал поздравить близких друзей, родственников, сотрудников, знакомых с каким нибудь событием или знаменательной датой!
-Может это день рождения, или юбилей, а может крестины, или может годовщина свадьбы?
-А когда же поздравить? Когда покупать подарки? Какого же числа праздник?
-Эта версия программы - ни что иное, как новый свет от предыдущей Birthday. (   Читать дальше...   )Разработчик: Похилько Д.Ю. aka KilyaЯзык интерфейса: Русский, английский, украинский
+ABBYY FineReader 14 – универсальное решение для работы с бумажными и PDF-документами, которое позволяет менеджерам освободиться от ежедневных рутинных задач, повышая эффективность бизнеса. ABBYY FineReader 14 предоставляет широкий спектр возможностей в одной программе, сочетая в себе лидирующие технологии распознавания ABBYY OCR и нужные инструменты для работы с (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D59D2B90FD7855CC6F01BD9B7AAB8D2146FC0343
+magnet:?xt=urn:btih:43294C1D83D8956C25ACE15CFAE54AE32604003E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,28 +185,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286892   (709084) от 04.03.2019
+###  Публикация: 375119   (710346) от 03.03.2019
 
-Moebius - Lux Fiat (2019) Mystic Sound Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Psychill, Ambient>
+NMG | Детская энциклопедия Кирилла и Мефодия 2011 (DVD) [MDF]
 
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
+>>След.
+>>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710346.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Amber Star (08:46)
-02. Inner Hollow (07:56)
-03. Black Rain (07:15)
-04. The Mind Traveller (08:13)(   Читать дальше...   )Жанр: Psybient, Downtempo, Psychill, AmbientПродолжительность: 01:15:24
+Детская энциклопедия Кирилла и Мефодия (ДЭКМ) - уникальное собрание увлекательных и полезных сведений о многообразии окружающего нас мира.
+  Энциклопедия содержит увлекательнейшие материалы о природе, мировых цивилизациях, исторических эпохах и выдающихся личностях, науке и технике, животном и растительном мире, истории изобретений и открытий.
+  Ваш ребенок с помощью (   Читать дальше...   )Жанр: Электронная энциклопедияФормат: MDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:927C4C32D9FF4B7D3A062F8591B37178719ED0BC
+magnet:?xt=urn:btih:19BB5D4C7C6EAFB5DCF6BA787A58AEAE050D6E76
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,28 +213,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286402   (709083) от 04.03.2019
+###  Публикация: 1285968   (710344) от 03.03.2019
 
-Jim Brickman - Soothe, Vol. 4: Subzero - Sounds That Spark the Senses (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+Завод (2018) WEBRip [H.264/720p-LQ]
 
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710344.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Starbeam (4:30)
- 02. Cool Vibes (3:54)
- 03. Poolside Chill (3:49)
- 04. Drive North (3:33)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:54:30
+Прямо посреди дня из своего «мерса» похищен местный олигарх Калугин. Неизвестные в балаклавах потребовали за него большой выкуп. Отвезти деньги берётся глава личной охраны бизнесмена по кличке Туман. Его вооружённые до зубов «спецы» приезжают ночью на завод Калугина, где теперь босса держат в заложниках.
+Они пока не знают, что те другие, забаррикадировавшиеся в цехе (   Читать дальше...   )Производство: Россия, Армения, Франция / Kinovista, Forever Films Media, ...Жанр: Боевик, криминал, драма, триллерРежиссер: Юрий БыковАктеры: Денис Шведов, Андрей Смоляков, Владислав Абашин, Александр Бухаров, Дмитрий Куличков, Иван Янковский, Юрий Тарасов, Пётр Баранчеев, Александр Воробьёв, Алексей КомашкоПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:46:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D27825A2BF16276605F24D51FF5D2AD0CC908646
+magnet:?xt=urn:btih:51B516A4DDB8F4B01A329DD175015EC4C8CE30C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -720,28 +240,448 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286882   (709082) от 04.03.2019
+###  Публикация: 1285887   (710342) от 03.03.2019
 
-Gigi D'Agostino & Friends - The UltraTraxx Remixe 1-3 (2009) [MP3|192 Kbps] <Italo-Dance>
+Король воров / King of Thieves (2018) BDRip
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710342.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gigi D'Agostino - La Passion (UltraTraxx Remix) (11:53)
-02. Gigi D'Agostino - Bolero (UltraTraxx Remix) (9:38)
-03. Bon Tino - Der Reiter (UltraTraxx Remix) (8:01)
-04. Elettrogang - Once Upon A Time (UltraTraxx Remix) (8:17)(   Читать дальше...   )Жанр: Italo-DanceПродолжительность: 03:57:01
+Группа отошедших от дел мошенников решает провернуть последнее дерзкое ограбление. Никто не представлял, что спланированная операция станет самым громким событием криминальной хроники Великобритании за последние сто лет…
+По мотивам реальной истории.Производство: Великобритания / StudioCanal,Working Title FilmsЖанр: Драма, криминалРежиссер: Джеймс МаршАктеры: Майкл Кейн, Чарли Кокс, Майкл Гэмбон, Джим Бродбент, Рэй Уинстон, Том Кортни, Франческа Эннис, Пол Уайтхаус, Кили Кэт Уэллс, Келли ШирлиПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:47:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8246DCD214CFA065325D7978FE2CB1F99A9BA03
+magnet:?xt=urn:btih:CDA9E13D783EEBA81ED2AADA439D7C6E1EA3D507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286545   (710340) от 03.03.2019
+
+Александр Васько | Java. От простого к сложному. (2018) PCRec [H.264/1080p-LQ]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710340.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью данного курса вы сможете усвоить основные концепции самого популярного на данный момент объектно-ориентированного языка программирования. В процессе прохождения курса вы изучите принципы ООП, научитесь работать с коллекциями, усвоите основы многопоточности, поймете, как устроены Лямбда-выражения.Производство: UdemyЖанр: Программирование, JavaПродолжительность: 33:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E52B03DA1ED26C7FEEBA81C7A3636483C38A402
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286493   (710339) от 03.03.2019
+
+Udemy | Полный Курс Python С Нуля До Героя (2017) PCRec [H.264/1080p-LQ]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это наиболее полный курс по языку программирования Ptyhon на Udemy! Если ранее вы никогда не занимались программированием, знаете базовый синтаксис, или хотите изучить продвинутые возможности Python, то этот курс для Вас! В этом курсе мы обучим Вас обеим версиям Python (2 и 3), чтобы вы легко смогли адаптировать свои навыки к любой версии!Производство: UdemyЖанр: Программирование, PythonПродолжительность: 12:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20A020BB6D35BB806CE56C799A79024104A81AD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286598   (710337) от 03.03.2019
+
+Windows Vista Home Basic Home Premium SP2 x86 6.0.6002 by Burnoutman [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка на основе оригинальных образов Windows Vista Home Basic SP2 x86 и Windows Vista Home Premium SP2 x86 . Из системы ничего не удалялось! Сборка моя, сделана при помощи официальных утилит.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7404994D14FA6F1D779C75ECEA24DB8944161EDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286737   (710335) от 03.03.2019
+
+Far Cry New Dawn (2019) [Ru/Multi] (1.0.2/dlc) Repack Catalyst [Deluxe Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710335.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Far Cry: New Dawn, спустя 17 лет после глобальной ядерной катастрофы люди пытаются вернуться к привычной жизни в мире, который кардинальным образом изменился. В округе Хоуп штата Монтана выжившие объединяются в группы, в каждой из которых установлены свои законы.Тип издания: RepackРазработчик: Ubisoft MontrealЖанр: Action (Shooter), Open World, 1st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3785E378FF82F2685F643F1768A9BC1B7B1D69C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286523   (710333) от 03.03.2019
+
+WebForMySelf | JavaScript. Полное руководство для современной веб-разработки (2019) [unpacked]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите самый популярный язык разработки и станьте высокооплачиваемым профи. Полный охват теоретических и практических знаний и навыков по JS – без воды и в концентрированном виде. В курсе собраны лишь самые актуальные и востребованные в 2019 году знания по JS – для современной веб-разработки.Жанр: Программирование, JavaScriptФормат: unpackedПродолжительность: 32:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40FE23E6CFB0F0E64BD0C0A261D0F5FA035B7BA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177516   (710332) от 03.03.2019
+
+ELEX (2017) [Ru/En] (1.0.2981.0) Repack R.G. Механики
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710332.jpg" />
+</div>
+
+
+###  Подробнее
+
+ELEX - нарисованный вручную боевик с элементами ролевой игры, созданный авторами заслужившей многие награды серии Gothic. События разворачиваются в совершенно новой постапокалиптической научно-фантастической вселенной. Игрок погружается в удивительно цельный игровой мир, полный ярких персонажей, мутантов, сложного морального выбора и кровопролитных боев.Тип издания: RepackРазработчик: Piranha BytesЖанр: Action, Adventure, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A821573353A3B90AC88CD661B58876EB0B58BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498715   (710330) от 21.02.2022
+
+А.Г. Красичкова | Японская кухня [2007] [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальное издание, которое познакомит вас с кулинарными традициями Японии. Рецепты приготовления традиционных и современных блюд, собранные в этой книге, не оставят равнодушными ценителей японской кухни. Подробные инструкции помогут приготовить суси, сасими, роллы, изысканные кушанья из овощей, мяса и морепродуктов, оригинальные японские сладости. Красочные иллюстрации, дополняющие рецепты, подскажут вам, как красиво и необычно оформить блюда.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77BDA9E88FC9A40EEAE9DB850C1D513A2A8E3532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286583   (710329) от 03.03.2019
+
+ABBYY FineReader 14.107.232 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710329.jpg" />
+</div>
+
+
+###  Подробнее
+
+ABBYY FineReader 14 – универсальное решение для работы с бумажными и PDF-документами, которое позволяет менеджерам освободиться от ежедневных рутинных задач, повышая эффективность бизнеса. ABBYY FineReader 14 предоставляет широкий спектр возможностей в одной программе, сочетая в себе лидирующие технологии распознавания ABBYY OCR и нужные инструменты для работы с (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D64CD1DEEC14FB4777C496ACD8BC764C037DD97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529367   (710327) от 21.02.2022
+
+Black Book v.1.0.44 (2021) [En/Ru] [macOS Native game]
+
+>>Игры для macOS
+>>Quests, Adventure, Arcade для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в мрачный мир северной мифологии, созданный отечественными разработчиками из Перми! Юной крестьянке Василисе судьбой предначертано стать колдуньей. Идя наперекор своей участи, она решает бросить колдовство и обвенчаться со своим возлюбленным. Но ее мечтам не суждено сбыться - как узнала Василиса, когда ее суженый трагически погибает при неизвестных (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 2021Разработчик: MorteshkaПоддерживаемая ОС: 10.13+Жанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB0A32E022B3FB5823D673A17D16946B345F4E71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286645   (710326) от 03.03.2019
+
+Windows 10 Pro 1809 (build 17763.348) x64 [Ru] by vladislays v19.03.03
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чистая система, никаких логотипов, девочек и прочей "художественной работы".
+Сборка на основе оригинального образа MSDN:
+ru_windows_10_consumer_edition_version_1809_updated_feb_2019_x64_dvd_baed56dd.iso
+Были интегрированы обновления по состоянию на 3 марта 2019, а также включен .Net Framework 3.5 и протокол SMB 1.0.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1A4E4EA6CD997610DA655D8C0BF102C3073BEAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529548   (710324) от 21.02.2022
+
+Воспитанные волками / Raised by Wolves (2022) WEB-DLRip (сезон 2, серии 1-4 из 8) ViruseProject (обновляемая)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земля разрушена войной между религиозными фанатиками и повстанцами-атеистами. Последние отправляют корабль с человеческими эмбрионами и андроидами, призванными их защищать. Они приземляются на необитаемую и недружелюбную планету, где андроиды Папа и Мама растят шестерых родившихся детей в соответствии с директивами их атеистичных создателей. Однако все принимает (   Читать дальше...   )Производство: США / Film Afrika Worldwide, Lit Entertainment Group, Scott Free ProductionsЖанр: фантастика, триллер, драмаРежиссер: Люк Скотт, Алекс Габасси, Серджо Мимика-ГеззанАктеры: Аманда Коллин, Трэвис Фиммел, Абубакар Салим, Винта МакГрат, Нив Алгар, Феликс Джемисон, Итан Хаззард, Матиас Варела, Джордан Лоугрэн, Аасия Ша и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, английскийСубтитры: Русские, английские (отдельно)Продолжительность: ~00:50:00 серии
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35B39E5307C5AF0DE8B9A1094CE9333E0819EB2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532932   (710322) от 21.02.2022
+
+Udemy, Logus Online | English Grammar| 50 English Grammar Mistakes people make WEB-DL (2019) [EN / EN Sub]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_710322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на курс «Распространенные грамматические ошибки». Внимание: это не просто курс английской грамматики, он не охватывает все темы английской грамматики, а раскрывает самые сложные части английской грамматики, с которыми у большинства изучающих английский язык возникают проблемы.
+
+Если вы хотите улучшить свою английскую грамматику и интуитивно использовать (   Читать дальше...   )Жанр: Английский языкЯзык озвучки: АнглийскийПродолжительность: 05:20:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285898   (710320) от 03.03.2019
+
+Завод (2018) WEBRip [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прямо посреди дня из своего «мерса» похищен местный олигарх Калугин. Неизвестные в балаклавах потребовали за него большой выкуп. Отвезти деньги берётся глава личной охраны бизнесмена по кличке Туман. Его вооружённые до зубов «спецы» приезжают ночью на завод Калугина, где теперь босса держат в заложниках.
+Они пока не знают, что те другие, забаррикадировавшиеся в цехе (   Читать дальше...   )Производство: Россия, Армения, Франция / Kinovista, Forever Films Media, Coda, Sharm HoldingЖанр: Боевик, криминал, драма, триллерРежиссер: Юрий БыковАктеры: Денис Шведов, Андрей Смоляков, Владислав Абашин, Александр Бухаров, Дмитрий Куличков, Иван Янковский, Юрий Тарасов, Пётр Баранчеев, Александр Воробьёв, Алексей КомашкоПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84648C9A23DE184D2A119CA87DABA7FB22FFDA28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532814   (710319) от 21.02.2022
+
+Pharaoh + Cleopatra (1999) [En] (2.1.0.15/dlc) License GOG
+
+>>Win Старые Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в мир Древнего Египта, начиная с эпохи пирамид и заканчивая последними годами Нового царства. Вам подвластны все сферы жизни этой экзотической страны – от религии до торговли с далекими городами. Создавайте земледельческие хозяйства в долине Нила и откройте для себя важнейшую роль, которую эта река с ее непредсказуемыми разливами играла в жизни египтян. (   Читать дальше...   )Тип издания: LicenseРазработчик: Impressions GamesЖанр: Стратегия, Симулятор, МенеджментЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23126A7E3FAF3CA0E20AE73218CDFA8226871AAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055197   (710318) от 03.03.2019
+
+Cossacks 3 / Казаки 3 (2016) [Ru/Multi] (2.2.3.92.6008/dlc) Repack Other s [Digital Deluxe Edition]
+
+>>3
+>>13
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710318.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Казаки 3" - классическая RTS с редким сочетанием войны, экономики, строительства и технологического развития, которое нельзя встретить ни в одной игре за последние 15 лет. Продолжение культовой игровой серии позволит снова окунуться в золотой век жанра стратегий. В «Казаках 3» будет 12 играбельных наций, включая Россию, Украину, Англию, Францию и Австрию.Тип издания: RepackРазработчик: GSC Game WorldЖанр: Strategy (Real-time), 3D, IsometricЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D5E630B80E50779E67B34CA75F3CC306A062153
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529547   (710316) от 21.02.2022
+
+Воспитанные волками / Raised by Wolves (2022) WEB-DL [H.264/1080p] (сезон 2, серии 1-4 из 8) ViruseProject (обновляемая)
+
+>>Зарубежные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земля разрушена войной между религиозными фанатиками и повстанцами-атеистами. Последние отправляют корабль с человеческими эмбрионами и андроидами, призванными их защищать. Они приземляются на необитаемую и недружелюбную планету, где андроиды Папа и Мама растят шестерых родившихся детей в соответствии с директивами их атеистичных создателей. Однако все принимает (   Читать дальше...   )Производство: США / Film Afrika Worldwide, Lit Entertainment Group, Scott Free ProductionsЖанр: фантастика, триллер, драмаРежиссер: Люк Скотт, Алекс Габасси, Серджо Мимика-ГеззанАктеры: Аманда Коллин, Трэвис Фиммел, Абубакар Салим, Винта МакГрат, Нив Алгар, Феликс Джемисон, Итан Хаззард, Матиас Варела, Джордан Лоугрэн, Аасия Ша и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, английскийСубтитры: Русские, английские, испанские, португальскиеПродолжительность: ~00:50:00 серии
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47EB601DC87BED9AD6EAFC46E89F2255CB1A81D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

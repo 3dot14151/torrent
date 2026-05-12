@@ -1,3 +1,67 @@
+###  Публикация: 552876   (438753) от 30.09.2012
+
+Various Artists - Future Bass: Ministry of Sound (2012) [MP3|320 кб/с]<Tech / Deep / House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438753.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Jessie Ware - Running (Disclosure Remix) (5:17)
+2. TNGHT - Higher Ground (3:19)
+3. Pirupa - Party Non Stop (Huxley Remix) (7:33)
+4. Disclosure & Ria Ritchie - Control feat. Ria Ritchie (4:49)
+5. Maya Jane Coles - Not Listening (6:31)
+6. Jamie Jones - Frequencies (5:25)
+7. Hudson Mohawke - Thunder Bay (3:18)
+8. Eliphino - More Than Me (7:01)
+9. Rustie - After Light (3:42)
+10. Drumsound, Bassline Smith & Tom Cane - Through The Night feat. Tom Cane (Shadow Child Remix) (6:07)(   Читать дальше...   )Жанр: Tech / Deep / HouseПродолжительность: 02:17:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0503235AB28FD97ED39D37B1395BD561B6AE9285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410199   (438420) от 20.09.2020
+
+VA - Crossfit Selection 1 (2020) [MP3|320 Kbps] <Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chubz & Nukem - Tell 'em (5:45)
+02. Ero Boy - Dimension (5:09)
+03. Darkmann - Sigh of Relief (Commodore Mix) (3:15)
+04. Masstech - Now (Outher Side Mix) (3:19)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 01:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCDC72592F3B53BC35478FF7512A88D0E822C26B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944977   (438315) от 08.10.2015
 
 Alex Cortiz - Deep Deluxe (2015) [MP3|320 кб/с]<Electronic, Deep House>
@@ -709,70 +773,6 @@ Utah M. Paul - Дискография  44CD Taboo Records (1997-2010) [MP3|320 k
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75AB36637252DB82BD3BFDAE15FB9C413F194E5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250899   (422656) от 29.09.2018
-
-VA - Deep House & Deep Techno #03: Best Of 5 Years (2018) [MP3|320 Kbps] <Deep House, Deep Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demax - Galantis (Original Mix) 7:38
-02. Robben Cepeda - Another Day (Original Mix) 6:35
-03. Valentin Timoshin - Drones (Original Mix) 6:17
-04. Carlos De Castro - Grooving Madness (Original Mix) 5:56(   Читать дальше...   )Жанр: Deep House, Deep TechnoПродолжительность: 05:10:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54F107173F7461859A51560D330292A3659343E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 557360   (422500) от 07.10.2012
-
-VA - Manhattan Deep Vibes Compilation: 2012 Deep House Compilation (2012) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422500.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sam Franklin - Tree of Rhythm (7:26)
-2. Stoned Butterflies - Everything Is Bright (7:19)
-3. Jon Coombs - Let Me Go (7:52)
-4. Moreno Pezzolato - Word - Original Mix (8:03)
-5. Moreno Pezzolato - Word - Marcelo Tag Remix (7:00)
-6. Phreo - Hold Cheek (8:27)
-7. Luca La Greca - Rhythm Addiction (6:32)
-8. Lovework - Lady Deep (7:33)
-9. Applefly - Tonight? Tonight - Labaci Remix (6:43)
-10. Tonic Dj - Moofna Story (6:49)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:373C5F042EE4F16677767A0A59EC433B7E61881B
 ```
 
 https://mybot314.ru/tekegram_catalog/

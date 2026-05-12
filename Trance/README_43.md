@@ -1,3 +1,61 @@
+###  Публикация: 1838924   (261593) от 26.11.2025
+
+VA - Extrema Global Music - Best Of 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etasonic - Shakerato (Original Mix) [3:38]
+02. Anna Lee - Silver Coast (Original Mix) [4:15]
+03. Reborn Sound System - Inner Voices (Original Mix) [3:19]
+04. Lightstate & Tycoos - Unseen Force (Original Mix) [3:40](   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:019B4568AF24301045685526F0DCCFE93F5AA5E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838807   (261539) от 24.11.2025
+
+VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 15 (2025) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Geri - The Crowds (Original Mix) [8:22]
+02. Will Dukster & Solnc - Im Reaching (Original Mix) [8:32]
+03. Appledrugs - Every Second Of Time (Front vs Lala Project Mush Up) [8:29]
+04. Audien - Eleven Eleven (Tom Fall Remix) [7:11](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 03:09:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5399BAECF292385E84F6CA49C303210CE726ED18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838864   (261501) от 25.11.2025
 
 VA - Uplifting Only Top 15: November 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -687,64 +745,6 @@ VA - Uplifting Only Top 15 March 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0191E5AB4390E5BA36EE453151312A077778D98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620100   (249546) от 18.03.2023
-
-VA - Vocal Trance Collection (2023) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exeland feat. Natune - When You're Near (Catchfire Remix) (7:23)
-02. Liddell - Fighting Daylight (Original Mix) (6:57)
-03. Edplacid Patiño - The Phoenix (Extended Mix) (6:24)
-04. DJarle & Kanyle - Ride My Waves (Victor Special Remix) (7:57)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DADF19D0F97995BE81535AEDEB176BDA19C9BAC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607923   (246057) от 28.01.2023
-
-VA - Uplifting Only Top 15: January 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avar - You (Intro Edit) [5:28]
-02. New World - True Nature (Club Mix) [6:02]
-03. Mark Versluis feat. Emy Smith - Where Are You Now (Extended Mix) [6:21]
-04. Jason (CHN) - Dreamcatcher (Autumnal Poplar Groves Remix) [6:38](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF4D86B376FAEDAB78C0C068F468A5BB32A8406
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1064135   (429864) от 18.10.2016
+
+Проекты - VideoHive - Coherence | Opening Titles - 18080042 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания титров или слайд-шоу. Вы можете легко изменить цвет, текст, кадры и логотип всего за несколько кликов.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98008758F3E935395F2150FB98A2584289C7C694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064035   (429784) от 18.10.2016
+
+Проекты - VideoHive - Nature Logo Revealer - 8080503 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания демонстрации логотипа. Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD919567AC5DEBE46F6F8AFCCDDBE44380A0983
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064069   (429780) от 18.10.2016
 
 Проекты - VideoHive - Elegance Historical - 14741419 [AEP]
@@ -626,58 +678,6 @@ VideoHive - Fashion Focus - 4062223 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1048740BFD37A5991F5BFB0336E2E2D85043AAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064047   (425556) от 20.10.2016
-
-VideoBlocks - Halloween Intro / Pond5 - Halloween Intro - 68170172 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чутка пугающее хэллоуинское интро с атрибутами этого праздника - зеленый смог, кладбище, тыквы и все такое. Музыка включена в проект.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9AA2AAF231752E72429A12AE3A394886A7C507A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064421   (425555) от 20.10.2016
-
-Проекты - VideoHive - Blue Neon V.1 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания промо, интро или короткого слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC125D13D91AA60F914EBBF59E9FFE59AB552331
 ```
 
 https://mybot314.ru/tekegram_catalog/

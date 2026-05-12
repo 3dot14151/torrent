@@ -1,22 +1,22 @@
-###  Публикация: 1428908   (798023) от 06.11.2021
+###  Публикация: 1506985   (798632) от 03.11.2021
 
-Подшивка | Practical Electronics (2021) [PDF] [En]
+Побег из Шоушенка / The Shawshank Redemption (1994) BDRip [H.264]
 
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798632.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Английский журнал по электронике для радиолюбителей. С апреля 2019 года выходит под новым названием - Practical Electronics. В каждом номере публикуются конструкции для повторения различного уровня сложности с описанием, схемами, печатными платами и прошивками для микроконтроллеровЖанр: ЭлектроникаФормат: PDF
+Энди Дюфрейн, вице-президент солидного банка, приговаривается к двум пожизненным заключениям по обвинению в убийстве жены и ее любовника. Он отбывает заключение в тюрьме Шоушенк, где проходит все круги ада, проявляя недюжинное мужество, упорство и хладнокровие.Производство: США / Castle Rock EntertainmentЖанр: ДрамаРежиссер: Фрэнк ДарабонтАктеры: Тим Роббинс, Морган Фриман, Боб Гантон, Уильям Сэдлер, Клэнси Браун, Джил Беллоуз, Марк Ролстон, Джеймс Уитмор, Джеффри ДеМанн, Ларри БранденбургПеревод: Дублированный (Voize по заказу IVI)Субтитры: нетПродолжительность: 02:22:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5511A5381B192B2FDD16FD10F30D2FA1E7EB3713
+magnet:?xt=urn:btih:B7F110FF6FEB63F9346A839D4157EE698B5F0DFE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507962   (798022) от 06.11.2021
+###  Публикация: 1507295   (798631) от 03.11.2021
 
-Forza Horizon 5 (2021) [Ru/Multi] (1.405.2.0/dlc) License EMPRESS [Premium Edition]
+Расшифровано / Decrypted (2021) WEBRip [H.264/1080p-LQ] [MVO] [AD]
 
->>3
->>10
+>>Остальное
+>>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798631.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Forza Horizon 5 – продолжение популярной гоночной серии Forza Horizon, в котором вам ждет еще более разнообразный и обширный открытый мир. За рулем величайших автомобилей вы промчитесь по невероятно красивому миру Мексики. Вас ожидает масштабная кампания с сотнями испытаний на любой вкус. Вы посетите пустыни, затерянные руины, густые джунгли, покрытый снегом вулкан (   Читать дальше...   )Тип издания: LicenseРазработчик: Playground GamesЖанр: Racing, Arcade, Simulator, Open World, 3DЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+Провокационная комедия о несоответствующей команде АНБ, которая похищает создателя Биткойна — Сатоши Накамото — и пытается под пытками заставить его выдать информацию, необходимую для уничтожения криптовалют.Производство: Великобритания / Substantial FilmsЖанр: Драма, комедияРежиссер: Том СэндсАктеры: София Майлс, Дэвид Хофлин, Аманда Аббингтон, Кевин МакНэлли, Талиса Гарсиа, Дон Жилет, Клайв Фрэнсис, Аки Котабе, Кайоде Акиниеми, Pilar AmoresПеревод: Многоголосый любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:51:27Реклама: Присутствует баннер.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF5726578A45AB657442AB43D308544412D149FA
+magnet:?xt=urn:btih:32C4D97EE3E68A5ED108C1598A55F32676FD929A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,28 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508281   (798021) от 07.11.2021
+###  Публикация: 1506305   (798630) от 03.11.2021
 
-Monte Pittman - The Power of Three (2014) [FLAC|Lossless|image + .cue] <Heavy Metal>
+ЗАО "Инфостудия ЭКОН", SRC-Master | Портфель директора (2004) DVDRip
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798630.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Dark Horse
-02. Delusions Of Grandeur
-03. Everything's Undone
-04. Blood Hungry Thirst(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:28
+Российский аналог МВА в сжатом виде.
+Один из лучших на момент выхода видео семинар обучения бизнесу.
+Особенное отличие - рассмотрение теории на примерах из реальной жизни.
+В раздаче  все семинары из портфеля директора вместе с рабочими тетрадями и раздаточными материалами.(   Читать дальше...   )Производство: ЗАО "Инфостудия ЭКОН"Жанр: Бизнес семинарПродолжительность: 39:10:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F73904AE8E1E60F10FBEBA3889BE44F751370359
+magnet:?xt=urn:btih:297B8ED83C02A5053AED6F49B345DAD405CD9A95
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,28 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508280   (798020) от 07.11.2021
+###  Публикация: 1507283   (798629) от 03.11.2021
 
-Monte Pittman - Inverted Grasp Of Balance (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
+Жена олигарха (2021) WEBRip [H.264/720p] (сезон 1, серии 1-17 из 17)
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Отечественные сериалы
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798629.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Panic Attack
-02. Arisen In Broad Daylight
-03. Guilty Pleasure
-04. The Times Are Changing(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:11
+Жизнь Альбины меняется в один миг: под угрозой ареста муж-олигарх бросает её, прихватив с собой все деньги. Всё, что осталось от супруга, — двое детей и российская фабрика на грани банкротства. Теперь Альбина вынуждена забыть о роскошной жизни в лондонском особняке и вспомнить то, что ей говорили на бизнес-курсах. Только начинать жизнь с чистого листа в провинциальном (   Читать дальше...   )Производство: Россия | «Keystone Production»Жанр: КомедияРежиссер: Мария КравченкоАктеры: Елена Подкаминская, Маргарита Дьяченкова, Игорь Верник, Антон Филипенко, Владимир Гостюхин, Алексей Маклаков, Александр Дьяченко, Александр Обласов, Даниил Киселёв, Константин ПохмеловПродолжительность: ~00:25:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A80170D26C6D8B2215C4A68526029247A0C46520
+magnet:?xt=urn:btih:539455145AA405484EEEB7F46EA21318F3F3DF40
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,199 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508142   (798019) от 07.11.2021
+###  Публикация: 1507253   (798628) от 03.11.2021
 
-VA - Lounge Theme (Sofa Grooves), Vol. 2 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Elements - Let's Start (Sun Rising Mix) (3:40)
-02. Marc Hartman - Into the Stone (Original Mix) (4:16)
-03. Worldtraveller - The Rory Glory Smokadelic Bloomdub (Living Room's Dubalicious Edit) (4:11)
-04. Peter Pearson - Chilled to the Heart (Original Mix) (4:34)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4283A2228553D6010E51B02AB17AEA48D33C6B89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508123   (798018) от 07.11.2021
-
-VA - Bar Essentials, Vol. 2 (2019) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vovich, Sexy Girl - Don t Break my Heart (Victor Vine Remix) (3:19)
-02. The Groover - Show Me (Playa D'en Bossa Edit Mix) (4:02)
-03. King Bizza Keys - Ticket to Europe (5:54)
-04. Monodeluxe - Playa del Sol (5:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BCCB014A4F1A078EDCBE78B64925A8764C91CC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508124   (798017) от 07.11.2021
-
-VA - Bar Essentials, Vol. 3 (2020) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Area Code 51 - Hurt Again (3:14)
-02. Charles Edison - Find You (3:18)
-03. Peter Pearson - Distant Waves (4:38)
-04. The Soul Crusaders - Open Sea (3:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2694935749C0357E44FA79D2BCCDD7D2088F8EE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508196   (798016) от 07.11.2021
-
-VA - Chilling Winter Best Playlist (2021) [AAC|~307 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aktnuance - Beautiful Beginning (5:53)
-02. Habermohl - An Immense Feeling (5:44)
-03. Performative Mode - Morning Air (6:24)
-04. Cesar Martinez Ensemble - Sol y Sombra (5:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476D92F955DBC2EE18464B45BC943248E9A6C399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508132   (798015) от 07.11.2021
-
-VA - Beach Grooves Maretimo, Vol. 3 - House & Chill Sounds to Groove and Relax (2020) [AAC|~323 Kbps] <Lounge, Chill Out, Chill House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phil Kinley - I Got the Feeling (Rock da Pool Cut) (6:32)
-02. Adriatic Grooves - Ibiza Overflight (Vibes & Bytes Mix) (6:14)
-03. Pascal Dubois - House on the Beach (Chillers Mix) (4:36)
-04. Groove Gauchos - Conga Morena (Latin Bossa Cut) (4:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, Chill HouseПродолжительность: 01:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54F50061E9897060F34E980775FBD00CD3F1DCE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508127   (798014) от 07.11.2021
-
-VA - Bar Essentials, Vol. 4 (2021) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - Waikiki Beach Dreaming (2:10)
-02. Roberto Bronco - Monkeys (4:51)
-03. Pier-O - Humble Bumblebee (5:38)
-04. Chillson - Pappas do Pappas Don t (4:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B4B61F77A866964FF999F6B3497972E88FEE6E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508307   (798013) от 07.11.2021
-
-SiteSucker Pro 4.2 [Multi]
+Chromium 95.0.4638.69 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798628.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SiteSucker Pro - это расширенная версия SiteSucker, которая может загружать встроенные видео, включая встроенные видео YouTube и Vimeo. Вы можете загружать более 100 файлов за раз.Тип издания: macOS SoftwareРелиз состоялся: 06.11.2021Разработчик: Richard CraniskyПоддерживаемая ОС: macOS 11.1 +Язык интерфейса: Английский, Немецкий и т.д.
+Chromium – веб-браузер с открытым исходным кодом, который обеспечивает своих обозревателей быстрым, безопасным и надёжным доступом к сети Интернет, оснащенный удобной платформой для веб-приложений. Быстрота браузера обеспечивается за счет открытых компонентов. Разработчики браузера постоянно внедряют все новые и новые функции, направленные на повышение безопасности (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BABB0110B1AFD44E2A444DF5A9C539073DD8C8F1
+magnet:?xt=urn:btih:FAD903837F1A8BF6302D8AC0F62AA8D1989CD2A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -308,55 +131,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508137   (798012) от 07.11.2021
+###  Публикация: 1507279   (798627) от 03.11.2021
 
-VA - Lounge Theme (Sofa Grooves), Vol. 1 (2021) [AAC|~309 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jane Maximova - Puppets (Original Mix) (4:58)
-02. Velvet Dreamer, Tim Gelo, Mike Tourne - No More Tears (Original Mix) (5:00)
-03. FIN Project - Mind Travel (Original Mix) (5:41)
-04. Weber - The Meaning (Original Mix) (4:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D518C0257754CB6EE3448AF207F0255A1229BDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508177   (798011) от 07.11.2021
-
-Screen Wonders 1.9.3 [Multi/Ru]
+4K Video Downloader 4.18.4.4550 RePack (& Portable) TryRooM [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798627.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если вам надоели неподвижные картинки на рабочем столе, если вы готовы приветствовать волшебство разных мест по всему миру и даже параллельных вселенных, мы собрали лучшие живые обои в этом приложении. Вам обязательно придется по душе разнообразие тем, времен года и праздничных сцен и это все - Screen Wonders.
-Говорят, красота требует жертв, но вам не о чем беспокоиться, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.10.2021Разработчик: 3PlanesoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
+4K Video Downloader позволяет скачивать видео, плейлисты, каналы и субтитры с YouTube, Facebook, Vimeo и других сайтов в высоком качестве и разрешении.
+Смотрите любимые видео в любое время и в любом месте, даже когда вы оффлайн. Скачивать легко и удобно — просто скопируйте из браузера ссылку на видео и нажмите "Вставить ссылку" в приложении!Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF17FCF5EE397EE702289918590CDEB296432952
+magnet:?xt=urn:btih:A845EDA371B96268665F4E111A79AEE26C2E7E97
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -364,166 +158,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508131   (798010) от 07.11.2021
+###  Публикация: 1507219   (798626) от 03.11.2021
 
-VA - Beach Grooves Maretimo, Vol. 2 - House & Chill Sounds to Groove and Relax (2019) [AAC|~326 Kbps] <Lounge, Chill Out, Chill House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Maretimo - Costa Balear (The Beachfloor Cut) (5:42)
-02. Poolwave - African Market (Jazzman´s Cut) (6:11)
-03. Airstream - Back in Time (The Golden Beach Cut) (6:54)
-04. Pascal Dubois - Send Me Away (The Chillhouse Mix) (4:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, Chill HouseПродолжительность: 01:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D05CC0F954E46C12B7F38111DFA07BF4058DB92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508194   (798009) от 07.11.2021
-
-VisualDiffer 1.8.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798009.jpg" />
-</div>
-
-
-###  Подробнее
-
-VisualDiffer сравнивает бок-о-бок папки и файлы с помощью цвета, чтобы визуально показать различия. Из интерфейса можно выполнять операции с папками и файлами, такие как копирование или удаление.
-Это можно сравнить с быстрым выбором базы каталогов папки из контекстного меню. Использование фильтра файлов особенностью является возможность скрыть от визуализации конкретных (   Читать дальше...   )Тип издания: macOS X SoftwareРелиз состоялся: 07.11.2021Разработчик: © 2021 Davide FicanoПоддерживаемая ОС: macOS X 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580FD98EFA89FD1C66FFB3713DAC1EDC896641DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508133   (798008) от 07.11.2021
-
-VA - Beach Grooves Maretimo, Vol. 4 - House & Chill Sounds to Groove and Relax (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Chill House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airstream, Phil Kinley - Coffee Bar (Sunnys Pool Mix) (4:50)
-02. DJ Maretimo, Vladi Strecker - Rio (Take Me on Mix) (5:31)
-03. Cinematic - Sunset Love (The Funky Light Mix) (4:32)
-04. Jazzy James Jr. - Get on Funky (Cosmo Cut) (4:49)(   Читать дальше...   )Жанр: Lounge, Chill Out, Chill HouseПродолжительность: 01:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83D4F2CCAAB6EDEB7AA9C96ACBBCDE50482B803F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508121   (798007) от 07.11.2021
-
-VA - Bar Essentials, Vol. 1 (2018) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bes & Meret - Love Yourself (5:47)
-02. Tom Appl - Arabian Rose (Radio Cut) (3:40)
-03. Ralf Harris - I Get It (4:49)
-04. Buben - Point in History (5:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:03:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA2C19C8AD996554CE0E15A259F996B5E8D56214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508219   (798006) от 07.11.2021
-
-File Juicer 4.96 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798006.jpg" />
-</div>
-
-
-###  Подробнее
-
-File Juicer - уникальная утилита, позволяющая извлекать мультимедийные документы, вложенные в другие файлы. Утилита находит и извлекает изображения, видеоролики, звуки и текст следующих форматов: PNG, PDF, JPEG, JP2, GIF, BMP, WMF, EMF, PICT, TIFF, Flash, Zip, MOV, WAV, MP3, HTML, AVI , MPG, WMV, MP4, AU, AIFF или текстовые файлы.
-File Juicer может быть использован (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.11.2021Разработчик: Echo OneПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8F00F3C49F1F571EBDE2F67E9C22F0878863210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508297   (798005) от 07.11.2021
-
-Коко выводит цыплят / Koko Gets Egg-Cited (1926) WEBRip
+Айнбо. Сердце Амазонии / AINBO: Spirit of the Amazon (2020) BDRip [H.264/720p]
 
 >>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798626.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коко решил заняться птицеводством. Ну, там курочки, яички всякие. Инкубатор конечно же. Только он ведь клоун. Вот у него все и получается по-клоунскиПроизводство: США, Out of the Inkwell FilmsЖанр: Рисованная анимацияРежиссер: Дэйв ФлейшерАктеры: Макс ФлейшерПеревод: НемойСубтитры: ОтстутствуютПродолжительность: 00:08:09
+Бесстрашная Айнбо родилась и выросла в таинственных амазонских джунглях. Узнав, что её родному поселку грозит опасность, она тотчас отправляется за помощью в компании удивительных зверей. Их ждёт восхождение к пылающему вулкану, встреча с могущественным духом Амазонии и схватка с мифическим чудовищем.Производство: Перу, Нидерланды / Cinema Management Group, Cool Beans, Tunche FilmsЖанр: Мультфильм, фэнтези, комедия, приключения, семейный, детскийРежиссер: Рихард Клаус, Хосе СеладаАктеры: Лола Райе, Наоми Серрано, Дино Андраде, Джо Эрнандес, Том Хоффман, Рене Мухика, Йени Альварез, Бернардо де Паула, Алехандра Гольяс, Сюзана БаллестеросПеревод: Дублированный (СиПиАй Филмз / CPI Films)Язык озвучки: Русский, английскийСубтитры: Русские (Full), английские (Full)Продолжительность: 01:24:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83E7446D9489A25BFDB7BC84AE4CCAE53995FDCB
+magnet:?xt=urn:btih:817B3A7F9CA3B0B6A0D84416EEB36B4150F5AF1F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -531,28 +184,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508329   (798004) от 07.11.2021
+###  Публикация: 1507230   (798625) от 03.11.2021
 
-Stormbreaker - Strike The Match (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+ФотоШОУ PRO 19.5 Repack KaktusTV [Ru]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798625.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Standing On The Edge
-02. The Voice Inside
-03. Never Again
-04. Give In To Me(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:46:37
+ФотоШОУ PRO - открывает возможности для создания потрясающих фильмов из фотографий и музыки. Создавайте незабываемые слайд-шоу на любые темы: рассказы о путешествиях, праздниках, свадебные фотофильмы, Love Story и т.п. Программа включает сотни комбинаций эффектов анимации, позволяющих оживить любую фотографию. Вам точно не будет скучно... Коллекция элегантных переходов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42C147DD11A8BFDFD111ACFFF7FDC702690AB52C
+magnet:?xt=urn:btih:DE0C2E172F42B7635FBE362AF3521ED9FED04CC0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -560,28 +210,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508135   (798003) от 07.11.2021
+###  Публикация: 1197238   (798624) от 04.01.2019
 
-VA - Ski Resort Best Lounge Music Playlist (2021) [AAC|~292 Kbps] <Lounge, Chill Out>
+Александр Дюмин - 8 Альбомов (1998 - 2011) [FLAC|Lossless|image + .cue]<Шансон>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798624.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aktnuance - Beautiful Beginning (5:53)
-02. Habermohl - An Immense Feeling (5:44)
-03. Kalokagathia Union - Ascending Mind (6:00)
-04. Performative Mode - Morning Air (6:24)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:46:20
+01. Роза
+02. Сибиряк
+03. Братушка
+04. Байкал(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B276153419C9BFF41901556B53333F742C5E0706
+magnet:?xt=urn:btih:DBEFBDD78353155A83AB3FFE228A4B0943A2BBE7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -589,28 +239,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508129   (798002) от 07.11.2021
+###  Публикация: 1273775   (798623) от 04.01.2019
 
-VA - Beach Grooves Maretimo, Vol. 1 - House & Chill Sounds to Groove and Relax (2018) [AAC|~324 Kbps] <Lounge, Chill Out, Chill House>
+AVS Video Software 11.9.6.12 RePack by elchupacabra [Multi/Ru]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798623.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Phil Kinley - Partylife (Glitterpool Cut) (6:45)
-02. Housework - Culture Vibes (Drumflow Cut) (6:12)
-03. Clublife - Different Things (Poolside Mix) (6:17)
-04. Poolwave - Seaside (Laid Back Waves Cut) (5:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, Chill HouseПродолжительность: 05:47:38
+AVS Video Software представляет собой комплект из трёх программ для обработки видео файлов от AVS4YOU: AVS Video Editor, AVS Video Converter и AVS Video ReMaker.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CFE662F83AA63C7B8A27604721A8FFECE1B0376C
+magnet:?xt=urn:btih:4051E825061E0AC4A20437049919F948E9256CD6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -618,28 +265,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508150   (798001) от 07.11.2021
+###  Публикация: 1273881   (798622) от 04.01.2019
 
-Joe Henderson - The Complete Blue Note Studio Sessions (1963 - 1967) 5CD, 2021, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+Том Рат | Максимальный заряд. Как наполнить энергией профессиональную и личную жизнь (2019) [PDF]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798622.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Una Mas (One More Time) [15:19]
-02. Straight Ahead [8:58]
-03. Sao Paulo [7:20](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 06:10:18
+Том Рат, популярный писатель и ученый, рассказывает о трех ключах к здоровью, благополучию и вовлеченности. Основываясь на последних прикладных исследованиях в области медицины, психологии и экономики, автор показывает, какие небольшие изменения мы можем внести в свою жизнь, чтобы проживать каждый день на 100 %. Он призывает найти смысл в работе, пересмотреть свои (   Читать дальше...   )Жанр: ПсихологияПеревод: Оксана КлючинскаяФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A48810A48C9B88542DD7E283DE302AF0B6F07C0E
+magnet:?xt=urn:btih:8D0A70D3D57C3BD70920C9FD6B50AE3D1F358F5B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -647,26 +291,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508207   (798000) от 07.11.2021
+###  Публикация: 1273897   (798621) от 04.01.2019
 
-Гидеон Стерер | Ночные рыцари (2019) [PDF]
+Bongiovi Acoustics DPS Audio Enhancer 2.2.1.1 RePack by elchupacabra [Ru/En]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798621.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Красивая и атмосферная сказка о том, что ночью не надо бояться чудищ, ведь ночные рыцари всегда начеку.
-Книга начинается с заката: солнце садится, и мальчик волн волнуется из-за наступления темноты, призывая ночных рыцарей. Каждый дом превращается в замок, на страже которого встают смелые рыцари, лучники, капитаны и волшебные существа. У них одна цель — защитить (   Читать дальше...   )Жанр: Детская литература/СказкаФормат: PDF
+Bongiovi Digital Power Station ™ (DPS) - это идеальное решение для обработки звука которое сочетает в себе усовершенствованную акустическую
+технологию, созданную звукорежиссерами со страстью к отличному звучанию.
+Bongiovi DPS - запатентованный алгоритм, который оптимизирует аудио в реальном времени. Профили DPS создаются и реализуются для максимальной гибкости
+звука (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89D46A6EC1FB575B4767279B440259B60D1297CF
+magnet:?xt=urn:btih:946EDE9A777E48D65B4FB5A4D0BC0C6946388E00
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -674,25 +320,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508202   (797999) от 07.11.2021
+###  Публикация: 1269652   (798620) от 04.01.2019
 
-Сто к одному (07.11.2021) WEBRip [H.264/1080p-LQ]
+Голос. Перезагрузка (2018) HDTVRip (сезон 7, выпуски 1-13 из 13)
 
 >>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798620.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:46
+Один из самых ярких шоу-проектов в очередной раз продемонстрирует невероятные результаты от альянса обладателей незаурядных голосов и опытных наставников, позволяющих талантам раскрыться и расцвести. Великолепные голоса, уникальные музыкальные постановки, молодые и не очень участники, которым придется испытать радость творчества, счастье триумфа и слезы поражения (   Читать дальше...   )Телекомпания: Первый канал, Красный квадрат, Talpa ProductionsЖанр: ТВ-шоуСубтитры: ОтсутствуютПродолжительность: ~01:35:00 выпуск
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C754470FAF8E3148A601175543B51CCD65BD0C87
+magnet:?xt=urn:btih:5F2BE0C9FA0225B172A116510DF8EE746A373D19
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -700,28 +346,344 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508323   (797998) от 07.11.2021
+###  Публикация: 1273942   (798619) от 04.01.2019
 
-Dangerous Curves - Summertime Highs (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+Владимир Мясоедов | Континентальный сдвиг (2018) [FB2]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798619.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. In Those Eyes
-02. My Oh My (Get What You Need)
-03. I Like it
-04. Good And The Bad(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:44
+Восьмой роман цикла «Ведьмак двадцать третьего века».
+
+Выжить можно везде, где есть другие люди. Даже в полном чар и волшебства измерении, словно являющимся кривым отражением привычного мира. И пусть там вовсю пылает пожар четвертой по счету глобальной войны, но если не лезть в его пекло, то все будет нормально…Во всяком случае, на это очень надеется наш соотечественник, (   Читать дальше...   )Жанр: Героическая фантастика, Попаданцы, Боевое фэнтезиФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A171CFC1BF1E001DB3E943630EDD53469306E7B2
+magnet:?xt=urn:btih:4A39F993CADD36D4430917D9EDB7546136BC490F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273752   (798618) от 04.01.2019
+
+Ограбление: Код 211 / 211 (2018) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет картины закручивается вокруг полицейского Чандлера, у которого за плечами огромный опыт всевозможных расследований разной степени сложности. Главный герой прекрасно знает, что делает, и он отлично справляется с задачами по поимке опасных преступников. В один прекрасный день в полицейское отделение, где работает Чандлер поступает сообщение об ограблении банка. (   Читать дальше...   )Производство: США / Millennium Films, 211 Productions, Nu Image BulgariaЖанр: Боевик, ДрамаРежиссер: Йорк ШеклтонАктеры: Николас Кейдж, Софи Скелтон, Майкл Рейни мл., Дуэйн Камерон, Уэстон Кейдж, Кори Хардрикт, Ори Феффер, Марк Баснайт, Аманда Серни, Майкл БеллисариоПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:27:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1279F9BEA863AA92E72145F7B2837011B3A4C9DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273841   (798617) от 04.01.2019
+
+Дмитрий Шелег | Факультет общей магии (2018) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвёртый роман цикла «Нелюдь».
+
+Кровь, грязь и нищета. Воровство, убийство и разбой. Ненависть, страх и боль… Наш герой не понаслышке знает, что такое тяжкие испытания. Однако ему благоволит судьба. Он молод, богат и далек от своего преступного прошлого. Может, пришла пора начать жизнь с нового листа? Это действительно отличный шанс!
+(   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07EBD981892100512553171C92B071476F8598C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273603   (798616) от 04.01.2019
+
+Rugrats Go Wild (2003) [Ru/En] (1.0) License
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798616.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того, как судно, на котором плыли карапузы «благополучно» затонуло, компания детишек-непосед высаживается… на необитаемый остров! Но самое интересное впереди: выяснилось, что крошечные коллеги Робинзона Крузо оказались на дивном тропическом острове не одни! Кто, как вы думаете, составит карапузам «достойную» компанию и не даст скучать ни минуты? Ну, конечно (   Читать дальше...   )Тип издания: LicenseРазработчик: THQЖанр: Action-adventureЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E12B10731FFA985D4E578B125F1A6C3E409F51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273885   (798615) от 04.01.2019
+
+Анастасия Пономаренко, Семён Лавриненко | Другое тело. Программа стройности для мужчин и женщин от спортивного врача (2019) [PDF]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опять расстроились в примерочной и залегли на диван в обнимку с пачкой чипсов, повесив новый костюм на велотренажер?
+Пора меняться! Построить другое тело легко!
+Авторская программа «Кислород» – это простой и понятный алгоритм превращения рыхлой бесформенной массы в красивую фигуру. Не бойтесь неудач, на этот раз у вас все получится! Врач точно знает, что нужно делать, (   Читать дальше...   )Жанр: Здоровье, Дом и СемьяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2C1BF4D5A95D73FF36EE525228C5B7E8E65E156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253529   (798614) от 04.01.2019
+
+Ulysses: Jeanne d'Arc to Renkin no Kishi / Ulysses: Jeanne d'Arc and the Alchemist Knight / Улисс: Жанна д'Арк и рыцарь-алхимик [2018, TV, 12] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается во Франции XV века во время Столетней войны. Сын дворянина по имени Монморенси учится в школе рыцарей, где с головой погружается в изучение магии и алхимии. Однако после разгрома французов англичанами в битве при Азенкуре (25 октября 1415 года) школу распускают, и Монморенси вынужден бежать. И в ходе этого бегства он знакомится с удивительной (   Читать дальше...   )Жанр: приключения, фентези.Режиссер: Итагаки СинЯзык озвучки: ЯпонскийЯзык субтитров: Русский 1-5Продолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C83187BA4277B4A1C1EBFD046694D1C3FDE050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092380   (798613) от 04.01.2019
+
+Добро пожаловать, или Соседям вход воспрещён / Deck the Halls (2006) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798613.jpg" />
+</div>
+
+
+###  Подробнее
+
+В маленьком североамериканском городке в канун Рождества впору объявлять военное положение: один из жителей решил украсить свой дом иллюминацией, которую было бы можно видеть из космоса. Это не пришлось по душе сельчанам и особенно его ближайшему соседу. Боевые действия готовы разрушить город. Однако в конце концов противоборствующие стороны открывают для себя истинную (   Читать дальше...   )Производство: США / 20th Century Fox Film Corporation, Regency EnterprisesЖанр: Комедия, СемейныйРежиссер: Джон УайтселлАктеры: Дэнни ДеВито, Мэттью Бродерик, Кристин Дэвис, Кристин Ченоуэт, Алиа Шокат, Дилан Блу, Келли Элдридж, Сабрина Элдридж, Хорхе Гарсиа, Фред АрмисенПеревод: Дублированный (Лицензия BD EUR), Украинский (ТЕТ)Язык субтитров: Русский (Forced, Full), Украинский (Full), Английский (Full, SDH)Продолжительность: 01:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52A426F29E71357F1727EF51B2FEF2D92AB66979
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273216   (798612) от 04.01.2019
+
+Проекты - VideoHive - Winter Slideshow / Titles  - 22978190 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Winter Slideshow / Titles - Красиво оформленный проект с анимированным Рождественским дизайном.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F8377A597DE0D49761F0055BE5163D231A7577D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273927   (798611) от 04.01.2019
+
+Ограбление: Код 211 / 211 (2018) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полицейский код 211 — ограбление банка. Такой сигнал получает офицер Чандлер во время своей смены. Он бросается на место событий, чтобы не позволить преступникам сбежать с добычей.Производство: США / Millennium Films, 211 Productions, Nu Image BulgariaЖанр: Боевик, ДрамаРежиссер: Йорк ШеклтонАктеры: Николас Кейдж, Софи Скелтон, Майкл Рейни мл., Дуэйн Камерон, Уэстон Кейдж, Кори Хардрикт, Ори Феффер, Марк Баснайт, Аманда Серни, Майкл БеллисариоПеревод: Дублированный (iTunes)Субтитры: Английские (полные)Продолжительность: 01:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D28EA369C2C40759B70133EE347324F90A6C0C65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270648   (798610) от 04.01.2019
+
+Ошо (Бхагаван Шри Раджниш) и др. | Сборник книг [409 книг] (2007-2015) [DOC, PDF, FB2, DJVU]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бхагван Шри Раджниш, также известный как Ошо - просветленный индийский мистик, один из самых парадоксальных Учителей нашего времени. Его имена означают "океанический", "растворенный в океане", "божественный", "достигший". Этот человек признан в Индии одним из десяти людей, наравне с Буддой, изменившим жизнь страны. (!?)Жанр: ЭзотерикаФормат: DOC, PDF, FB2, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C3B89FA0D7DACB65D3716C310198CABDA3A187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 351457   (798609) от 04.01.2019
+
+Катакомбы / Catacombs (2007) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798609.jpg" />
+</div>
+
+
+###  Подробнее
+
+200 лет назад останки 7 миллионов парижан были захоронены в катакомбах. Теперь прямо над ними расположен самый романтичный город мира… Однажды Каролин приглашает из Америки свою сестру Викторию, чтобы сводить в Париже на необычную рэйв-вечеринку в тех самых катакомбах! Действительность оказывается еще страшнее, чем они могли себе представить…Жанр: Ужасы, ТриллерРежиссер: Томм Кокер, Дэвид ЭллиотАктеры: Пинк, Шаннин Соссамон, Кабрал Ибака, Каин Маноли, Раду Андрей Мику, Михай Огасану, Эшли РэйнсПеревод: ДублированныйЯзык субтитров: Русские, УкраинскиеПродолжительность: 01:28:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:979DF6642724ADC1D8DDFEC8E1B2515788B42C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481541   (798608) от 04.01.2019
+
+Неприкасаемые / Les Lyonnais (2011) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798608.jpg" />
+</div>
+
+
+###  Подробнее
+
+История самой крутой группировки опасных преступников на юге Франции, которая лихо грабила банки в начале 70-х…Производство: ФранцияЖанр: Драма, криминалРежиссер: Оливье МаршальАктеры: Жерар Ланвен, Чеки Карио, Даниэль Дюваль, Патрик Каталифо, Франсуа Леванталь, Франсис Рено, Лайонел Астье, Валерия Кавалли, Эстелл СкорникПеревод: ДублированныйСубтитры: Английские, РусскиеПродолжительность: 01:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB6B4854A0691D35EDC46ACE839171767CF7A647
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273818   (798607) от 04.01.2019
+
+Безумно богатые азиаты / Crazy Rich Asians (2018) UHD BDRip [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рэйчел Чу — американка китайского происхождения. Она отправляется вместе с бойфрендом в Сингапур на свадьбу его лучшего друга, где узнаёт, что её спутник на самом деле родом из безумно богатого семейства, и все местные женщины до смерти хотят за него замуж.Производство: США / Color Force,SK Global,Warner Bros.Жанр: Мелодрама, КомедияРежиссер: Джон М. ЧуАктеры: Констанс Ву, Генри Голдинг, Мишель Йео, Джемма Чан, Лиза Лу, Аквафина, Гарри Шам мл., Кен ЖонгПеревод: Дублированный (iTunes)Субтитры: Русские (forced, full), английские (full, SDH), украинские (full)Продолжительность: 02:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79409460FBE750BD410D998146AA7D96249F49B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

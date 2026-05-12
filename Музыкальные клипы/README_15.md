@@ -1,3 +1,85 @@
+###  Публикация: 1397265   (737011) от 23.07.2020
+
+Гурт Made in Ukraine - Клипы (2014-2019) WEBRip [H.264/720p/1080p-LQ] 4 клипа
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737011.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Клен зелений (Смуглянка) (2014)
+002 Смуглянка UA (Remix Клен зелений) (2019)
+003 Смуглянка (2018)
+004 Туманочку (2019)Жанр: PopРежиссер: Олександр ФілатовичПродолжительность: 00:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2061B4CE311EA998217A72E45B2DCBC145D1B213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520274   (735329) от 31.01.2022
+
+ABBA - Gimme! Gimme! Gimme! (A Man After Midnight) (1979) WEBRip [H.264/2160p] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный видео-клип, снятый в студии и показывающий всю работу над созданием песни.Производство: UMG (от лица компании "Polar Music International AB")Жанр: Pop, Dance, DiscoРежиссер: Benny Andersson, Björn UlvaeusПродолжительность: 00:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93A1E607BFB8FAFDB93B165FC9C0E055E88C7F18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398343   (734727) от 28.07.2020
+
+ДДТ - Ветер (1994) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Video: ДДТ - Ветер
+Audio: CDA: Это все. 1994Жанр: Альтернативный РокПродолжительность: 00:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DF6587BA62CF4026C0C485F753C9BC7306B725C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1398364   (734690) от 28.07.2020
 
 ПАУК оркестр (Коррозия металла) & Александра Орлова - Лиза разведчица (2015) WEBRip [H.264/1080p] <Thrash, Punk, Oi>
@@ -624,84 +706,6 @@ Anaal Nathrakh - Endarkenment (2020) WEBRip [VP9/2160p] <Grindcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD1141B903DA7A6AD07330B137CCE10293C73F2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 331787   (699526) от 04.05.2011
-
-Scorpions - The Best Is Yet To Come - Live in Prague (2010) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard RockПродолжительность: 00:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ADD91DFA5D21456D273FD65BC6390C32065FEAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 332956   (695625) от 06.05.2011
-
-Lady Gaga - Judas (2011) HDTVRip [720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ВидеоклипПродолжительность: 00:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4821E3FEB72ECA2C10498CD6DDDA049D97C56E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506715   (685990) от 07.06.2012
-
-Иракли - Я тебя люблю (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77592CC08E89CB3D9E08F62CA747FDA26B57B599
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,137 @@
+###  Публикация: 1352228   (1000880) от 15.01.2020
+
+Kenneth Hooper - Directions (2020) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000880.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Directions (8:19)
+2.All Who Wander (8:15)
+3.Trailblazers (6:20)
+4.Springtime Dreaming (9:20)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9766A27218E70EB97ACB7B62050D1CB1CC65DDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598975   (999148) от 07.01.2013
+
+Андрей Сигунов - Bessame Mucho (2011) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999148.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Тико-Тико
+2.Ноктюрн
+3.Besame Mucho
+4.Мой ласковый и нежный зверь
+5.Карусель
+6.Baila con migo
+7.Yesterday
+8.Бегут года
+9.Piccola samba
+10.Cumbia gitana(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B51B4E6567E481E7218CF1E9174166511477A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598967   (999120) от 07.01.2013
+
+Jesse Cook - Greatest Hits (2CD) (2010) [MP3|320 кб/с]<New Age, Flamenco, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999120.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+Продолжительность: 01:19:34
+01. [03:49] Mario Takes a Walk
+02. [03:01] Tempest
+03. [04:10] Paloma
+04. [03:06] Bogota by Bus
+05. [03:29] Matisse the Cat
+06. [04:08] Virtue
+07. [03:48] Rattle and Burn
+08. [03:58] Gravity(   Читать дальше...   )Жанр: New Age, Flamenco, InstrumentalПродолжительность: 02:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BBBC911DF331113F9E476EF046940E229CB052B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598659   (999119) от 07.01.2013
+
+Fausto Papetti - Movie Land (2011) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Theme from 'The Godfather'
+02. Sleep Walk
+03. Cabaret
+04. Love Theme from 'Blade Runner'
+05. Laura
+06. Love Story
+07. Djamballa
+08. Love me tender
+09. As Time Goes By
+10. Hello Dolly(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D02D24FC60C33879EBB5C95F8B010CC0822FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 598653   (999116) от 07.01.2013
 
 Anthony Ventura - Romantische Momente (2010) [MP3|320 кб/с]<Instrumental>
@@ -741,139 +875,6 @@ CD1 - Rawhide01. Johnny Cash - Cry, Cry, Cry
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBF32E4DE86015100417B04A45DE33682A3A8BEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 301513   (990753) от 28.01.2013
-
-Chakra's Dream - 27 albums (2002 - 2009) [MP3|128-320 кб/с]<New age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990753.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:38) 01. The Spirit of Reiki
-(2:10) 02. Quality of Life
-(4:22) 03. Life Energy
-(3:16) 04. Atonement
-(3:33) 05. Karma
-(3:14) 06. Satori
-(3:15) 07. Touch
-(3:51) 08. Body and Mind
-(3:56) 09. The Gift Of Life
-(4:07) 10. Spiritual Conciousness(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 01:06:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353689   (990691) от 19.01.2020
-
-Leonard Cohen - Popular Problems (2014) [FLAC|Lossless]<Contemporary folk, Soft rock, Singer/Songwriter>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.   Slow   (3:25)
-02.   Almost Like The Blues   (3:28)
-03.   Samson In New Orleans   (4:39)
-04.   A Street   (3:33)(   Читать дальше...   )Жанр: Contemporary folk, Soft rock, Singer/SongwriterПродолжительность: 00:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E595AC3E693FD766F63A049757B867C37C352168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609947   (990575) от 29.01.2013
-
-VA - Angel Prayer (2012) [MP3|320 кб/с]<New age, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990575.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:50) 01. Gary Stadler & Stephannie - Garden of Dreams
-(4:32) 02. Alquimia - She Moved Through the Faire
-(4:45) 03. Stella Maris - To the Promised Land
-(4:24) 04. Sharon Kight - May Morning Dew
-(4:10) 05. Gary Stadler & Singh Gaur - Laura's Hill
-(6:51) 06. David Gordon - Beneath the Misty Fell
-(3:13) 07. Achillea - The Monks of Lindisfarne
-(8:27) 08. Everstar - Departure from the Shire
-(5:48) 09. Artemsia - The Fairie Muse
-(4:41) 10. Steve Gordon - Banks of the Avonmore(   Читать дальше...   )Жанр: New age, CelticПродолжительность: 01:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:803DE539DD392EEB4F4B3DDF7BA435F084FB50C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 162542   (990210) от 03.01.2010
-
-Snatam Kaur - Liberation's Door (2009) [MP3|320 kbps]<mantra, spiritual, meditation, new age, female vocalists
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Servant of Peace (7:13)
-02. Liberation's Door (11:01)
-03. Crimson (5:02)
-04. Mother's Blessing (8:11)
-05. Har Har Ram Das Guru Hai (8:19)
-06. Pritham Bhagaautee (7:05)
-07. Charan Sat Sat (6:54)
-08. Ardas Bhayee (9:24)
-09. Cherdi Kalaa (9:44)Жанр: mantra, spiritual, meditation, new age, female vocalistsПродолжительность: 01:12:52
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,12 +1,39 @@
-###  Публикация: 357875   (586300) от 02.07.2011
+###  Публикация: 357554   (587330) от 01.07.2011
 
-[Wallpapers] Mixed wallpapers-2 (01.07.11)
+Serum & Northern Lights - Bad Boys (Serial Killaz remix) / All Night Long (20.06.2011) [MP3|320 kbps]<Drum and Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serum & Northern Lights - Bad Boys (Serial Killaz remix) (05:35)
+02. Northern Lights - All Night Long (feat Bad Education) (05:51)Жанр: Drum and BassПродолжительность: 00:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E6817A33BC542845C95925C7ABF394A0DEFD77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357553   (587328) от 01.07.2011
+
+[Wallpapers] Mixed wallpapers (01.07.11)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587328.jpg" />
 </div>
 
 
@@ -16,7 +43,7 @@
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE3A62CD6AF228AD22D9B19161DE0C89163F193D
+magnet:?xt=urn:btih:0769D30F24AD67604397A07D018970AD4EADEFA6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,86 +51,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 809103   (586299) от 02.08.2014
+###  Публикация: 357480   (587326) от 01.07.2011
 
-Список Шиндлера / Schindler's List (1993) BDRip [H.264/720p-LQ] [10-bit]
-
->>След.
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лента рассказывает реальную историю загадочного Оскара Шиндлера, члена нацистской партии, преуспевающего фабриканта, спасшего во время Второй мировой войны более тысячи ста евреев. Это триумф одного человека, не похожего на других, и драма тех, кто, благодаря ему, выжил в ужасный период человеческой истории.Производство: США / Universal Pictures, Amblin EntertainmentЖанр: Драма, Военный, Биография, ИсторияРежиссер: Стивен СпилбергАктеры: Лиам Нисон, Бен Кингсли, Рэйф Файнс, Кэролайн Гудолл, Эмбет Дэвидц, Джонатан Сагалл, Малгоша Гебель, Шмуэль Леви, Марк Иванир, Беатриче МаколаПеревод: Дублированный, Многоголосый x2, Авторский x5Субтитры: Русские x4, Английские x2Продолжительность: 03:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05EC967C15D85EBAA9FA091E7E50DC39761C5795
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 809364   (586293) от 02.08.2014
-
-Новый Человек-паук: Высокое напряжение / The Amazing Spider-Man 2: Rise of Electro (2014) WEB-DL [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Питер Паркер под маской Человека-паука по-прежнему спасает мир от злодеев и преступников, а свободное время проводит со своей возлюбленной Гвен, но школьная пора близится к концу, и впереди героев ждет взрослая жизнь. Питер помнит о том, что дал отцу Гвен слово навсегда уйти из жизни девушки, тем самым больше не подвергая ее опасности. Однако сдержать это обещание (   Читать дальше...   )Производство: США, Marvel Enterprises, Avi Arad Productions, Columbia PicturesЖанр: Фэнтези, Боевик, ПриключенияРежиссер: Марк УэббАктеры: Эндрю Гарфилд, Эмма Стоун, Джейми Фокс, Дэйн ДеХаан, Колм Фиор, Фелисити Джонс, Пол Джаматти, Салли Филд, Эмбет Дэвидц, Кэмпбелл СкоттПеревод: Дублированный (iTunes)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (Forced, Full), английскийПродолжительность: 02:21:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA041F71EBA0C0A470DDDEABE70367FBC86EC82F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358287   (586292) от 02.07.2011
-
-VA - Hospitality Festival Drum & Bass (01-07-2011) [MP3|320 kbps]<Drum & Bass>
+Status Quo - Quid Pro Quo (2011) [MP3|192-320 kbps]<Hard Rock>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_587326.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. S.P.Y - Turn The Lights Off (05:02)
-02. MUFFLER - Dribble (05:23)
-03. Hybris - Keeping Me (06:41)
-04. London Elektricity - Meteorites feat. Elsa Ssmeralda (Danny B (05:16)
-05. N3GUS - Fill Yer Boots (05:16)
-06. Cyantific - Bounce It (04:05)
-07. Art vs Science - Magic Fountain (Royalston remix) (04:35)
-08. D1 - Flood Of Emotions feat. Jenna G (Enei remix) (04:42)
-09. London Elektricity - The Plan That Cannot Fail (06:11)
-10. Logistics - Gang Colours (05:14)(   Читать дальше...)Жанр: Drum & BassПродолжительность: 02:25:18
+CD1
+01. Two Way Traffic
+02. Rock 'N' Roll 'N' You
+03. Dust To Gold
+04. Let's Rock
+05. Can't See for Looking
+06. Better Than That
+07. Movin' On
+08. Leave A Little Light On
+09. Anyway You Like It(   Читать дальше...)Жанр: Hard RockПродолжительность: 01:40:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DB283774E309700A01F187171FCBD905B053969
+magnet:?xt=urn:btih:37FB1DF2B3B19AA63C7F5540CE938AC20BC57F3C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,25 +86,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 358051   (586290) от 02.07.2011
+###  Публикация: 357462   (587320) от 01.07.2011
 
-Афинская школа / Сенека (2010) SATRip
+[Wallpapers] Mix Wallpapers (30.06.11)
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_587320.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История потомка царского рода, который добровольно оставил свой трон и стал философом, выбрав путь бедности и размышлений. Эфесцы, считавшие его чудаком, вспомнили о Гераклите-мудреце в связи с серьезными для города обстоятельствами, признав его одним из выдающихся мудрецов.Жанр: ДокументальныйПеревод: Не требуется (оригинал, русский)Продолжительность: 00:25:55
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C8C86C8E21D2E8589F8308307891C6113DDFE98
+magnet:?xt=urn:btih:A97C6B4E4DEE72CED1C66005C1CDFDA856FCC4D4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,160 +112,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 357916   (586286) от 02.07.2011
+###  Публикация: 357851   (587319) от 01.07.2011
 
-VA - Новинки Года 6 (2011) [MP3|256 kbps]<Pop>
+Markus Schulz presents Dakota - Thoughts Become Things II (2011) WEB [FLAC|Lossless]<Trance>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587319.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopПродолжительность: 06:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D76A4DE92DAD9AC6640EDA9EBF8EAA50AF2339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357686   (586284) от 02.07.2011
-
-VA - Дискотека: Летний отрыв Русский №100 (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:10:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB56A23F93798E49B8BA9C28459E977BE846440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791499   (586283) от 02.08.2014
-
-Поворот / Turn (2014) WEB-DLRip [H.264/1080p-LQ] (Сезон 1, серия 01-10 из 10) LostFilm
-
->>След.
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586283.jpg" />
-</div>
-
-
-###  Подробнее
-
-События сериала «Поворот» происходят в 1778 году. Нью-йоркский фермер, который живет на захваченном британцами острове Лонг-Айленд, решает помочь своим соотечественникам в борьбе за независимость. Герой сериала собирает вокруг себя группу друзей детства, с помощью которых организовывает шпионскую сеть, призванную предоставлять информацию Джорджу Вашингтону. Эта удивительная (   Читать дальше...   )Жанр: драмаРежиссер: Эдвард Бьянчи, С.Дж. Кларксон, Ник КопусАктеры: Джейми Белл, Хезер Линд, Сэмюэл Рукин, Берн Горман, Noah Downs, Timothy Brooks, Джеймс Дж. Галлахер, Дж.Е. Мацер, John McAdorey, Майк Стивенс  и др.Перевод: Многоголосый закадровый, профессиональный LostFilmПродолжительность: ~01:04:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6C6833220739762DFC149B9EF2725F7E7FFF9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357933   (586282) от 02.07.2011
-
-VA - Record SUPERCHART #196 с DJ Feel (25.06.2011) [MP3|192-320 kbps]<House, Electro, Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: House, Electro, TranceПродолжительность: 03:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A834AEE9481E635DB18A0D5FAA9B36DDB74D6967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 809412   (586281) от 02.08.2014
-
-Первый мститель: Другая война / Captain America: The Winter Soldier (2014) Blu-ray 3D [1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586281.jpg" />
-</div>
-
-
-###  Подробнее
-
-После беспрецедентных событий, впервые собравших вместе команду Мстителей, Стив Роджерс, известный также как Капитан Америка, оседает в Вашингтоне и пытается приспособиться к жизни в современном мире. Но покой этому герою только снится — пытаясь помочь коллеге из агентства Щ. И. Т, Стив оказывается в центре событий, грозящих катастрофой мирового масштаба. Для того, (   Читать дальше...   )Производство: США / Marvel Entertainment, Marvel StudiosЖанр: Фантастика, Боевик, ПриключенияРежиссер: Энтони Руссо, Джо РуссоАктеры: Крис Эванс, Скарлетт Йоханссон, Роберт Редфорд, Сэмюэл Л. Джексон, Себастьян Стэн, Энтони Маки, Коби Смолдерс, Фрэнк Грилло, Максимилиано Эрнандес, Эмили ВанКэмпПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Английский, испанский, французский, португальский, арабский, голландский, русскийПродолжительность: 02:15:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18287438D141AD4F9E728C5CA07624F98182069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357446   (586276) от 02.07.2011
-
-Ella Fitzgerald - Ella Fitzgerald and Friends For Lovers (2007) [APE|Lossless]<Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My One and Only Love - with Nelson Riddle (3:14)
-02. I Didn't Know About You - with Duke Ellington (4:13)
-03. There's a Lull in My Life - with Stan Getz (3:26)
-04. This Time the Dream's on Me - with Billy May & Benny Carter (4:37)
-05. April in Paris - with Louis Armstrong (6:34)
-06. Body and Soul - with Nelson Riddle (3:43)
-07. Dream a Little Dream of Me - with Count Basie (4:06)
-08. These Foolish Things (Remind Me of You) - with Oscar Peterson (7:38)
-09. Midnight Sun - with Stan Getz (3:58)
-10. Prelude to a Kiss - with Ben Webster & Stuff Smith (5:29)(   Читать дальше...)Жанр: Jazz, Vocal JazzПродолжительность: 00:52:27
+01. Gypsy Room (Album Mix) (7:41)
+ 02. Red Star (Album Mix) (6:01)
+ 03. Sleepwalkers (Album Mix) (5:32)
+ 04. I'm Where it Went Wrong (Album Mix) (4:30)
+ 05. Sinners (Album Mix) (4:20)
+ 06. Terrace 5 a.m. (Album Mix) (6:06)
+ 07. Katowice (Album Mix) (4:13)
+ 08. Tears (Album Mix) (4:29)
+ 09. Suggestion No. 5 (Album Mix) (5:00)
+ 10. In a Green Valley (Album Mix) (4:31)(   Читать дальше...)Жанр: TranceПродолжительность: 01:18:39
 
 ## Скачать торент
 ```bash
@@ -302,25 +147,368 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 809474   (586275) от 02.08.2014
+###  Публикация: 357871   (587318) от 01.07.2011
 
-Монтевидео, увидимся! / Montevideo, vidimo se! (2014) DVDRip [VO]
+VA - Ministry Of Sound: Running Trax Winter (2011) [MP3|320 kbps]<Dance,House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587318.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Ministry Of Sound: Running Trax Winter (2011)
+Год: 2011
+Жанр: Dance,House
+Продолжительность: 03:53:48Кодек: MP3
+Битрейт: 320 kbps
+Тип битрейта: CBRТрек лист:
+CD 1:
+Продолжительность: 01:06:31(   Читать дальше...)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C96B57342C9E45E75152AF81584D36A6810E2CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357270   (587317) от 01.07.2011
+
+Пришелец в капусте (1989) [H.264] DVDRip
+
+>>Архив торрентов
+>>Архив Мультфильмов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет,
+объединивший традиционные образы Деда и Бабы
+и вторгшегося в их жизнь Пришельца,
+оказавшегося муравьём,
+позволил авторам провести мысль о том,
+что всё живое на земле требует заботы и участия.Жанр: Кукольный, ДетскийРежиссер: В.ДанилевичПерсонажи: Баьа,Дед,Коза,и др.Продолжительность: 00:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84AB82C023687AD6967E9DA99ABBB726A375CFBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301038   (587309) от 09.05.2019
+
+U.Spin - Victim of the Beat (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_587309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy Astronaut (6:20)
+02. Magic Powder (5:48)
+03. System Nipel (6:02)
+04. Hardcore Noob (6:52)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:31:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301140   (587308) от 09.05.2019
+
+Megaton Leviathan - Mage (2018) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Drone, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wave (5:56)
+02. Take the Fire (6:38)
+03. Mage (6:04)
+04. The Belldog (8:01)(   Читать дальше...   )Производство: Blood MusicЖанр: Doom Metal, Drone, Death Metal, Psychedelic Rock, ExperimentalПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DEA164BD14D3942AAF7089467BDCCE787540386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300736   (587307) от 09.05.2019
+
+Чемпионат мира по хоккею 2019 г. Состав групп, календарь и форма всех команд
+
+>>Поговорим
+>>Новости
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_587307.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 мая в Словакии стартует очередной чемпионат мира по хоккею. 16  сборных в течение 17 дней будут выяснять, кто сильнейший в мире на данный момент.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301040   (587306) от 09.05.2019
+
+U.Spin - SystemA (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_587306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Show You Something (6:57)
+02. Worries of Honey (7:09)
+03. Disturbed (6:44)
+04. Checkpoint (6:42)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301158   (587305) от 09.05.2019
+
+Modern Scribe - Proverb For Peace (2016) [FLAC|Lossless|Web-DL|tracks] <Chillout, Downtempo, Jazzy Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back Roads (6:26)
+02. Value - Colossians 1:20 (5:36)
+03. Trail Blaze (4:54)
+04. Obsession (1:27)(   Читать дальше...   )Жанр: Electronic, Chillout, Downtempo, Jazzy Hip-Hop, Trip HopПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:448340AA01383AF308592AAD93A6C64A04E31627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300921   (587304) от 09.05.2019
+
+Emmanuel - Stamina EP (2019) ARTS / Darkmatter Inc. [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If Only (05:39)
+ 02. Confession (06:43)
+ 03. Once In A Lifetime (04:59)
+ 04. Stamina (05:02)Жанр: TechnoПродолжительность: 00:22:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC85DD75348924DB96D55917C5820A6CD8894DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301123   (587303) от 09.05.2019
+
+Журнал | Великие открытия №5 (2019) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587303.jpg" />
+</div>
+
+
+###  Подробнее
+
+На Земле жило немало гениев, однако самый впечатляющий художник, скульптор и строитель - это, без сомнения, сама Природа. Именно она сотворила такие чудеса, в реальность которых иногда даже трудно поверить!Жанр: популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B5D937E1181D607A35FFFF41274692E5728A882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301107   (587301) от 09.05.2019
+
+9beats - The Dark Side Of Nature (2019) Annulled [FLAC|Lossless|WEB-DL|tracks] <Techno, Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sea Vent (06:32)
+ 02. Equilibrium (08:35)
+ 03. Matter Creation (06:40)
+ 04. Phreatic Eruption (08:08)(   Читать дальше...   )Жанр: Techno, Dub Techno, AmbientПродолжительность: 01:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2498D25A900AEE6761DE3F85AC72DD9718C086D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040373   (587300) от 04.08.2016
+
+Журнал | Наука и жизнь №8 (август 2016) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587300.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Наука и жизнь" - ежемесячный научно-популярный иллюстрированный журнал широкого профиля. Издание ориентировано на массового читателя. Освещает важнейшие проблемы науки и техники, публикует научно-художественные и научно-фантастические произведения, занимательные задачи, игры. Главная цель: популяризация научных знаний.Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6020BBC4C1A6C64282A1F0D830F8D7324C2FFAE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040342   (587298) от 04.08.2016
+
+Экшены - GraphicRiver - Comics Photoshop Action [ATN, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Comics - экшен для Вашего творчества.Формат: ATN, PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CECCBE699196C90CC72DA93C137A63487568CB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040290   (587297) от 04.08.2016
+
+Серая сова / Grey Owl (1999) WEB-DLRip [H.264]
 
 >>Зарубежное кино
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587297.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Футбольная сага 1930 года. Была продолжена в столице Уругвая, где после тяжелого путешествия через Атлантику, первая сформированная команда, Королевства Югославии была в числе участвующих в первом чемпионате мира по футболу. Команда из небольшой балканской страны, которой обеспечивают минимальные шансы на успех, жребий попадает на главного противника чемпионата, (   Читать дальше...   )Производство: СербияЖанр: Комедия, Приключения, СпортРежиссер: Драган БьелогрличАктеры: Милош Бикович, Петар Стругар, Виктор Савич, Арманд Ассанте, Иван Зекич, Небойша Илич, Войин Четкович, Никола Джурицко, Срджан Тимаров, Срджан Тодорович, Драган НиколичПеревод: Одноголосый закадровый, любительский -  ViruseProjectПродолжительность: 02:26:54
+Британец Арчи Белани считал своим домом дикие леса Канады. Известный среди местных индейцев и охотников под именем Серая Сова, Арчи был одиночкой, и сам избрал этот путь, опасный и непредсказуемый. Здесь он был хозяином, способным постоять за себя и прийти на помощь попавшим в беду.Производство: Великобритания, КанадаЖанр: Драма, приключения, вестерн, биографияРежиссер: Ричард АттенбороАктеры: Пирс Броснан, Стюарт Бик, Власта Врана, Анни Галипо, Нил Кроетч, Серж Уд, Питер Колви, Натаниель Арканд, Жак Люссье, Ли-Рой Джейкобс ...Перевод: Профессиональный двухголосыйЯзык субтитров: Русский, английскийПродолжительность: 01:53:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05232779E02DB84E3A689C00F9ABA7034E6A6B49
+magnet:?xt=urn:btih:7A2235D00DC15EBFD5472213109FEFF7E99F6CD9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -328,25 +516,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 809621   (586272) от 02.08.2014
+###  Публикация: 1040385   (587296) от 04.08.2016
 
-Проекты - VideoHive - Magic Popup Book - 3266747 [AEP]
+Проекты - VideoHive - BeautySlide [AEP]
 
 >>Проекты
->>Детские (проекты)
+>>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587296.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Очень красивый детский проект для создания волшебного фото альбома. Детские фотографии в 3D книге умилят родительские сердца и заставят улыбнуться даже самых угрюмых.Формат: AEP
+BeautySlide - это прекрасный и волшебный проект для создания слайд-шоу, который предназначен для особых случаев. Шаблон быть использован для проведения свадеб, дней рождения, воспоминаний или в качестве подарка любимому человеку.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6C0559A405E281C1ECFBD10AAB7B588BC5F7A19
+magnet:?xt=urn:btih:5BC0FEDBA8EA262717908557314F202CC764AA3D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -354,344 +542,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300964   (586270) от 10.05.2019
+###  Публикация: 1040252   (587295) от 04.08.2016
 
-Papir - VI (2019) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VI.I (10:05)
-02. VI.II (08:58)
-03. VI.III (09:25)
-04. VI.IV (11:04)Жанр: Psychedelic Rock, Space RockПродолжительность: 00:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A724ECF582F0E9A9CD71B24CBD885167672E9E7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301270   (586269) от 10.05.2019
-
-Журнал | Luxury London [UK] №4 (апрель 2019) [PDF] [En]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586269.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Luxury London Magazine», созданный самой передовой и точной в мире системой распространения журналов, представляет собой прекрасно подготовленное, профессионально написанное ежемесячное издание, посвященное пропаганде этической роскоши.Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5758FCC9A4C5734711A366F7BDD3A3099BCFD0C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301178   (586268) от 10.05.2019
-
-VA - Flowers Of May (2019) [MP3|320 Kbps] <Ambient, Downtempo>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacred Seeds — Eternity (Alan Watts) 06:32
-02. Audiomath — On My Way Home 06:07
-03. Ancient Core & Ajna Vitamin — Ancient Vitamin 09:15
-04. Reasonandu — Daisies (Edit Version) 05:24(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F9671C5CEC7AD70FC705E27CCFA2E935D2FF4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301310   (586267) от 10.05.2019
-
-Хоккей. Еврохоккейтур 2018-2019. Чешские хоккейные игры 2019. 3-й Тур. Чехия — Россия (2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_586267.jpg" />
-</div>
-
-
-###  Подробнее
-
-05 мая 2019, воскресенье. 19:00 МСК
-Еврохоккейтур (Euro Hockey Tour) - ежегодный хоккейный турнир  2018-2019
-Чешские хоккейные игры 2019. 3-й Тур.
-Чехия — Россия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:56:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301239   (586266) от 10.05.2019
-
-СРАЗУ МАЙ - #одинаковоразные (2017) [MP3|320 Kbps] <Pop-Rock, Alternative>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_586266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Подделки
-02. Кранае
-03. Самолёты любви
-04. Переверни мой мир(   Читать дальше...   )Жанр: Pop-Rock, AlternativeПродолжительность: 00:46:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300953   (586265) от 10.05.2019
-
-Хоккей. Еврохоккейтур 2018-2019. Чешские хоккейные игры 2019. 2-й Тур. Чехия — Швеция (2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_586265.jpg" />
-</div>
-
-
-###  Подробнее
-
-04 мая 2019, суббота. 19:30 МСК
-Еврохоккейтур (Euro Hockey Tour) - ежегодный хоккейный турнир  2018-2019
-Чешские хоккейные игры 2019. 2-й Тур.
-Чехия — Швеция(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:58:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301185   (586264) от 10.05.2019
-
-Lydia Ainsworth - Phantom Forest (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diamonds Cutting Diamonds
-02. Tell Me I Exist
-03. Can You Find Her Place
-04. Edge Of The Throne(   Читать дальше...   )Жанр: Electronic, AlternativeПродолжительность: 00:31:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA8298C3D82D6A12697EF22377498CDEE5236A51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301351   (586263) от 10.05.2019
-
-Gino Vannelli - Black Cars (1984) [FLAC|Lossless|image + .cue] <jazz, jazz/rock, fuzion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586263.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Black Cars
-2. The Other Man
-3. It's Over
-4. Here She Comes(   Читать дальше...   )Жанр: jazz, jazz/rock, fuzionПродолжительность: 00:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63B88B723EEF6CE6B05DF4B3758A306E4B25664F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300942   (586262) от 10.05.2019
-
-Хоккей. Чемпионат Мира среди женщин 2019. Эспоо (Финляндия). 1/2 Финала. США — Россия (2019) WEB-DL [H.264/720p-LQ]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_586262.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 апреля 2019 года.
-20-й Чемпионат Мира по хоккею с шайбой среди женщин 2019 года. Эспоо (Финляндия)
-1/2 Финала
-США — Россия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301192   (586259) от 10.05.2019
-
-Music Sun Love - Mo' Horizons (2019) [FLAC|Lossless|WEB-DL|tracks] <Groove, Jazz, World, Latin>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_586259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wagabunga Dance (feat. Stoyan Royanov)
-02. Rhythm Is A Dancer (feat. Conneccíon Bogotá)
-03. Mo Space (Part 2) (feat. Tricky Pantrick)
-04. La Vida Es Solo Hoy (feat. Ivan Camelo)(   Читать дальше...   )Жанр: Groove, Jazz, World, LatinПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301156   (586258) от 10.05.2019
-
-VA - Jazz Me Tonight (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_586258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Williams - In The Evening (When The Sun Goes Down)
-02. Michael Brecker - Evening Faces
-03. Spyro Gyra - When Evening Falls
-04. Quincy Jones & His Orchestra - Evening In Paris(   Читать дальше...   )Жанр: JazzПродолжительность: 02:01:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301135   (586256) от 10.05.2019
-
-VA - Monster Jinx - ROXO 05 (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Beats, Electronic>
+IceCream Screen Recorder Pro 3.70 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587295.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Arekkusu – free tay k (1:58)
-02. Ghost Wavvves – Reckless (3:18)
-03. Maria – tuescolhessempreonome (2:46)
-04. E.A.R.L. – XMAS STRUT (4:47)(   Читать дальше...   )Жанр: Hip-Hop, Beats, ElectronicПродолжительность: 00:40:24
+Программа, позволяющая вести запись видео с экрана компьютера, а также делать скриншоты как всего окна, так и выбранной области. Приложение обладает полным набором необходимых инструментов для захвата видео с экрана, являясь при этом очень понятным и удобным в использовании. Запись игр, Skype, вебинаров и много другого с экрана стала еще проще.Язык интерфейса: Русский, Английский, др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8DFAF49B6C92A996ED4BE2CAF584F73C94F4407D
+magnet:?xt=urn:btih:AFC8D29BC028542DB4D3044C1ACC0947D2B3E109
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -699,24 +568,155 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300816   (586255) от 10.05.2019
+###  Публикация: 1039684   (587293) от 04.08.2016
 
-Razzmattazz - Hallelujah (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+Подборка | Книги по языку программирования D [3 книги] (2015-2016) [PDF] [En]
 
->>нет
->>нет
+>>Компьютерная литература
+>>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_586255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587293.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Gun For Hire (3:58)
-02. Crazy For Rock And Roll (3:49)
-03. Backdoor Man (3:12)
-04. Lawbreaker (3:35)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:28
+Подборка из трёх книг о языке программирования D:
+Michael Parker «Learning D»
+Ali Cehreli «Programming in D»
+Kai Nacke «D Web Development»(   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF16FE4329C16864B02215646B7D38B4B9759311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040176   (587292) от 04.08.2016
+
+Варкрафт / Warcraft (2016) WEB-DLRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веками магия и неприступные стены защищали людей от любых напастей. Но древнее зло, побежденное и забытое тысячелетия назад, пробудилось. В самом сердце королевства открылся темный портал, и раса невиданных существ наводнила земли Азерота. Так начались события, призванные навсегда изменить судьбу этого мира.Производство: США, Blizzard Entertainment, Legendary Pictures, Universal PicturesЖанр: Фэнтези, Боевик, ПриключенияРежиссер: Дункан ДжонсАктеры: Трэвис Фиммел, Бен Фостер, Пола Пэттон, Тоби Кеббелл, Роберт Казински, Доминик Купер, Даниэль Ву, Клэнси БраунПеревод: Дублированный (iTunes)Продолжительность: 02:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E6B39E254E33F469EC970BEF357298D8BCC2590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040310   (587290) от 04.08.2016
+
+8GadgetPack 20.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587290.jpg" />
+</div>
+
+
+###  Подробнее
+
+8GadgetPack представляет собой инструмент, который поможет вернуть привычные гаджеты на рабочий стол в Windows 8, которые помогают быстро получать нужную информацию (часы, календарь, погода, курсы валют, системные и так далее). Гаджеты устанавливаются тем же простым способом, как и раньше. В комплекте с программой идут 45 гаджетов (официальные от Microsoft, а также (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D2C1AE55A88153468DE9BC0A9781B23B73F9DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040156   (587288) от 04.08.2016
+
+Донни Браско / Donnie Brasco (1997) BDRip [H.264] [Extended Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-Йорк, 1978 год. Агент ФБР Джо Пистоне получает новое задание: внедриться в одну из преступных группировок Бруклина с целью получения полноценной информации о деятельности гангстерских банд. Он должен забыть свое настоящее имя, порвать со всеми друзьями и родными, так как теперь он - Донни Браско. Его лучшим другом становится стареющий мафиози, нуждающийся в молодом (   Читать дальше...   )Производство: США / Baltimore Pictures, Mandalay Entertainment, Mark Johnson ProductionsЖанр: Драма, Криминал, БиографияРежиссер: Майк НьюэллАктеры: Джонни Депп, Аль Пачино, Майкл Мэдсен, Бруно Кёрби, Джеймс Руссо, Энн Хеч, Желько Иванек, Джерри Бекер, Роберт Миано, Брайан Тарантина, Рокко Систо, Зэк Гренье, Уолт Макферсон, Ронни Фарер, Терри Серпико, Гретхен Мол, Тони Лип, Джордж Анджелика, Вэл Эйвери, Мэдисон Арнольд, Делани Фицпатрик, Тим Блейк НельсонПеревод: Профессиональный (многоголосый закадровый), профессиональный (двуголосый закадровый), авторский (одноголосый закадровый)Язык субтитров: Русский, АнглийскийПродолжительность: 02:27:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21899D5C632E21609A72B34AF0A53091492BE99E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039601   (587287) от 04.08.2016
+
+Питер Дэниелс | Судьба третьего тысячелетия (2006) DVDRip [H.264]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для тех, кто много раз пытался преуспеть и потерпел неудачу, программа "Судьба третьего тысячелетия" даст новый аспект надежды с практической информацией, для того что бы начать заново, и независимо от возраста, места и прошлого опыта.
+Программа "Судьба третьего тысячелетия" была составлена выдающимся австралийцем Питером Дениэлсом. Его книги, (   Читать дальше...   )Производство: Вануату/World Centre for Entrepreneurial Studies FoundationЖанр: Бизнес, ПсихологияПродолжительность: 00:40:12(mkv);05:03:48(mp3)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:386F71C6D73658D70CE2F31AA13CEC9389B32D81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040174   (587285) от 04.08.2016
+
+Тарзан. Легенда / The Legend of Tarzan (2016) WEBRip [H.264/720p-LQ]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_587285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приспособившийся к жизни в Лондоне Тарзан возвращается в свой бывший дом, в джунгли, чтобы разобраться в том, что происходит в лагере горнодобывающей компании.Производство: США / Dark Horse Entertainment, Jerry Weintraub Productions, Riche ProductionsЖанр: Боевик, ПриключенияРежиссер: Дэвид ЙэтсАктеры: Александр Скашгод, Марго Робби, Кристоф Вальц, Сэмюэль Л. Джексон, Джимон Хонсу, Джон Херт, Саймон Расселл Бил, Элла ПернеллПеревод: Дублированный (Звук c TS)Язык субтитров: КорейскийПродолжительность: 01:47:37Реклама: Присутствуют голосовые и текстовые вставки.
 
 ## Скачать торент
 ```bash

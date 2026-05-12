@@ -1,3 +1,148 @@
+###  Публикация: 187817   (516886) от 20.08.2018
+
+Українські стрілецькі та повстанські пісні (Ukrains'ki strilec'ki ta povstans'ki pisni) (2008) [MP3|192-320 kbps]<Folk, ethnic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ой, у лузі червона калина (Етнографічний хор "Гомін")
+02. Вже бубон грає (Квартет бандуристів "Рось")
+03. Ой, видно село (Національна заслужена капела бандуристів України ім. Г. І. Майбороди)
+04. Зажурились галичанки (Держ. засл. Буковинський анс. пісні і танцю)(   Читать дальше...   )Жанр: Folk, ethnicПродолжительность: 01:15:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:099D921663F18F6676FA835188AC7B52CD300186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241857   (516174) от 21.08.2018
+
+Dan Owen - Stay Awake with Me (2018) [MP3|320 Kbps] <Folk-Rock, Pop, Soul>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What is a Man (3:44)
+02. Icarus (3:28)
+03. Made to Love You (3:18)
+04. Fall Like a Feather (3:22)(   Читать дальше...   )Жанр: Folk-Rock, Pop, Soul, Singer/SongwriterПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12822CB589729E7D0042D312C8175414D8D2A1E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242108   (516112) от 21.08.2018
+
+Cyril Baranov - Rosa (2018) [MP3|320 Kbps] <New Age, Neo-Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. April – 3:28
+02. Rosa – 4:07
+03. Ghost River – 5:47
+04. Sunflowers Red – 4:27(   Читать дальше...   )Жанр: New Age, Neo-ClassicalПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F3E78917DCAEE43CAA83A77F4BD7C9F8C8E8D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241960   (516030) от 21.08.2018
+
+VA - Street Hits 70s (2018) [MP3|320 Kbps] <Boogie, R&B, Soul-Jazz, Gospel Music, Dance, Disco, Country>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sister Sledge - He's the Greatest Dancer
+02. Chaka Khan - I'm Every Woman (Lew Hahn Remix)
+03. Slave - Just a Touch of Love
+04. Candi Staton - Young Hearts Run Free(   Читать дальше...   )Жанр: Boogie, R&B, Soul-Jazz, Gospel Music, Dance, Disco, CountryПродолжительность: 02:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF9F1A462B5E9C1815DF0DAB36F768529E7AB8E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561223   (515531) от 04.07.2022
+
+Bernward Koch - Tree Tales (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Key (2:40)
+ 02. Inner Light (4:09)
+ 03. Lonely Pinwheel (2:49)
+ 04. Warm Fall Sun (3:01)(   Читать дальше...   )Жанр: New Age, Modern Classical, PianoПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52416231708C722DB98A66106F0FF173738ABD94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 536187   (515361) от 17.08.2012
 
 Vangelis - The Collection (2CD) (2012) [FLAC|Lossless]<Electronic, New Age>
@@ -619,151 +764,6 @@ Biffy Clyro ‎ - Balance, Not Symmetry (2019) Original Motion Picture Soundtrac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B178A9A365DEEA4B4CCFF1741971FA8B25200D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316128   (508795) от 23.07.2019
-
-Luis Berra - Before Chaos (2019) [MP3|320 Kbps] <Instrumental, Piano>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508795.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Birds (2:34)
-2.Breath (3:36)
-3.Don't Mess With the Melody (2:43)
-4.Drops (2:11)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A52F51A489DB00B6E035FF82B65C42486F9AF51E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316085   (508736) от 23.07.2019
-
-Alkualat - Space Journey (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Praeludium
-02. Heliosphere
-03. Jansky
-04. Event Horizon(   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10CD75EDF0D507DA466C7C28ACC46B072FE33C34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932772   (508242) от 30.08.2015
-
-Phildel - Qi (2015) [MP3|320 кб/с]<Piano, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ice-Float
-02. Icarus
-03. Dragonfly Keeper
-04. Winter Valley(   Читать дальше...   )Жанр: Piano, New AgeПродолжительность: 00:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D594D4419E9FB05B193C5D1A6692B5D3746BFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932471   (508231) от 30.08.2015
-
-Shooglenifty - The Untied Knot (2015) [OGG| 462-531 кб/с]<World, Folk Rock, Celtic Fusion>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Untied Knot | The Fall | Mile Marbhaisg Air A' Ghaol
-02. The Scorpian | The Devil's Breath Hornpipe
-03. Samhla Reel | Scolpaig
-04. Somebody's Welcome To Somewhere(   Читать дальше...   )Жанр: World, Folk Rock, Celtic FusionПродолжительность: 00:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD935525C7E75128C7BC60AF541AD5CB1AA44F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932461   (508047) от 30.08.2015
-
-Francisco Canaro - Tango Collection (2010) [MP3|192 кб/с]<Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Poema
-02 - Golondrinas
-03 - Cambalache
-04 - No Hay Que Hacerse Mala Sangre(   Читать дальше...   )Жанр: TangoПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F21341C1039622A539146BB1CA4A7FB7923EE21
 ```
 
 https://mybot314.ru/tekegram_catalog/

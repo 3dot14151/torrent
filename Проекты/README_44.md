@@ -1,3 +1,55 @@
+###  Публикация: 1097163   (915121) от 26.01.2017
+
+Проекты - VideoHive - Valentine Hearts - 19293463 [AEP]
+
+>>Проекты
+>>Свадебные и романтические (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Valentine Hearts - проект для создания поздравительного ролика к дню Святого Валентина или Свадьбе!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37F4BB3230AACD6133BB8E972D605C1CF711498D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097151   (915117) от 26.01.2017
+
+Проекты - VideoHive - Elegant Opener Slideshow - 19279741 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elegant Opener Slideshow - проект для создания елегантного слайд-шоу кинематографического качества с уникальным современным дизайном.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23778D09C99F30050F5AE54AB384533F43D6005A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097323   (915111) от 26.01.2017
 
 Проекты - VideoHive - FLASH FX MOTION - Traditional 2d Animated Elements - 18863784 [AEP]
@@ -629,60 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:791509ED197B3065D0A2495AB7F89639EB152D49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990020   (913010) от 24.02.2016
-
-Проекты - Pond5 - A Colorful Splash Of Life Opener [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE9A21D741D647F0B9B7E0D81E26F9A66E89A1B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989931   (912993) от 24.02.2016
-
-Проекты - Проект ProShow Producer - Flowers of the Life [PSH]
-
->>Проекты
->>Детские (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект создан в PSP-6. Детская презентация.
-Проект может быть использован в оригинальном исполнении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов. Превью и саундтрек - в раздаче.Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA5AA3FB9B0E955EE948855098F19BD5D9C5E39
 ```
 
 https://mybot314.ru/tekegram_catalog/

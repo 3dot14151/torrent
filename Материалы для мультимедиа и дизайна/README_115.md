@@ -1,3 +1,107 @@
+###  Публикация: 1391550   (772792) от 21.06.2020
+
+Растровый клипарт - Money in fan shape dollar [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт доллары для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 3169x2355-5000x3493
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AB0254F9B5B3E22D806B1A797F1C06143BD36ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391565   (772788) от 21.06.2020
+
+Шаблоны - Creative Market - Italian Restaurant Scene Generator - 1613701 [JPG, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот генератор сцен, который позволяет вам создавать собственные оригинальные презентации фирменного стиля, посвященные пицце, специям и еде, просто перетаскивая элементы в Photoshop.Формат: JPG, PSDРазрешение файлов: 1920x1280-4500x7396
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A59F6FDFF314ED8620C3A31941DE39D6484142
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015851   (772668) от 12.05.2016
+
+Экшены - GraphicRiver - Destrukt Photoshop Action - 11427937 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C75507B15D97DCD30AA4825103F61AFC79848A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015907   (772665) от 12.05.2016
+
+Экшены - GraphicRiver - Fearless Photoshop Action - 10063348 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54430FABA3A2D7F67B512D16D0FBA3C1BD9C9CC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015767   (772663) от 12.05.2016
 
 Экшены - GraphicRiver - Architekt Photoshop Action - 9368099 [ATN]
@@ -564,110 +668,6 @@ Rough Pencil Sketch Photoshop Action - примените к вашим фото
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC67E5603F3DB454E3F77BF3A6BC260C5A6BD446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015818   (772421) от 12.05.2016
-
-Экшены - GraphicRiver - Vintage Photoshop Action - 15838382 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vintage Photoshop Action - этот набор действий позволяет окунуться в мир винтажного искусства.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A9EFB6E45A98AB795FA868D34E78691974EFA58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015876   (772420) от 12.05.2016
-
-Экшены - GraphicRiver - Double Exposure Photoshop Action - 11319908 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C8A5B8F374ECB4BEE52DCC5E237CBE5C1F4242
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015516   (772410) от 12.05.2016
-
-Экшены - GraphicRiver - Energy Photoshop Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Energy Photoshop Action - Добавьте энергии к вашим работам. Будьте властелином в мире магии !!Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209BFE0D7FD600BC280DA87AF24112C56CDEC7FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015863   (772344) от 12.05.2016
-
-Экшены - GraphicRiver - Dispersion 2 Photoshop Action - 8929152 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5556ED40E663D9A1BA241EA577479F5C8ADAAA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1185070   (296752) от 19.11.2017
+
+Проекты - VideoHive - Double Parallax Slideshow - 20007749 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Double Parallax Slideshow - позвольте мне представить вам очередную профессиональную презентацию с последовательностью названий, с расширенным эффектом параллакса двойного воздействия, чтобы помочь вам выделить ваше видео-обращение. Идеально подходит для кинематографа, научно-популярного видео-журнала, романтического или свадебного фильма, эпического слайд-шоу, темы (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F6F50590A51B1DA78C3E9FE1AD1B83FF48B642A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185104   (296672) от 19.11.2017
+
+Проекты - VideoHive - Motion Text Maker v.2 - 18119422 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Motion Text Maker (New Update v2)  - обновленная версия креативной анимации технологичных титров.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0114D03E368AD0AE3CB65B2A1E5DF170F7E7CF5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961866   (296640) от 03.12.2015
 
 Проекты - Motion Array - Cool Slideshow [AEP]
@@ -623,60 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1201D0B6E1AC7F8AC001627FB824C54FE1BCBEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962471   (294496) от 04.12.2015
-
-Проекты - VideoHive - Photo & Bokeh Gallery [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E8B9F960E05CB9EA925ECD7D64C84A581823C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962470   (294391) от 04.12.2015
-
-Проекты - VideoHive - New Year Round Animation - 5727925 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект - заставка для Новогоднего видео.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A29DBDBEE397F2928E82FBE498304AB7B6A5C15
 ```
 
 https://mybot314.ru/tekegram_catalog/

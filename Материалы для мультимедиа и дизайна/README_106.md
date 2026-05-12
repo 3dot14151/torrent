@@ -1,3 +1,112 @@
+###  Публикация: 1207446   (780557) от 18.02.2018
+
+Векторный клипарт - Happy Mothers Day, 8 March vector [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+День матери, 8 марта
+9 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADE1F311768F1D7DBD72F7C171A68C74CAD38E40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207570   (780547) от 18.02.2018
+
+Растровый клипарт - Fotolia - Fashion studio portrait of beautiful woman [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Съемки на модной фотостудии с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4872x6496-6267x6267
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9AB8C2082EDF871B08E511E43A6FFF91BE3C715
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207715   (780379) от 19.02.2018
+
+3D модели - Daz 3D - Aiko 7 Pro Bundle - 31491 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Aiko 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE60A02C1DF11F1834747A0B13A02E0D800B7884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207711   (780369) от 19.02.2018
+
+3D модели - 3ddd - Мотоцикл Иж-49 [V-Ray|*.max, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иж-49 — дорожный мотоцикл среднего класса.
+1951 по 1958 год.
+Разработан на базе немецкого мотоцикла DKW NZ 350Формат: V-Ray|*.max, FBX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C8614C6ABE0EA9DC727DDF81D824460256E0F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207713   (780362) от 19.02.2018
 
 3D модели - 3ddd - ВАЗ 2101 [V-Ray|*.max, FBX]
@@ -581,114 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BDE81A172C7546D2687E91FADFC7608A880F430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208236   (780049) от 21.02.2018
-
-3D модели - Free3D - Mercedes-Benz S63 AMG Cabriolet 2017 - 4198 [Mental Ray|*.max, 3DS, C4D, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780049.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки Mercedes-BenzФормат: Mental Ray|*.max, 3DS, C4D, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25477EABEE50AA214148093B5FC76F9BFF1F0F64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208329   (780046) от 21.02.2018
-
-3D модели - 3ddd - Набор писсуаров тм KOLO [V-Ray|*.max, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780046.jpg" />
-</div>
-
-
-###  Подробнее
-
-В наборе: 4 писсуара и керамическая перегородка, файл 2012 макса + fbx.Формат: V-Ray|*.max, FBX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDCAC3FD14B6992E59A300CA4545A715DE0D1767
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208240   (780026) от 21.02.2018
-
-3D модели - CGTrader - American Beauty Free 3D model [V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из старых сцен, возможно, некоторые из вас это помнят.
-Теперь доступно также для скачивания, если кто-то заинтересован.
-Сделано в 3Ds max, Zbrush, визуализировано в Vray.Формат: V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D9A93AC16DE9F7F90E1563EBDD5E55539F7090F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208491   (779980) от 22.02.2018
-
-Векторный клипарт - Valentine day greeting vector card #21 [EPS, AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Открытка на День Св. Валентина
-19 EPS, AI + previewФормат: EPS, AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F0A55CF08BF74BEB23011ED483BE2E0A563C4AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

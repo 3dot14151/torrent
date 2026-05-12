@@ -1,3 +1,35 @@
+###  Публикация: 597393   (1000486) от 02.01.2013
+
+VA - Rose Quartz. The Rose Quartz Of Buddist (2005) [MP3|320 кб/с]<New age, Instrumental>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000486.jpg" />
+</div>
+
+
+###  Подробнее
+
+(07:57) 1. The beauty of pink crystal
+(06:38) 2. I love pink crystal music
+(04:53) 3. Pink crystal. Please let me have it
+(05:39) 4. Clean elegant pink crystal
+(12:47) 5. The hope of crystal
+(06:38) 6. The pink crystal of buddist
+(05:43) 7. The happy pink crystalЖанр: New age, InstrumentalПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0CD60B37100EDE7B66F5A0D74848FA6B96DB1CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597117   (1000485) от 02.01.2013
 
 VA - Crystal Avolokitesvara (2006) [MP3|320 кб/с]<New age, Relax>
@@ -774,35 +806,6 @@ Kanae Nozawa - Planet (2014) [MP3|320 кб/с] <Instrumental Folk, New Age, Rela
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C14923D31901B2787CFB4E87F742E20D66A5E19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362565   (947840) от 24.02.2020
-
-BTS - Map of the Soul: 7 (2020) [FLAC|Lossless|tracks + .cue] <K-pop, Pop Rap>
-
->>East Asian Music
->>Asian Pop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro : Persona (02:51)
-02. Boy With Luv (feat. Halsey) (03:49)
-03. Make It Right (03:46)
-04. Jamais Vu (03:47)(   Читать дальше...   )Жанр: K-pop, Pop RapПродолжительность: 01:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D15DA5F5356EEED53E672C4E439C74B2BE2529C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

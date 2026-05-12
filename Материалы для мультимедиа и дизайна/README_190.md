@@ -1,3 +1,107 @@
+###  Публикация: 1045685   (557722) от 24.08.2016
+
+Экшены - GraphicRiver - Pro Dissolve Effects - Photoshop Actions [ATN, ABR, ASL, TPL]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pro Dissolve Effects - экшен для Вашего творчества.Формат: ATN, ABR, ASL, TPL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D2AD58E578285F590D23029BAA33A23B16E8303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045659   (557719) от 24.08.2016
+
+Экшены - GraphicRiver - Tradition Vintage Hand drawing Photoshop Action - 17494673 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tradition Vintage Hand drawing - экшен для Вашего творчества.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B79CC9C7A4C17231E06C35D2F52F9F604B744F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045691   (557718) от 24.08.2016
+
+Экшены - GraphicRiver - Seveso Photoshop Action [ATN, ABR, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Seveso - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR, PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDDCAD15F7EE9833F2FD066081F02B4131493108
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045701   (557716) от 24.08.2016
+
+Экшены - GraphicRiver - SprayArt - Photoshop Action [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557716.jpg" />
+</div>
+
+
+###  Подробнее
+
+SprayArt - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6550ED862B7146BE0CC398F1C8D757C9DE00F8D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045589   (557658) от 24.08.2016
 
 Шаблоны - Bus Trip V1 Flyer PSD Template + Facebook Cover [PSD]
@@ -591,116 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0153AFFC87E2AC1B31886CA5CDDDADD7B04337D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472223   (556306) от 31.05.2019
-
-Текстуры - Бесшовные текстуры и фоны. Часть 1 [JPEG, GIF]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прелесть бесшовных текстур именно в том, что имея небольшое изображение мы можем создать идеальный, бесшовный фон абсолютного любого масштаба. Другими словами, бесшовная текстура — это рисунок с бесконечно повторяющимися графическими элементами, который с помощью дублирования позволяет создать текстуру абсолютно любого размера при этом не имея каких-либо визуальных (   Читать дальше...   )Формат: JPEG, GIFРазрешение файлов: 100x100 - 1200x1200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3781EE59C70B3C6A27FC6AA769AD4026CFB4D665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235993   (556285) от 15.07.2018
-
-Векторный клипарт - Country Houses Set 5 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Загородные дома
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C567039CFE8782D11E0828782DB97F8D322D6ECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235991   (556275) от 15.07.2018
-
-Векторный клипарт - Seamless Floral Borders 66 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Бесшовные цветочные границы
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:393E1579811CED99A174D46BAB88ECAFADEF1AE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235992   (556273) от 15.07.2018
-
-Векторный клипарт - Fruits vector realistic, orange, plum [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Свежие фрукты и ягоды
-9 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B70B95E8A25DCC8FF60BBD94384732657024E347
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,36 @@
+###  Публикация: 850931   (275183) от 17.12.2014
+
+MiddleIsland - 17 альбомов (2006-2014) /Doujin/ [FLAC|Lossless] <J-Rock, Gothic Rock, Electronic>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2006.12.31 (MICD-0002) Anthem - Anata e (C71)
+2007.08.17 (MICD-0003) Genjitsu Shoumei (C72)
+2007.10.08 (MICD-0004) Genjitsu Hitei (M3-20)
+…
+2011.05.01 (MICD-0011) Tryst End (M3-27)
+2012.04.30 (MICD-0105) Gensou Achromatic (M3-29)
+2014.04.27 (MICD-0201) Closed Space (M3-33)Тип издания: DoujinЖанр: J-Rock, Gothic Rock, ElectronicПродолжительность: 00:06:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BA96F322259722945D95413C636C68770DFC7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084164   (272149) от 17.12.2016
 
 Sojiro - Forest Of The Ocarina (2016) 2 CD [MP3|320 Kbps] <New Age, Ethnic Fusion>
@@ -785,38 +818,6 @@ Further Ahead Of Warp - 5 альбомов (2012-2014) Touhou Vocal /Doujin/ [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB49F4D480A55396F18A203F28101077AFD0F355
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 735043   (228049) от 18.12.2013
-
-Tsugumi - 3 альбома (2012-2013) [FLAC|Lossless] <Touhou, Vocal, Doujin Ongaku, J-Rock>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228049.jpg" />
-</div>
-
-
-###  Подробнее
-
-[04:14] 01. リボン - 暗闇に甘い鍵
-[04:05] 02. 珠梨 - Prayer
-[04:18] 03. Cutie Pai まゆちゃん - Clap Line
-[05:19] 04. リボン - 初恋
-[05:26] 05. 珠梨 - stella
-[04:46] 06. ぽらぽら。 - 暗闇の地底
-[04:04] 07. 珠梨 - Mystic WhiteЖанр: Touhou, Vocal, Doujin Ongaku, J-RockПродолжительность: 00:00:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40AE14A257B87D88A6C432F70C1C42E4B6C034F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

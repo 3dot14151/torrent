@@ -1,4 +1,120 @@
 https://t.me/izofen
+###  Публикация: 1869343   (1068200) от 06.05.2026
+
+Джанго - Compilation (2005-2025) [MP3|320 Kbps] <Pop rock, Soft rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Была Не Была ❂ Была Не Была 2005
+02. До Тебя ❂ Выше. Ещё 2013
+03. Холодная Весна (OST Бой с тенью) ❂ Была Не Была 2005
+04. Лорка ❂ Лорка EP 2022(   Читать дальше...   )Жанр: Pop rock, Soft rockПродолжительность: 01:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D4F38752BFAC8F4183A1500A7854ADB025E5A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869505   (1068196) от 06.05.2026
+
+VA - Микс Дня#2 (2026) [MP3|320 Kbps] <Rock, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068196.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Robert Randolph - Sinner (04:14)
+ 002. The Black Keys - Who's Been Foolin' You (03:44)
+ 003. Black Country Communion - The Last Song For My Resting Place (07:57)
+ 004. Joe Bonamassa - Mountain Climbing (05:44)(   Читать дальше...   )Жанр: Rock, OtherПродолжительность: 04:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29CB5FC948B7EA70B23D90F44296CB3A9C08436C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868900   (1067884) от 03.05.2026
+
+Uma2rman (Уматурман) - Compilation (2004-2026) [MP3|320 Kbps] <Pop rock, World>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067884.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Русский Колорит ❂ В Этом Городе Все Сумасшедшие 2011
+002. Хэппи ❂ Пой, Весна ! 2016
+003. Проститься ❂ В Городе N 2004
+004. Кино ❂ А Может Это Сон 2005(   Читать дальше...   )Жанр: Pop rock, WorldПродолжительность: 06:24:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F781BB9F144F3F074E007D62ECD704C546C081FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869038   (1067847) от 03.05.2026
+
+VA - Time Of Rock & Metal от ALEXnROCK Part 2 (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Europe - All Or Nothing
+02. Suicidal Tendencies - Send Me Your Money
+03. Skid Row - Get The Fuck Out
+04. Nickelback - Lullaby(   Читать дальше...   )Жанр: RockПродолжительность: 04:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C1D33204EE49736204C6397251E92CCFB0BF9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867114   (1066567) от 
 
 Daniele Gazzarin - Favorites Collection Part 9 (2026) [MP3|320 Kbps] <Country, RootsRock>
@@ -624,122 +740,6 @@ VA - REDISCOVER THE '90s Rock (2026) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E81B6AEE3088CA4AD3C0D6AFFE5B4B66180975F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863613   (1063358) от 05.04.2026
-
-Joe Bonamassa - mix (2026) [MP3|320 Kbps] <Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Bonamassa - Dust Bowl (04:33)
- 02. Walter Trout ft. Joe Bonamassa - We’re All In This Together (07:56)
- 03. Joe Bonamassa - Drive (05:47)
- 04. Joe Bonamassa - Prisoner (06:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2907A7B3F96A6F16B0D51BBF8F6197CF4971C46A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863614   (1063354) от 05.04.2026
-
-VA - REDISCOVER The '2000s Rock (2026) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063354.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Linkin Park - Numb (3:07)
-002. 3 Doors Down - Kryptonite (3:53)
-003. Creed - Higher (5:16)
-004. Three Days Grace - I Hate Everything About You (3:51)(   Читать дальше...   )Жанр: RockПродолжительность: 07:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0402971DACFD9645C3B5F0B3D6D1DC0AB8EB89E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863759   (1063202) от 06.04.2026
-
-Chris Norman & Smokie - Compilation (1975-2026) [MP3|320 Kbps] <Soft rock, Pop rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (I Just) Died In Your Arms Tonight (& Cutting Crew) ❂ Uncovered Too 2001
-02. A Spaceman Came Travelling (& Chris de Burgh) ❂ Light A Candle-The Christmas Album 1996
-03. Ain't It Funny How It Works ❂ Wild Horses-The Nashville Album 1998
-04. Bang Bang ❂ Burnin' Ambition 1993(   Читать дальше...   )Жанр: Soft rock, Pop rockПродолжительность: 14:16:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15049DBB45FE96ADA1E92349FB625DCE2ADA881D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863903   (1063150) от 06.04.2026
-
-Joe Bonamassa - mix (2026) Part Two [MP3|320 Kbps] <Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Bonamassa - The Ballad of John Henry (06:29)
- 02. The Bluesbones - I Try (06:11)
- 03. Joe Bonamassa - Different Shades of Blue (04:39)
- 04. Joe Bonamassa - Just 'Cos You Can Don't Mean You Should (06:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:59:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78277DD7AAB4E0235D7DAA284DA5C4A15A77F266
 ```
 
 https://mybot314.ru/tekegram_catalog/

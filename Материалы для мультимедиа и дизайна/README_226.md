@@ -1,3 +1,116 @@
+###  Публикация: 551929   (449933) от 25.09.2012
+
+Digital Juice - Swipes! 40: Screen Smashers (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Формат: 60 Full Screen Animated Wipes 30 - SD ( PAL & NTSC ) 30 - HD
+60 Matching Sound FX (2 - Sound effects per wipe, 1.5 Seconds average length)
+
+Экстримальная коллекция футажей с разбиванием во весь экран разных предметов: стёкол, кирпичей, льда, а так же рубкой дерева и разливанием кислоты. Такие эффекты можно добавить во многие жанры видео, особенно рекомендовано для жанра экшен
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5824C84A7A25C3E07B71D86EB59CD5371E2B0B3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549647   (449928) от 25.09.2012
+
+Digital Juice - Motion Design Elements Standart 26: Fireworks (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_449928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Juice - Motion Design Elements Standart 26: Fireworks (Full ISO)Название: Digital Juice Motion Design Elements 26 Fireworks Part1-2 DVD9-TSG
+Дата выпуска релиза: 04-30-2008
+Официальный сайт: www.digitaljuice.com/products/products.asp?pid=491 (not available)
+Тип раздаваемого: Video FX, Footage
+Расширение (тип) файлов: .iso (.mov, 1080 x 1080 to 1920 x 1080 at 60 fps)Motion Design Elements 026: Fireworks - коллекция фейерверков. Исторически сложилось ежегодно отмечать особо важные события нашей жизни, используя фейерверки. Являются ли фейерверки фигуративными или буквальными, результат всегда один и тот же - зрители ждут, затаив дыхание, чтобы увидеть первый красочный залп и затем начинают задаваться вопросом: что прибудет потом? Следующий взрыв будет более сильным? Будет ли что-то новое? Будет ли он ярче? А другой цвет?... С помощью этого сборника вы будете контролировать шоу!Используя эти 30 уникальных анимаций, вы сможете создать безграничное разнообразие фейерверков. И вы согласитесь, что никогда не (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551334   (449862) от 25.09.2012
+
+Digital Juice - Ready2Go: Collection 20 (AE) (Files)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449862.jpg" />
+</div>
+
+
+###  Подробнее
+
+The ready2go product line reaches an all new high! This 20th volume of projects and templates contains an exciting collection of powerful animated projects for After Effects that push the limits of professional style and suit a range of productions. The wide variety of unique looks in this volume can be easily put to work as-is or adapted for your latest production. Get your creative juices flowing with the professional, stylish looks in this collection and put your inspired ideas to work with ready-to-use well-designed template segments - in everything from wedding videos, business presentations and network show promos to broadcast TV commercials, sports highlights reels and training material.
+
+http://youtu.be/CvUaOPIyzE4
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3711E49765DCBA59D5DD89EA5391916679E32B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569734   (449103) от 14.08.2022
+
+Звуковые библиотеки - Heavyocity - Vocalise 3 [Kontakt, OGG]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в этот насыщенный, атмосферный и волнующий душу вокальный опыт. Vocalise 3 - это эмоциональное исследование, которое раскрывает красоту, интимность и глубокую силу человеческого голоса. От органических фраз до абстрактного шепота и навязчивых звуковых пейзажей - это нежный гибридный вокал, который выходит за рамки эмоций.Формат: Kontakt: NKI, NKX, NKA; OGG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:444BA0A1FD1568E72AE19F00AE0ADDBD3B322649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409067   (448890) от 15.09.2020
 
 Digital Juice - All Kinds Of Crazy [AEP]
@@ -577,118 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E612E2D4933AA5C536A460E7964446668240C65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409593   (444830) от 17.09.2020
-
-Звуковые библиотеки - Splash Sound - Ukulele - RePack Андрей650071 [Kontakt, WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда дело доходит до яркой, легкой и позитивной музыки, будьте уверены - все дело в укулеле. Это не просто еще одна библиотека, это полноценный инструмент, с помощью которого вы можете написать полный трек от начала до конца.
-
-Вы ищете вдохновения? Нет проблем, используйте встроенные ритмические паттерны, чтобы найти свой собственный путь. Две стереопары конденсаторного (   Читать дальше...   )Формат: Kontakt: NICNT, NKC, NKI, NKR, NKX; WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE8295764176BE68950B27ED24519252A2155A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322700   (444391) от 31.08.2019
-
-Звуковые библиотеки - Sonuscore - Strings of Winter [Kontakt]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Арктические равнины. Мерцающие ледники. Дальние степи. Единственный в своем роде инструмент, который идеально передает дух этих грубых, необузданных и необработанных пейзажей. Абсолютно честный и нетипичный новый звук, который изображает сцены хрупкой холодной изоляции так же прекрасно, как ледяная и необузданная сила. Strings of Winter здесь с 60 неслыханными и (   Читать дальше...   )Формат: Kontakt: NICNT, NKSN, NKI, NKA, NKC, NKX, NKR, NKM
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ACEE38385DB2279F3B66B4ED438D219ABE14327
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163800   (443485) от 08.09.2017
-
-Сборники - Физические карты России и мира [JPG, CDR]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Физические карты - общегеографическая карта, передающая внешний облик территории и акватории. Имеет, как правило, средний или мелкий масштаб и носит обзорный характер. На физической карте подробно показаны рельеф и гидрография, а также пески, ледники, болота, солончаки; менее подробно - населенные пункты, пути сообщения, границы.
-
-Физическая карта России (год издания: (   Читать дальше...   )Формат: JPG, CDRРазрешение файлов: 17010х9720 (JPG)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBC7084D608B75C234B965176286D563E252E89C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552578   (442972) от 28.09.2012
-
-3D модели - Evermotion - Archmodels Vol. 096 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной сборник 3d моделей от Evermotion!
-
-Данный сборник содержит 65 высокополигональных и полностью затекстуренных моделей детских игрушек, таких как плюшевый мишка, куклы, паравозик...!
-
-Осторожно!!! К большинству моделей назначен Modifier "hair and fur" и находится в состоянии Display Hairs, что может привести к подвисанию видеокарты. В связи с этим, советую использовать эти модели либо снимая галочку с Display Hairs (не влияет на рендер) либо в качестве Xref!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40C2B7C48F1CBEFCF599E55ACB1034C43A7BD90D
 ```
 
 https://mybot314.ru/tekegram_catalog/

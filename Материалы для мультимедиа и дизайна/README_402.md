@@ -1,3 +1,108 @@
+###  Публикация: 1795978   (18401) от 13.05.2025
+
+Текстуры - Free PSD Templates - Geometric Background [JPG, PNG, AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоны с геометрическими фигурами в векторе и растре.Формат: JPG, PNG, AIРазрешение файлов: 3000 x 2000 - 12528 x 8334
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B3CA59F47BD435245A7037385966406415905A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795972   (18400) от 13.05.2025
+
+Текстуры - Andrey K. - Behance - Liquid Textures - 107075369 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18400.jpg" />
+</div>
+
+
+###  Подробнее
+
+50 бесплатных жидкостных текстур.
+Разработчик: Andrey K.Формат: PNGРазрешение файлов: 3000 x 3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C39B82F29BACDFAA0E40F9CA5A030A3034FFAAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795849   (18399) от 13.05.2025
+
+Растровый клипарт - designhome - Creative Fabrica - Watercolor Valentine’s Day Flowers Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт с цветами на День святого ВалентинаФормат: PNGРазрешение файлов: 3600 x 3600 - 3601 x 3601
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D84D504FB513081BD063479499253CC22DF0214B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795956   (18398) от 13.05.2025
+
+Шаблоны - Free PSD Templates - Christmas Background Scene Creator Template [PNG, JPG, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон для создания разных рождественских сцен.Формат: PNG, JPG, PSDРазрешение файлов: 4000x3200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEA18C3714B7A6F8CD96678FEDD80198684ECB54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796032   (18394) от 13.05.2025
 
 Паттерны - Free PSD Templates - Tropical Patterns [JPG, PNG, AI, PSD, EPS]
@@ -577,110 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5E106F7056E51EB500CCE53E7FDFAFC8CAB612F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810343   (17397) от 03.08.2025
-
-Сборники - Creative Market - Chroma Forms Ultimate-40 Pack - 6637721 [PNG, PSD, FIG]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Огромный набор Chroma Forms Ultimate-40, вдохновлённый эстетикой неофутуризма, содержит 40 форм с хромированным эффектом и их аналогов. Формы представлены в разнообразных формах с детализированными хроматическими эффектами, трёхмерными контурами, бликами и эффектами затухания.Формат: PNG, PSD, FIG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:608E749E5782A95A9EB83B73F404CE0B239BD298
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810381   (17366) от 04.08.2025
-
-Шрифты - MyFonts - Sunday Club [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sunday Club — это сочетание тёплой ностальгии и беззаботной уверенности высшего среднего класса. Его дизайн основан на истории, но отточен под требования сегодняшнего дня. Стиль Sunday Club включает в себя более 110 альтернативных символов, входящих в различные функции OpentType: Swash, Stylistic и Title Alternates для более выразительных букв, Standard Ligatures (   Читать дальше...   )Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:835D7D0747DD798523AF3AD26B9C8F71264EAE2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810383   (17365) от 04.08.2025
-
-Растровый клипарт - Adobe Stock - Swimming - Training and Sports [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17365.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 стоковых фотографий на тему плавания в бассейне из Adobe Stock. Оригинальные названия сохранены.Формат: JPGРазрешение файлов: 3000x2000 - 7952x5304
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28D5436A1F94FA9616E21E09800BFF652E89D1DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810401   (17342) от 04.08.2025
-
-Дополнительные патчи - Maeyo Music - Aux Patches for Omnisphere Vol 1 [OMNISPHERE]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальная коллекция из 30 уникальных пресетов Omnisphere, созданных для госпела, живых аранжировок, фьюжн, R&B, поп-музыки и даже афробита! Этот набор вдохновляет как на студийных сессиях, так и на живых выступлениях.Формат: OMNISPHERE
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC20C712096F52FEFE263BFD59541422FCB68A48
 ```
 
 https://mybot314.ru/tekegram_catalog/

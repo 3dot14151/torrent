@@ -1,29 +1,3 @@
-###  Публикация: 371162   (524734) от 03.08.2011
-
-Звуки природы - Будущей маме (2006) [MP3|256 kbps]<Детская музыка>
-
->>Аудио для детей и родителей
->>Классика для мам и малышей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Звуки природы - Будущей мамеЖанр: Детская музыкаПродолжительность: 06:00:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB7C5A8DD89A3CE3407FAAF907DC25080BE3C7E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559566   (524496) от 25.06.2022
 
 Ганс Христиан Андерсен | Свинопас (1980) [MP3, Мария Бабанова]
@@ -702,6 +676,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A3EBDD055D4AA687A0A914C20BF1F3BAED008E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 375265   (514553) от 13.08.2011
+
+VA - A la ferme De Mathurin (2007) [MP3|320 kbps]<Детские песенки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514553.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. J'ai Perdu Le Do De Ma Clarinette
+2. A la ferme De Mathurin
+3. quand trois Poules Vont Aux Champs
+4. Scions Du jambon(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 00:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:633AE3CCB9BC74290E60DDDF8249CCF1B44C9AEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

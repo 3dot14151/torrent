@@ -1,4 +1,32 @@
 https://t.me/izofen
+###  Публикация: 1869042   (1067871) от 03.05.2026
+
+VA - The Best Classical Instrumental Music (2026) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Botticelli Trio - The Four Seasons, Op. 8, Concerto No. 2 in G Minor, RV 315 Summer III. Presto (Arr. for 2 Violins and Piano by Christina Grigoryants) (2:51)
+02. Maria Nemtsova - The Nutcracker Suite, Op. 71a II. Dance of the Sugar Plum Fairy (Arr. for Piano by Mikhail Pletnev) (2:07)
+03. Katya Kramer-Lapin - Piano Sonata No. 11 in A Major, K. 331-300i III. (   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8706CDD6AB732E4A5D1454028E2BED248D277A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857102   (1059372) от 04.03.2026
 
 VA - Wake Up Music (2026) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -733,35 +761,6 @@ VA - Classical 2008 (2007) compilation, CDx2 [FLAC|Lossless|image + .cue] <Class
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CD12FD85EFC495BE19EAD94D7812A598C91CD72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992342   (902391) от 01.03.2016
-
-VA - Палитра Классики (2003) S&V #12/2003 [FLAC|Lossless|tracks + .cue] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ф.Шуберт - Ave Maria (5:50)
-02. Ф.Куперен - 'Любимая' (чакона) (5:34)
-03. Т.Альбиони - Адажио (2:48)
-04. Ф.Шопен - Фантазия-экспромт (4:33)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8706293DCDBBEE1BCFD57332CA3095DFB0617886
 ```
 
 https://mybot314.ru/tekegram_catalog/

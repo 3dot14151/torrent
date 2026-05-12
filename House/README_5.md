@@ -1,3 +1,61 @@
+###  Публикация: 1360305   (959468) от 16.02.2020
+
+VA - Progressive MEGA Mix vol.2 (2003) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mixed by Dj Maxi - Untitled (05:56)
+02. Mixed by Dj SAnDY - Untitled (04:13)
+03. Mixed by Dj General - Untitled (05:29)
+04. Mixed by Dj project Slim Line - Untitled (03:25)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13B51861BED40C8F7BCF95740050F593E9C4D47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088855   (955165) от 01.01.2017
+
+VA - Welcome 2017  [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955165.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ron Carroll - The Sermon (Soheil Remix) [6:16]
+2. Max Bering - You Are Not Alone (Charlie Roennez Remix) [7:23]
+3. Steve Norton - It Hurts Me (Original Mix) [5:02]
+4. E.M.C.K. - Need to Know (Club Mix) [3:50](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35371969C4DAF87C521951F0716BF1C84213C906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088935   (955163) от 01.01.2017
 
 VA - Next Destination: Summer Chill-Out (2017) [MP3|320 Kbps] <Deep House>
@@ -674,62 +732,6 @@ VA - Dj Бинокль - Love and Tears (2003) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4234879A799923E57DC4DF57BECFAE5646C3C54D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362706   (942617) от 28.02.2020
-
-Dj Бинокль - Housemission (2000) [MP3|320 Kbps] <House, Speed Garage, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942617.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Summer Dream (29:12)
-2. Mirrow In My Mind (29:40)Жанр: House, Speed Garage, Progressive HouseПродолжительность: 00:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:842AEA254D8612717DFB29489539C6ECB680BCED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362716   (942542) от 28.02.2020
-
-VA - Dj Бинокль - Fucking Society (2002) [MP3|320 Kbps] <House, Euro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Funk U Later - Something About You (DFR Mix)
-03. Jame Gumb - I Am (Sporting Mix)
-04. Reloop - Fucking Society (DJ Jean Mix)(   Читать дальше...   )Жанр: House, Euro HouseПродолжительность: 00:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCD69EA65598EE4E284324FAB7D6CCCC1850273B
 ```
 
 https://mybot314.ru/tekegram_catalog/

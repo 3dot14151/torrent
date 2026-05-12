@@ -1,3 +1,55 @@
+###  Публикация: 822223   (483562) от 16.09.2014
+
+VideoHive - The Wedding Intro - 132219 [AEP]
+
+>>Проекты
+>>Свадебные и романтические (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483562.jpg" />
+</div>
+
+
+###  Подробнее
+
+VideoHive - The Wedding Intro свадебный проектФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2C1CB8B7328A5D24F5C42C58DD76C91ADF17CE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 822232   (483546) от 16.09.2014
+
+Проекты - VideoHive - Wedding Studio - 843476 [AEP]
+
+>>Проекты
+>>Свадебные и романтические (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483546.jpg" />
+</div>
+
+
+###  Подробнее
+
+VideoHive - Wedding Studio свадебный проектФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C2E19468074FC5615C220A68940E9C21307CF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 822040   (483542) от 16.09.2014
 
 Проекты - VideoHive - Flower Growing Wedding Title - 6705172 [AEP]
@@ -632,60 +684,6 @@ Summertime Movements - Bright Opener - Энергичный, красочный 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:306EF0D745BACBB983FEDFF85B9E5549F4CF861D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244558   (479703) от 02.09.2018
-
-Проекты - VideoHive - Upbeat Style - 16560510 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479703.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Upbeat Style» - стильный, молодёжный проект для создания Вашего фото слайд шоу с текстовой подложкой.
-Многие оценят по достоинству.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F9406DCB9705E9A0EF0FA7490EEA831900BA7E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159900   (479649) от 22.08.2017
-
-Проекты - VideoHive - Rainbow Corporate Timeline Evolution - 19685943 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rainbow Corporate Timeline Evolution - это новый способ отобразить 5-ступенчатую систему прогресса с полировкой и лоском.
-Можно использовать для начальных и финальных титров.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7AE50A00FEC5388CDDCE94E7513284378CB3822
 ```
 
 https://mybot314.ru/tekegram_catalog/

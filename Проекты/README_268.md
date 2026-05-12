@@ -1,3 +1,55 @@
+###  Публикация: 836516   (360912) от 01.11.2014
+
+VideoHive - Hand Drawn Wedding Opener - 681908 [AEP]
+
+>>Проекты
+>>Свадебные и романтические (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект свадебной тематики. Превью - в раздаче.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1913CFB66CE5849D989CD735E5D27C98D8DCAE57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328790   (360661) от 01.10.2019
+
+ProShow Producer - Cooking Channel [PSH]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон презентация "Кулинарного Шоу"... Дерзайте!Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD4EFB67953295F5D39B409964A64DA8D88CC058
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951718   (360530) от 30.10.2015
 
 Проекты - VideoHive - Clean and Simple Reveal [AEP]
@@ -627,59 +679,6 @@ VideoHive - Broadcast Maps Package - 11817992 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C670E01C8E821407181B7AECCF1655D783BF8EB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256013   (358334) от 20.10.2018
-
-Проекты - VideoHive - Tritone Parallax Slideshow - 17950241 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современный и профессиональный проект для создания слайд-шоу, с помощью которого вы сможете придать своим фотографиям удивительный вид с этим эффектом параллакса. Этот шаблон подойдет в использование на различную тематику.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F261C30C1FD56019BC1F5A440E563228F7A10336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952204   (358083) от 31.10.2015
-
-Проекты - VideoHive - Dash Style Logo [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для эффектного представления вашего логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19F3E41F55D9B623E2171EA3E74473173DC378AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

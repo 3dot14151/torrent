@@ -1,3 +1,29 @@
+###  Публикация: 542320   (493075) от 06.09.2012
+
+[Wallpapers] Обои для рабочего стола, Природа.
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивые,четкие обои на тему природы. На каждый день  :bou:  :shocked:  :kruto:Разрешение файлов: 1920х1200-3200х1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9B697140D7EADB243C6BD1B45837785C5FA4444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 543689   (493067) от 06.09.2012
 
 [Wallpapers] Mega Pack Full HD 4 (1920x1080)
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D13004475FAA948DFC11AD52A0BBF5A57E99454
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243943   (486071) от 30.08.2018
-
-Обои - Ultra HD 3840x2160 Wallpaper Pack 335 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486071.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8BB329FF7B9347CBB0A52CF29CB99AA9C76C2D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

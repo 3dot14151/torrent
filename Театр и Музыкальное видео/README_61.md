@@ -1,3 +1,120 @@
+###  Публикация: 681295   (638022) от 19.07.2013
+
+Judas Priest - Epitaph (2013) Blu-Ray [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_638022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Judas Priest — британская метал-группа, которая наряду с такими коллективами, как Black Sabbath, Deep Purple, Led Zeppelin и Uriah Heep определила звучание метала 1970-х годов, а также оказала огромное влияние на дальнейшее развитие этого стиля в целом. За 40 лет своей карьеры музыканты продали 30 миллионов копий альбомов по всему миру..Жанр: Heavy metal, speed metal, hard rockПродолжительность: 02:22:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907656   (637747) от 12.06.2015
+
+Праздничный концерт День России в Крыму (12.06.2015) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637747.jpg" />
+</div>
+
+
+###  Подробнее
+
+День независимости России – один из самых "молодых" и главных государственных праздников. С прошлого года в праздновании принимают участие и жители Крыма.Жанр: КонцертПродолжительность: 01:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7411635E50EAE2DF61BC00448EF1D3688F8357E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 770600   (637650) от 11.07.2016
+
+Motörhead Videography / Motorhead Видеография (29 клипов) (1980-2010) TVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rock Out
+02 - God Save The Queen (2000)
+03 - Get Back In Line (2010)
+04 - I Ain't No Nice Guy (1992)(   Читать дальше...   )Сборник из 29 видеоклипов. Скачано из сети.
+Некоторые видео пришлось вытягивать или восстанавливать...
+Использовались программы - Corel , AVS, SolveigЖанр: Heavy metal, hard rock, speed metal, rock and rollПеревод: ОтсутствуетСубтитры: нетПродолжительность: 01:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC160063C88CD43182A6EE9F30B6DADAE79FE5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519218   (636690) от 06.07.2012
+
+Whitesnake:  "Live In The Still Of The Night" (MTV-HD) (2004) HDTV 1080i [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это запись концерта группы01. Burn
+02. Bad Boys
+03. Love Ain"t No Stranger
+04. Is This Love
+05. Give Me All Your Love
+06. Ain"t No Love in the Heart of the City
+07. Don"t Break My Heart Again
+08. Here I Go Again
+09. Still of the NightЖанр: RockАктеры: David Coverdale, Doug Aldrich, Reb Beach,  Timothy Drury,  Tommy Aldridge,  Marco MendozaПеревод: Не требуетсяПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 800246   (636310) от 01.07.2014
 
 Tarja Turunen & Mike Terrana - Beauty & The Beat (2014) DVD5
@@ -586,119 +703,6 @@ Europa Plus Live - Европа плюс (2013) DVBRip
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034255   (630053) от 15.07.2016
-
-Doro - Strong and Proud - 30 Years of Rock and Metal (2016) 2хDVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкая королева метала Доро Пеш отпраздновала 30-летие сценической деятельности в рамках мирового тура 2013/2014 года, в ходе которого состоялось три специальных юбилейных концерта, первый из которых прошел на крупнейшем металлическом фестивале Wacken Open Air перед аудиторией в 85.000 человек.
-После этого певица провела еще два аншлаговых шоу в родном городе Дюссельдорфе,где (   Читать дальше...   )Disc 1:
-30 Years Anniversary Show - Wacken Open Air '2013
-
-01.Wacken Anthem (We Are The Metalheads)(   Читать дальше...   )Производство: Nuclear Blast RecordsЖанр: Heavy MetalРежиссер: Ronald MatthesАктеры: Doro & VAПеревод: ОтсутствуетПродолжительность: 03:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35EA5BD837DCEAAF5F3803EF7D4AD8EDA2193E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682869   (629995) от 23.07.2013
-
-Сборник клипов - VA - Various Music part. 44 (2013) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629995.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 2 Chainz, Wiz Khalifa - We Own It (Fast & Furious) 1080p (2:37)
-2. AK Babe - We Don't CareЖанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF2926975F5E8188E470F7D477943713E5F9D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034797   (629931) от 15.07.2016
-
-Сборник клипов - Philizz "Tropical Summer" (2016) HDTV [1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов "Tropical Summer 2016" - фирменный видеомикс от голландского ви-джея Philizz. Устройтесь поудобнее, расслабьтесь и наслаждайтесь!
-Видеомикс - это видеосборник,составленный из небольших фрагментов клипов. Довольно новое явление в современной музыкальной культуре, насчитывает всего несколько лет, и все больше и больше приобретает популярность. (   Читать дальше...   )Twenty One Pilots - Stressed Out (Tomsize Remix)
-Alan Walker - Sing Me To Sleep
-Sigala ft. Imani & DJ Fresh - Say You Do
-Eagles - Hotel California (Diezeo Remix)(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF2193692E50F1AAC08C3ECF11D55B478A3E76FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294313   (629883) от 07.04.2019
-
-Квартирник НТВ у Маргулиса. Горан Брегович (06.04.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629883.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гости к ведущему Евгению Маргулису пришел популярный европейский композитор и музыкант Горан Брегович. Самый известный балканский исполнитель и автор музыки к кинофильмам Эмира Кустурицы поделился со слушателями не только своей этнической музыкой, но и интересными воспоминаниями из жизни и творчества.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:853D9B6C41E12A74C1DF5198B8219E7C33BC7605
 ```
 
 https://mybot314.ru/tekegram_catalog/

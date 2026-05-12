@@ -1,3 +1,64 @@
+###  Публикация: 497653   (253866) от 17.05.2012
+
+VA - Niccolo PAGANINI - Complete Chamber Music (2007) [APE|Lossless]<Classical, Instrumental>
+
+>>Классика
+>>Полные собрания сочинений (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical, InstrumentalПродолжительность: 00:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2F7458E64AA4C0082CFD0BDA5EE7437962507E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498107   (253771) от 17.05.2012
+
+Johann Sebastian Bach – Violin Concertos BWV 1041-1043: VA, La Petite Bande, violin Sigiswald Kuijken, Authentic instruments, (1717-1723)/1981, EMI Records Ltd/[FLAC|Lossless]<Chamber>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto in A minor, BWV 1041
+for solo violin, strings and B.C.
+1. (Allegro) 	3:42
+2. Andante 	6:36
+3. Allegro assai 	3:33
+Concerto in E major, BWV 1042 
+for solo violin, strings and B.C.
+4. Allegro - Adagio - Allegro 	7:40
+5. Adagio		 	6:39
+6. Allegro assai 		2'44(   Читать дальше...   )Жанр: Chamber/AuthenticПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1678F1B788A2C9EEB0C67DE1DC986589CDDF7C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 497599   (253742) от 17.05.2012
 
 Johann Sebastian Bach - Violin Concertos Nos.1&2 Double Concerto (BWV 1041-43, 1060, 1056): VA, Chamber Orchestra of Europe, violin Salvatore Accardo (1717-1726)/1985, Philips Classics Producti ...
@@ -724,64 +785,6 @@ Eydis Evensen - The Light (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:637AEBA3244CA98E91B70F15EC9E9063B61C746C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631633   (235947) от 08.05.2023
-
-VA - Gymnopedie Chilled Piano Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Dickinson - Trois gymnopédies l. Lent et douloureux (3:13)
-02. Peter Dickinson - Trois gymnopédies ll. Lent et triste (2:36)
-03. Peter Dickinson - Trois gymnopédies lll. Lent et grave (2:26)
-04. Kathryn Stott - Suite Bergamasque, L. 75 III. Clair de lune (5:14)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF3AF92433D3310608E35B1F8C4BC38512AEA4BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640342   (234559) от 17.09.2022
-
-Niccolo Paganini - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caprices in A-minor, Op.1 #24 - 4:52
-02. Caprices in A-minor, Op.1 #7 - 3:42
-03. Caprices in B-minor, Op.1 #2 - 2:47
-04. Sonata in E-minor, Op.3 #6 ALLEGRO - 3:44(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D691D176B40D0A98B49515607849BE238C29A221
 ```
 
 https://mybot314.ru/tekegram_catalog/

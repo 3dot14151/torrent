@@ -1,3 +1,32 @@
+###  Публикация: 1019588   (750183) от 23.05.2016
+
+Альберт Артемьев - Вне границ (2016) [MP3|320 кб/с] <New Age>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750183.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вне границ
+2. Неземной голос
+3. В океане звёзд
+4. Осколки льда(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B97EE91B0ECF9FE818F3ADCF248FA87923EC7202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019561   (750180) от 23.05.2016
 
 VA - Spacesynth 4ever (mCITY Edition) (2016) [MP3|320 кб/с] <Electronic, Spacesynth>
@@ -716,35 +745,6 @@ VA - The Wizard Club Mix: Vocal Trance (2016) [MP3|320 кб/с] <Vocal Trance, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8151B0891181A06A805A3E72F3DAD8F840DD640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282163   (746558) от 11.02.2019
-
-VA - DubStep Pro V.01 [Compiled by GvertO] (2018-2019) [MP3|320 Kbps] <DubStep, DrumStep, Chillout⁄Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Bill & Esseks - Roughhousin (Original Mix) [2:51]
-02. Mark The Beast & Charmae - See You (Original Mix) [2:55]
-03. Maxim Aqualight - Down (Original Mix) [3:09]
-04. 13 - Lost Voices [3:09](   Читать дальше...   )Жанр: DubStep, DrumStep, Chillout⁄Lounge, Future GarageПродолжительность: 02:06:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C201479EDCB57E2944958D141A4B26847EE17CCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

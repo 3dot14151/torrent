@@ -1,3 +1,67 @@
+###  Публикация: 588221   (216540) от 12.12.2012
+
+Metallica: Quebec Magnetic 2009 (2012) [1080p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_216540.jpg" />
+</div>
+
+
+###  Подробнее
+
+31 октября и 1 ноября у группы Metallica состоялись два концерта в рамках тура “World Magnetic” в городе Квебек. Всего на оба вечера было продано свыше 33 тысяч билетов. Сет-лист первого концерта не принёс каких-то новшеств. Более того, в нём нет ни одной песни или концертного номера, на котором стоило было бы заострить своё внимание. Второй сет был куда удачнее и интереснее. В него попали такие композиции, как возродившаяся недавно “The Shortest Straw”, редко исполняемая “My Apocalypse”, куда более реже встречающаяся “Battery” и “Killing Time” группы Sweet Savage. Оба концерта в Квебек были отсняты знакомым нам режиссером Уэйном Ишемом (Wayne Isham)01. That Was Just Your Life
+02. The End Of The Line
+03. The Four Horsemen
+04. The Shortest Straw
+05. One
+06. Broken, Beat & Scarred
+07. My Apocalypse
+08. Sad But True
+09. Welcome Home (Sanitarium)
+10. The Judas Kiss(   Читать дальше...   )Жанр: Rock, Thrash MetalРежиссер: Wayne IshamПродолжительность: 02:14:42 + 00:42:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085096   (216052) от 20.12.2016
+
+Extreme: Pornograffitti Live 25 / Metal Meltdown (2016) Blu-ray [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диск записан в известном клубе Joint в Лас-Вегасе в честь 25-летия выпуска аудио-диска "Pornograffitti".01. Decadence Dance
+02. Li'l Jack Horny
+03. When I'm President
+04. Get the Funk Out(   Читать дальше...   )Производство: США | Loud & Proud RecordsЖанр: Rock, Hard Rock, Glam MetalПеревод: ОтсутствуетПродолжительность: 01:29:24 + 01:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92FF1A1E6338C64D5AAF3B47C65703F86103333E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270070   (215436) от 17.12.2018
 
 Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRemux [H.264/1080p]
@@ -658,59 +722,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA1A8B9D92183DF9D1C89E9BE3F849B99B7A5891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656089   (203525) от 29.08.2023
-
-МузЛофт-подкаст / МузLoft. Влад Соколовский (2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Влад Соколовский. Роль в турецком сериале. О работе с Меладзе и Киркоровым.
-К нам в гости заглянул фабрикант, а также продюсер, диджей, бизнесмен, музыкант, актер - Влад Соколовский. Вот обо всех видах своей деятельности он и расскажет в выпуске. И, естественно, споет хиты группы БиС!Производство: Россия | Y-GenerationЖанр: PopУчастники: Влад СоколовскийПродолжительность: 01:21:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8EA03C84C9FB813548DC90509DED9E009E85E96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610686   (202964) от 08.02.2023
-
-Tarja Turunen - Best Of: Living The Dream Circus Life (2022) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blu-ray with unreleased "Circus Life" full concert: Live January 23rd, 2020, Circus Metropolitan, Bucharest, Romania.Жанр: Symphonic RockАктеры: Tarja TurunenПеревод: ОтсутствуетЯзык озвучки: английскийСубтитры: английские (speech between songs)Продолжительность: 01:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:395677AA7B4DA9067B78B3C4ADC083B5B49632C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

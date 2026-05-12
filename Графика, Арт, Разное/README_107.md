@@ -1,3 +1,59 @@
+###  Публикация: 570011   (390991) от 04.11.2012
+
+Computer Desktop Wallpapers Collection (03.11.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15F4B47097A8A3D71392B931E36220EEA8A2F234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570253   (390978) от 04.11.2012
+
+[Wallpapers] Moto Desktop Wallpapers Pack 1
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390978.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Moto Desktop Wallpapers Pack 1
+Название: Moto Desktop Wallpapers Pack 1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60221F043CF8AE1204CBB18951134F50167C3109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570257   (390845) от 04.11.2012
 
 Вампиры, ангелы, демоны (04.11.12) [Wallpapers]
@@ -618,62 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E09FD706984D945629F39569F794062A147E1533
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574022   (376411) от 12.11.2012
-
-Wallpapers Fantasy (10.11.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7968B025BD45AD1A964C1DE8FD92FF54251C6888
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573915   (376229) от 12.11.2012
-
-[Wallpapers] Грузовики Mercedes Benz (61 снимок)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376229.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Грузовики Mercedes Benz (61 снимок)
-Название: Грузовики Mercedes Benz (61 снимок)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280x1024-2048x1536
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи:  c 17-00 до 5-00 (время Киевское (GMT+02:00))
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E5C685D20590C66BE56A091D5D3DCEE51D82931
 ```
 
 https://mybot314.ru/tekegram_catalog/

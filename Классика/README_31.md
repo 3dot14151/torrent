@@ -1,3 +1,61 @@
+###  Публикация: 1244137   (481795) от 01.09.2018
+
+VA - Russian Legends (Legendary Russian Soloists Of The 20-th Century) (100 CD  Box Set) (2007) [WavPack|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481795.jpg" />
+</div>
+
+
+###  Подробнее
+
+LUDWIG VAN BEETHOVEN (1770-1827)
+PIANO SONATA in E minor Op. 90
+1. Mit Lebhaftigkeit und durchaus mit Empfindung und Ausdruck 5:47
+2. Nicht zu geschwind und sehr singbar vorzutragen 6:41(   Читать дальше...   )Жанр: ClassicalПродолжительность: 108:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ADDA14C042B35AA2D3A53F7A4E7D946686F13E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159475   (481737) от 21.08.2017
+
+Christian Grovlen - BACH - Inside Polyphony (2017) [MP3|320 Kbps] <Classical>
+
+>>Классика
+>>Фортепиано
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chromatic Fantasia and Fugue in D minor, BWV 903; Fantasia  6:55
+02.  Chromatic Fantasia and Fugue in D minor, BWV 903; Fugue  5:12
+03.  Sinfonia No. 1 in C major, BWV 787  1:03
+04.  Sinfonia No. 2 in C minor, BWV 788  2:22(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4E3E8C5200062361F41430987F92D239289B451
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937665   (481722) от 18.09.2015
 
 Andrew Lloyd Webber - The Phantom of the Opera (1987) [FLAC|(image+.cue)]<Opera>
@@ -699,64 +757,6 @@ Sabine Meyer многократно отмечалась музыкальной 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6835EC362C47B1382F6A7A40FE42178AF261D5EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942116   (457818) от 29.09.2015
-
-Schumann - Kinderszenen, Fantaisie, Arabeske (Vladimir Horowitz) (2003) [FLAC|image +.cue]<Classical, Romantic Period, Fantasy, Scenes, Arabesque>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scenes from Childhood for piano, Op. 15
-01. Von Fremden Ländern und Menschen (01:33)
-02. Kuriose Geschichte (01:09)
-03. Hasche Mann (00:37)(   Читать дальше...   )Жанр: Classical, Romantic Period, Fantasy, Scenes, ArabesqueПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A7A6761F83660E7F9671E1D23C7B986D89FCEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940498   (457812) от 29.09.2015
-
-Rachmaninov - Transcriptions for Orchestra (Neeme Jarvi & Detroit Symphony Orchestra) (1994) [FLAC|image +.cue]<Classical, Orchestral, Romantic Period, Transcription, Post-Romantic, Variatio ...
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trio for Piano and Strings no 2 in D minor, Op. 9 "Trio élégiaque"
-01. Moderato - Allegro vivace (19:55)
-02. quasi variazione. Andante - Allegro - Moderato - Allegro scherzando - Allegro vivace - Andante (15:36)
-03. Allegro risoluto (08:05)(   Читать дальше...   )Жанр: Classical, Orchestral, Romantic Period, Transcription, Post-Romantic, Variations, SymphonyПродолжительность: 01:08:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:663E64670DCE04D06E6EB887ECFB28DF5D362B25
 ```
 
 https://mybot314.ru/tekegram_catalog/

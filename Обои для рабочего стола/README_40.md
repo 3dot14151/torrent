@@ -1,3 +1,29 @@
+###  Публикация: 1307560   (554855) от 10.06.2019
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (246) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C8124555A7BA311A6F030A75B976EBAA50AE0C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307561   (554848) от 10.06.2019
 
 Обои - Desktop Wallpapers (4K) Ultra HD. Part (247) [JPG]
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61DB69544652EF065DA3E3F0435E99DAF9869D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237560   (551479) от 24.07.2018
-
-Обои - Ultra HD 3840x2160 Wallpaper Pack 317 [JPG, PNG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551479.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка обоев на различную тематикуФормат: JPG, PNGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B7E8DF4D9504D09855047174688CAA3D3B34B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

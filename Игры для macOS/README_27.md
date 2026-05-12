@@ -1,29 +1,3 @@
-###  Публикация: 1576030   (235226) от 14.09.2022
-
-Black & White (2001) [Ru] [macOS WineSkin]
-
->>Игры для macOS
->>Strategy, RPG для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тип издания: macOS WineSkinРелиз состоялся: 2001Разработчик: Lionhead StudiosПоддерживаемая ОС: macOS 10.13 (high Sierra) +Жанр: Strategy (Real-Time), Симулятор БогаЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A04D25DA793EB7694D453B451D5F1E137E1C6F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577614   (234220) от 19.09.2022
 
 The Lord of the Rings: The Battle for Middle-Earth II (2006) [+1DLC] [Ru] [macOS WineSkin]
@@ -683,6 +657,32 @@ The Gardens Between (2018) [Multi/Ru] [macOS Native game]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85BE593E4A40A8F4C9B34200E5C95E7D1DFC8BAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558117   (213201) от 20.06.2022
+
+Euro Truck Simulator 2 + (76 DLC) [Multi/Ru] [macOS Native game]
+
+>>Игры для macOS
+>>Racing, Simulation, Sports для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213201.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Euro Truck Simulator 2 дарит вам опыт управления самыми мощными машинами, когда-либо появлявшимися на шоссейных магистралях и автобанах Европы. Вы сможете пройти весь путь - от энтузиаста-дальнобойщика, до обладателя собственной транспортной империи. Настраивайте грузовики с нуля, максимально расширяйте свой автопарк, наймите водителей, купите гараж в каждом (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 2012Разработчик: SCS SoftwareПоддерживаемая ОС: macOS 10.9 и вышеЖанр: Инди, СимуляторыЯзык интерфейса: Русский, Английский, Французский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73E0ACA86C09B21E31CDFC4CC54D0D6684EDA1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

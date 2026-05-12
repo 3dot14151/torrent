@@ -1,3 +1,61 @@
+###  Публикация: 1815878   (4792) от 01.09.2025
+
+VA - Trance In Motion Vol.390 (2025) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grande Piano - Euphoria (Intro Mix)
+02. Ashley Wallbridge & Christina Novelli & Pulse Gate - Impossible (Extended Mix)
+03. Steve Allen - Epicurean (Extended Mix)
+04. Darren Porter & Arctic Barbers - The Rise Of Arkanus (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:23:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1407264BFF3CC2A732146C53BF98104D9995A4A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816061   (4678) от 02.09.2025
+
+Sardø - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - You Are Mine
+ 02 - Lunavera
+ 03 - Stay Near
+ 04 - No Vuelvas Jamás(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 00:58:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0F21B747B9B2C08E8BE89F229189EA7BB37873B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816063   (4638) от 02.09.2025
 
 VA - Brisa (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Afro House>

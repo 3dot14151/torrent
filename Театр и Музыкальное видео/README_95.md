@@ -1,3 +1,120 @@
+###  Публикация: 950661   (365066) от 28.10.2015
+
+Adele - Hello (2015) WEBRip[H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое видео британской певицы Adele на песню  "Hello"Жанр: поп-джаз/соул, блюз.Продолжительность: 00:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16BCBC5EAA027C23913EAC3EE30F6C45A5117598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 254000   (364001) от 04.11.2010
+
+Yanni Live! The Concert Event (2006) HDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наверное, каждому меломану знакомо чувство насыщения музыкой, которая есть у него, и хочется чего-то не просто нового, а потрясающе нового, открытия новых имен, новых музыкальных идей. Если вам знакомо это чувство, вы должны быть очарованы музыкой Янни. Янни поистине великий мультиинструменалист. Родившись в Греции он стал известен во всем мире благодаря потрясающим (   Читать дальше...   )01. Creating
+02. Standing in Motion
+03. Rainmaker
+04. Keys to Imagination(   Читать дальше...   )Жанр: Концерт, New AgeПродолжительность: 01:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6458B35336DEE43C2153047B9EE86B25FD578C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 154155   (363685) от 22.11.2009
+
+Сурганова и Оркестр - Программа "Весь этот рок" [2009 г., Rock, SATRip]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_363685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа "Весь этот рок": Сурганова и оркестр
+Запись с телеканала "Парк Развлечений" 15.11.09 .Жанр: Концерт, VIP-Punk-Decadence, интервьюРежиссер: Ольга МихешкинаПродолжительность: 00:27:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575922   (363572) от 17.11.2012
+
+Осмондс / The Osmonds - Live 72 (1972) VHSRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы помните эту семейку? Для всех поклонников The Osmonds! (Для немного ностальгирующих...)01. One Bad Apple
+02. Yo Yo
+03. Hold Her Tight
+04. Meet The Osmonds
+05. Too Young
+06. Sweet & Innocent
+07. Why
+08. Crazy Horses
+09. Puppy Love
+10. Down By The Lazy River(   Читать дальше...   )Жанр: Музыка, Pop-RockПродолжительность: 00:30:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA1F60E4278BA846F1BB1C4F43B4F87B48589DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255406   (363460) от 18.10.2018
 
 Rammstein - 100 Jahre Rammstein, Arena Berlin (1996) VHSRip [H.264]
@@ -590,110 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:488EEF6FFAAC2B7B534612798A87F9553DD400BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577454   (358335) от 19.11.2012
-
-Kelly Clarkson - Catch My Breath (2012) [H.264/1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:946C98579EA9B841903BA25270836D64F7B0C2FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577919   (358229) от 19.11.2012
-
-Nelly Furtado - Spirit Indestructible (2012) [H.264/1080p]  WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79AF792345187D7656F1B6C9E2D7B8FE8C2B16B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577666   (358221) от 19.11.2012
-
-Alloise - Love me or leave me (2012) [H.264/1080p]  HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181CCEE2223589BC5E54990E2820F343EABCBE44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577519   (358213) от 19.11.2012
-
-Robbie Williams - Candy (2012) [1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7450B2FCCB47F86EEB5713D95247FAC404BD0289
 ```
 
 https://mybot314.ru/tekegram_catalog/

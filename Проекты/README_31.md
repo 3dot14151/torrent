@@ -1,3 +1,57 @@
+###  Публикация: 981936   (949532) от 02.02.2016
+
+Проекты - VideoHive - Fast Media Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:223AFDEFAC30A7CD1EC17505EF7BA0DA9DE979FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982176   (949526) от 02.02.2016
+
+Проекты - VideoHive - Watercolor Quotes and Animated Font [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Текстовой проект.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767CEFAAF93B0242C33C0E10FF849A0E339DAC2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981922   (949489) от 02.02.2016
 
 Проекты - Pond5 - Our Big Day Memories [AEP]
@@ -636,60 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C815F04FD474E8324F2E45B0D14A6914B473BB76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362860   (946399) от 25.02.2020
-
-Проекты - VideoHive - Audio Visualization // Music Producer Tool 3.0 - 24314482 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946399.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Audio Visualization // Music Producer Tool 3.0» - стильный элегантный проект для создания музыкальных подкастов.
-Это проект After Effects в первую очередь предназначен для музыкантов, которые хотят продвигать музыку в YouTube, Facebook, Instagram и других социальных сетях.
-Используя этот шаблон, вы можете визуализировать свой музыкальный трек и сделать его более (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6D56A9AC827BC2013365C0FFC5CE8BC51F36399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 751071   (945840) от 30.01.2014
-
-Проекты - VideoHive - High Tech Interface Project - 609140 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945840.jpg" />
-</div>
-
-
-###  Подробнее
-
-High Tech Interface Project - это эксклюзивный АЕ шаблон High Tech интерфейса для Вашего творчества.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27194A0FF80E9F08232511DC930A2387C327AF02
 ```
 
 https://mybot314.ru/tekegram_catalog/

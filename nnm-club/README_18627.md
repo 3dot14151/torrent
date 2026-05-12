@@ -1,25 +1,25 @@
-###  Публикация: 1083626   (273561) от 16.12.2016
+###  Публикация: 1337301   (275032) от 10.11.2019
 
-Bon Jovi - This House Is Not For Sale (Live From The London Palladium) (2016) [MP3|320 Kbps] <Arena Rock, Hard Rock>
+A NYC Tribute feat. Jimmy Cobb & Randy Brecker - Monk (2012) Jazz'n'Arts Records [FLAC|Lossless|image + .cue] <Post-Bop, Contemporary Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275032.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. This House Is Not For Sale (6:36)
-02. Living With The Ghost (5:05)
-03. Knockout (3:39)
-04. Labor Of Love (5:51)(   Читать дальше...   )Жанр: Arena Rock, Hard RockПродолжительность: 01:10:37
+01. Teo [10:25]
+02. Evidence [6:19]
+03. Green Chimneys [9:36]
+04. Scooter [7:19](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:08:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F72185098BCBA351BEE739408A637B10F910D37F
+magnet:?xt=urn:btih:48BFB046B6AA03555D89BDA10F58A8B22C940173
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083831   (273560) от 16.12.2016
+###  Публикация: 1337306   (275031) от 10.11.2019
 
-Миранда Джеймс | Просроченное убийство (2016) [FB2]
+Jeff Ray - The Walkup (2003) HiPNOTIC Records [FLAC|Lossless|image + .cue] <Jazz Fusion>
 
->>Художественная литература
->>Боевики, Детективы, Триллеры
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275031.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первый роман цикла «Чарли Харрис и Дизель».
-
-Все знают библиотекаря Чарли Харриса и его кота Дизеля. Все, кто живет в небольшом городке Афины, штат Миссисипи.
-А вот Годфри Прист, бывший одноклассник Харриса, знаменит на всю страну – ведь каждая его книга попадает в список бестселлеров.(   Читать дальше...   )Жанр: Зарубежные детективы, Современные детективыФормат: FB2
+01. Streams [7:32]
+02. D.R.A. [6:55]
+03. Hot Music [9:35]
+04. Everybody Loves the Sunshine [6:21](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:00:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7FF2389DC4AD1C7BBB85333B97B31C5F7EEC522
+magnet:?xt=urn:btih:D398A43FA1B9DB920FA49CED4B54C594042FE093
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,51 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083728   (273559) от 16.12.2016
+###  Публикация: 1188532   (275030) от 02.12.2017
 
-Джек Лондон | Любовь к жизни. С вопросами и ответами для почемучек (2017) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все знают и любят классика мировой литературы Джека Лондона. Его хрестоматийные рассказы «Любовь к жизни», «Бурый волк», «Меченый» и другие представлять не надо: их обязательно «проходят» в школе. Наша книга подарит детям и взрослым уникальную возможность – прочитать их с комментариями биологов, и взглянуть на самые известные произведения Джека Лондона с новой стороны! (   Читать дальше...   )Жанр: Обучение, развитиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF1B20CBBEF754C30731548A2C246564F57854BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083697   (273558) от 16.12.2016
-
-Comedy Woman (2016.12.16) SATRip
+Горные лыжи. Кубок мира 2017–2018. Бивер-Крик (США). Мужчины. Супергигантский слалом (01.12.2017) WEB-DL [H.264/1080p-LQ]
 
 >>Архив торрентов
->>Архив Юмора
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275030.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Развлекательное шоу, в котором пресловутая женская логика оказывается как нельзя кстати. Девушки с выдающимся юмором и не менее выдающимися формами не позволят заскучать самому закоренелому снобу и накажут смехом даже законченного шовиниста. Сomedy Woman - место, в котором приятно побывать и не стыдно об этом вспомнить! Особенно зажигательные танцы, очень смешные (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-Шоу, юморСубтитры: ОтсутствуютПродолжительность: ~ 00:48:10
+1 декабря 2017 года, пятница. 20:45 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года.
+Бивер-Крик (США)
+Мужчины. Супергигантский слаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:10:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36FDDE4BAAB08DCB9CAA2FC8277F09474B6E62E4
+magnet:?xt=urn:btih:2810B8B75597AFA70CC327A9D6BB90C5AC09FCFE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,26 +85,170 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083558   (273557) от 16.12.2016
+###  Публикация: 1337305   (275029) от 10.11.2019
 
-Adguard 1.4.0 (370) [Multi/Ru]
+Yoshiro Okazaki & Jay Thomas Quintet - Soul Summit!: Live at Mr.Kenny's (2014) CUG Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz, Trumpet Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KD's Cab Ride [7:55]
+02. Night Watch [6:14]
+03. Escapade [8:36]
+04. My Ideal [4:35](   Читать дальше...   )Жанр: Post-Bop, Piano Jazz, Trumpet JazzПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:274CFC2CF30B131E5A68728DC0398ACED980ADA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337308   (275028) от 10.11.2019
+
+Jay Thomas / Gary Smulyan - Lowdown Hoedown (2016) CUG Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lowdown Hoedown [5:44]
+02. Melanie [7:15]
+03. Star Eyes [7:19]
+04. Lotus Blossom [6:35](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8582A009BC61CEE0E90C70BBE66EC77D7850DD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188287   (275027) от 02.12.2017
+
+Blodulv - III - Burial (2005) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Burial
+03. Imperium Sanctum (Bleeding Mercury)
+04. Tank Warfare(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34FC1C21AFEFCA23A094D1855649F7FC8D7554A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337300   (275026) от 10.11.2019
+
+Benny Carter - Four Classic Albums Plus 1958 - 1960 (2012) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275026.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Old Fashioned Love [7:52]
+02. I’m Coming Virginia [5:49]
+03. A Walkin’ Thing [6:00](   Читать дальше...   )Жанр: Mainstream Jazz, Swing, Big BandПродолжительность: 02:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:416696567786F3340D3E400D7F63BA3BC9CFC205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188421   (275025) от 02.12.2017
+
+Thormenthor - Abstract Divinity (1994) [APE|Lossless|image + .cue] <Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abstract divinity
+02. The proportional dream
+03. Encircled by aura sphere
+04. Nothing expanded(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC95211B58C382D9FA7EBED4479CAF97E7573F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337327   (275024) от 10.11.2019
+
+Smooze 1.8.4 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275024.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adguard — это лучший способ избавиться от раздражающей рекламы, защититься от онлайн-слежки и мошеннических сайтов.
- Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 декабря 2016Разработчик: © AdguardПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский и другие
+Smooze одушевляет ваш скролл и добавляет функциональность к вашей не Apple мыши (прокрутки колеса мыши).Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Start BootstrapПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED4920D72AF43C13FD47B694A8422D2B357F254C
+magnet:?xt=urn:btih:2E38B9FFF5236599D2862E14825B381384E79EC0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -135,57 +256,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083681   (273556) от 16.12.2016
+###  Публикация: 1188457   (275023) от 02.12.2017
 
-Cher - Living Proof (2001) [FLAC|Lossless|image + .cue] <Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Music's No Good Without You (4:43)
- 02. Alive Again (4:19)
- 03. (This Is) A Song For The Lonely (4:02)
- 04. A Different Kind Of Love Song (3:52)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C29D88D35E45C841462DBA8CB3CE9EC3757136D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083652   (273555) от 16.12.2016
-
-Ольга Кормухина - Соль (2016) [APE|lossless|tracks] <Rock>
+Nepal - Ideologia (1995) [APE|Lossless|image + .cue] <Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275023.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Я знаю всё (02:57)
-02. Нас учили быть птицами (04:11)
-03. Говори, не молчи (03:43)
-04. Фишка (03:01)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:46
+01. Escenio
+02. Realidades
+03. Ideologia
+04. Guerra sucia(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F2DF5FD422720F3A6EE10817CC1C70A38DD21C3
+magnet:?xt=urn:btih:7D98B6B121206D1D787831DF2937E02CAB25C673
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -193,273 +285,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083416   (273554) от 16.12.2016
+###  Публикация: 1188463   (275022) от 02.12.2017
 
-Michael Giacchino - Rogue One: A Star Wars Story / Изгой-один: Звёздные войны. Истории (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. He's Here For Us (03:20)
-02. A Long Ride Ahead (03:56)
-03. Wobani Imperial Labor Camp (00:54)
-04. Trust Goes Both Ways (02:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4385431F23DDBD6921A8C54494670E35CF284DD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083154   (273553) от 16.12.2016
-
-Веселые копы: На страже порядка / Capertown Cops (2006) DVDRip [H.264] (Сезон 1, серии 1-9 из 34)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273553.jpg" />
-</div>
-
-
-###  Подробнее
-
-В вашем городе тихо и спокойно? Не беда, супер копы будущего не дадут погибнуть вам от скуки. Эти бесстрашные герои наведут порядок в Вашем городке, потому что только они знают как это сделать. С их появлением все злодеи попрячутся от страха, потому что они знают, что с супер копами лучше не связываться.Производство: США, The Ocean Sound Corporanion & Fil Cartoons IncЖанр: Мультфильм, комедияРежиссер: Джефф ДеГрандис/Jeff DeGrandisПеревод: Профессиональный (двухголосый, закадровый)Субтитры: ОтсутствуютПродолжительность: 01:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D2AA5063DA2077593F0D4D55F006C9BEA5E3B2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083511   (273552) от 16.12.2016
-
-Сниквик / Sneekweek  (2016) BDRip [H.264/1080p] [GER / EN Sub]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шестеро друзей отправляются на праздник под названием «Sneekweek», который идет целую неделю. Они пытаются в пьянках и беспорядочной половой жизни забыть о страшной тайне, которая связывает их уже 2 года. Но прошлое неумолимо настигает их.Производство: НидерландыЖанр: триллер, комедияРежиссер: Мартин ХайнеАктеры: Каролин Спор, Йелле де Йонг, Йорд Кноттер, Холли Бруд, Юта Вонг Лой Синг, Йонас Де Вуйст, Ферри Дуденс, Кимберли Клавер, Марли ван дер Вельден, Рутгер ВинкПеревод: ОтсутствуетЯзык озвучки: немецкийЯзык субтитров: английскийПродолжительность: 01:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCC6C4100C469D0BA12E9F10EEE9020DBF1EEA08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083590   (273551) от 16.12.2016
-
-James Horner & Simon Franglen - The Magnificent Seven / Великолепная семерка (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rose Creek Oppression (01:55)
-02. Seven Angels of Vengeance (03:25)
-03. Lighting the Fuse (01:22)
-04. Volcano Springs (02:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FB4A57C439AC79A5EE881AE1504CC6B0AB679B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083544   (273550) от 16.12.2016
-
-Исход: Цари и боги / Exodus: Gods and Kings (2014) HDRip [H.264] [MP4|1024x428]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ветхозаветная история о великом пророке Моисее и освобождении еврейского народа из египетского плена. Моисей появился на свет в те времена, когда фараон приказал убивать всех новорожденных мальчиков еврейского происхождения. Чтобы спасти его, мать положила малыша в корзину из тростника и отправила вниз по Нилу.
-Ребенка нашла дочь фараона, которая усыновила его и (   Читать дальше...   )Производство: Великобритания, США, Испания / Chernin Entertainment, Scott Free Productions, BabiekaЖанр: Боевик, Драма, ПриключенияРежиссер: Ридли СкоттАктеры: Кристиан Бэйл, Джоэл Эдгертон, Джон Туртурро, Аарон Пол, Бен Мендельсон, Мария Вальверде, Сигурни Уивер, Бен Кингсли, Хиам Аббасс, Исаак ЭндрюсПеревод: Дублированный, Одноголосый закадровый - (Д.Есарев)Язык субтитров: Русский, АнглийскийПродолжительность: 02:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:315CEF2A01C3570F3FB5696800B9DA567A2BBD20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083631   (273549) от 16.12.2016
-
-DriverMax Free 9.13 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273549.jpg" />
-</div>
-
-
-###  Подробнее
-
-DriverMax — бесплатная утилита для Windows, благодаря которой Вы сможете быстро переустановить все драйвера. DriverMax последняя версия ведет сбор данных об всех установленных в систему Windows драйверов, с дальнейшим выводом удобного списка устройств по их использованию. Благодаря бесплатной программе Драйвер Макс для компьютера, вы сможете узнать информацию о версии (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:731ED27C634FE9759A1F2EEA7287154F5E5A9B45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083157   (273548) от 16.12.2016
-
-Dataland CD Label Designer 7.0.0.737 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273548.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD Label Designer - программа разработки дизайна и распечатки этикеток для музыкальных или других сборников, резервных копий данных, домашних и семейных архивов, рекламных бизнес-материалов и брошюр, которые планируется сохранять или распространять на любом из видов компакт-дисков, отдельно или вместе с предназначенными для хранения компакт-дисков упаковками.
-
-Поддерживается (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A68830A23E160ADD6AC2FB788F270C0930BB3C05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337343   (273547) от 11.11.2019
-
-Microsoft Visual Studio 2019 Professional 16.3.7 (Offline Cache, Unofficial) [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Visual Studio Professional 2019 - полный набор инструментов, с помощью которых процесс реализации инновационных замыслов разработчика легко воплощается в жизнь. Visual Studio предоставляет минимальный функционал, при помощи которого можно создавать уникальные программные продукты.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1B548F32C8A44E9DC4A3DD1B22AC6B6B17621FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337558   (273546) от 11.11.2019
-
-Михаил Зуев | Патч. Канун (2019) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Патч».
-
-Молодая женщина из Эстонии, сорокапятилетний телесценарист-москвич и шестидесятилетний мультимиллионер – волею судеб встречаются на средиземноморском острове и становятся объектом эксперимента, какого не знала человеческая цивилизация: создания новой расы людей, чуждых агрессии, тех, кому уготовано спасти планету от неминуемой гибели.Жанр: Научная фантастика, Социальная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5934F282B8216029FAAD07D4B44D4B5AFB070F2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337452   (273545) от 11.11.2019
-
-VA - The Hits Album - The Rock Album (2019) 4CD [MP3|320 Kbps] <Rock>
+Master's Hammer - Ritual (1991) [APE|Lossless|image + .cue] <Black Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275022.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD 01:
-
-01. Meat Loaf - Bat Out Of Hell
-02. Toto - Hold The Line(   Читать дальше...   )Жанр: RockПродолжительность: 05:13:39
+01. Intro
+02. Pád modly
+03. Každý z nás...!
+04. Ritual(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:50:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E05870A7CD8288E7B4F247DC80341FD0D278B22
+magnet:?xt=urn:btih:E4F4C8DE462190489675630F41091B26AC5F0F39
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -467,105 +314,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337603   (273544) от 11.11.2019
+###  Публикация: 1337404   (275021) от 10.11.2019
 
-Acme CAD Converter 2019 8.9.8.1501 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acme CAD Converter — новая версия популярной и достаточно востребованной программы, которая позволят просмотреть файлы в формате DXF, DWF, DWG и конвертировать их в BMP, WMF, GIF, JPEG, PCX, TIFF, PNG, TGA, DXF, DWG, SVG, SVGZ, CGM, EPS, PDF, HPGL( PLT, HGL) и многие другие форматы, а также позволяет конвертировать версии DXF и DWG файлов ( R2.5-R2013). Преимущества (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:986473969D6281CA2ECD4BA2FB92FADDCEAA2C97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337092   (273543) от 11.11.2019
-
-Рембрандт / Rembrandt (1936) DVDRip [H.264] [Criterion Eclipse]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм начинается с того времени, когда умирает Саския, любимая художника и мать его сына Титуса, которая долгие годы служила мастеру источником вдохновения, а кончается последним годом жизни, когда он уже похоронил последнюю жену.
-Несмотря на то, что в последние годы своей жизни Рембрандт жил впроголодь, тратя все немногие деньги на краски, он был счастлив: ведь (   Читать дальше...   )Производство: Великобритания/ London Film ProductionsЖанр: Драма, биографияРежиссер: Александр КордаАктеры: Чарльз Лотон, Гертруда Лоуренс, Эльза Ланчестер, Эдвард Чэпман, Уолтер Хадд, Роджер Ливси, Джон Брайнинг, Сэм Ливси, Херберт Ломас, Аллан ДжейесПеревод: Двуголосый профессиональный (Александр Белявский, Наталья Казначеева)Субтитры: ОтсутствуютПродолжительность: 01:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E4ACD57375975ED85E0CA66F302FF1ADB60C0A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337433   (273542) от 11.11.2019
-
-Война мутантов / Mutant War (1988) BDRemux [H.264/1080p] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение фильма Бретта Пайпера "Битва за потерянную планету -Battle For The Lost Planet (1986) ".
-На этот раз главный герой сражается против злодея, создающего мутантов с целью захвата мира. Но, увы, все мутанты мужского пола, так что для разможения им требуются обычные девушки, которых они похищают и утаскивают к себе на базу. Спасать похищенных и отправляется (   Читать дальше...   )Производство: США / Cinevest Entertainment GroupЖанр: Боевик, ФантастикаРежиссер: Бретт ПайперАктеры: Кэмерон Митчелл, Мэтт Митлер, Дебора Квейл, Кристин ВатерманПеревод: Авторский (Вячеслав Котов)Субтитры: Английские (Full + SDH)Продолжительность: 01:21:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:929A75BEA3764BC5173B54B66CF2800B48C2A4D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337644   (273541) от 11.11.2019
-
-Adobe XD 24.1.22.6 [Multi]
+Music Tag Editor 2 v4.0 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275021.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adobe XD CC - это новый творческий инструмент от компании Adobe для проектирования высококачественных прототипов интерфейсов пользователя для мобильных и веб-приложений. Этот инструмент специально разработан для построения быстрых прототипов, а также для высокой точности воспроизведения пользовательского интерфейса и дизайна. С помощью Adobe XD CC любой желающий (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Adobe Systems IncПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский и др.
+Music Tag Editor - редкатор музыкальных тегов поможет вам изменить информацию легко и эффективно, преобразовать текст тегов, добавить обложку и т.д.
+Приложение поддерживает следующие форматы: MP3, M4A (Apple lossless), MP4, FLAC, APE, AIFF, WAV , Ogg files.
+Поддержка: ID3V1, ID3V2.3,ID3V2.4, xiphComments, APE Tag, Ogg Vorbis, Ogg Speex, Ogg Flac.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: SwiftMediaПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Упрощенный китайский и Японский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1BB3B5E77C5AF17F2050934BFEA192C1BDEE98E
+magnet:?xt=urn:btih:3EF8DAC158ED833D9EB8CCF364E25C26C1B69F7C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -573,28 +342,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337545   (273540) от 11.11.2019
+###  Публикация: 1337417   (275020) от 10.11.2019
 
-Audioslave - Discography (2002-2006) 3CD [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hard Rock, Post-Grunge>
+Athentech Perfectly Clear Complete 3.9.0.1694 [En]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275020.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Revelations (4:13)
-02. One And The Same (3:38)
-03. Sound Of A Gun (4:20)
-04. Until We Fall (3:51)(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, Post-Grunge |Продолжительность: 00:48:29
+Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Photosop от компании Athentech Imaging из серии "сделайте мне быстро и красиво", позволяющий всего в пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+
+В цифровых камерах есть ограничения, которые приводят к таким искажениям (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:731663595A1B26A0A9CBE84C53323FF675A5FAEE
+magnet:?xt=urn:btih:B5DC3A1B4E4CE47303572E9E7519A7126A0084A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -602,28 +370,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 663981   (273539) от 11.11.2019
+###  Публикация: 1188595   (275019) от 02.12.2017
 
-Ten Madison - 7 Альбомов (2000-2007) [FLAC|Lossless]<Downtempo, Ambient, Electronic>
+VA - Euro Trance Classics (2017) [MP3|320 Kbps] <Trance>
 
 >>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275019.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Sol System (09:44)
-2. Neon Licht (05:14)
-3. Planar Tribes (09:26)
-4. Aquaventura (05:58)(   Читать дальше...   )Жанр: Downtempo, Ambient, ElectronicПродолжительность: 01:14:23
+01. Vechigen - Magic Frost (Paul Farrin Remix)
+02. Matt Pincer - Reckless (Original Mix)
+03. Snoww - Sparks (Original Mix)
+04. Hivanova - Past, Present, Future (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:13:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A44EFA2E6DD1B7B282C069D3BB4BB326864B568F
+magnet:?xt=urn:btih:EF2323F3946247DB80B61A9DA9BC989720FC073A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -631,26 +399,219 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337616   (273538) от 11.11.2019
+###  Публикация: 1337458   (275018) от 10.11.2019
 
-Евгений Щепетнов | Инь-ян. Против всех! (2019) [MP3]
+FilePane 1.10.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275018.jpg" />
+</div>
+
+
+###  Подробнее
+
+FilePane - легкий, универсальный мультиинструмент для быстрого управления файлами. FilePane является универсальным и очень простым в использовании приложением, специально разработанным для ускорения рабочего процесса и повышения производительности при работе с изображениями, текстовыми документами и файлами. Самое приятное то, что FilePane живет в строке состояния (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: mymixapps.comПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5992332573C4CD40FDD0163D6D88572FA3F6D89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188311   (275017) от 02.12.2017
+
+Saul Blanch Revancha - Refugiado (2006) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Detrás de aquellos ojos
+02. Negras noches, tristes días
+03. Prisionero del dolor
+04. Qué te está pasando en la cabeza?(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:01:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0050E4B528BD361F12176BD0E8F1438F2B2F8262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337319   (275016) от 10.11.2019
+
+Duplicate Manager Pro 1.3.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Duplicate Manager Pro обнаруживает, управляет и удаляет:
+Дублированные фото, размноженное видео, размноженные звуковые дорожки, размноженные документы, размноженные другие файлы.
+
+Простота в использовании и скорость работы - это основные принципы в концепции приложения. Ваше время является самым ценным, что у вас есть! Мы заботимся о вашем времени. Не тратьте свое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.11.2019Разработчик: GreenWorldSoftПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F3343D9BFF1305B279CFD8D950CF46A3863054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188276   (275015) от 02.12.2017
+
+Биатлон. Кубок Мира 2017-2018. 1-й Этап. Эстерсунд (Швеция). Мужчины. Индивидуальная гонка (30.11.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275015.jpg" />
+</div>
+
+
+###  Подробнее
+
+30 ноября 2017 года, четверг. 19:15 МСК
+1-й этап Кубка Мира по биатлону 2017-2018. Эстерсунд (Швеция)
+Мужчины. Индивидуальная гонка 20 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B5E3964DB2C33BC6ABF5782A7B1E50AAC4F1AAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337419   (275014) от 10.11.2019
+
+Журнал | Дачный совет №10 (2019) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Верный помощник для садоводов и огородников в самый разгар дачных работ. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации адвоката, а также календарь дачных работ.Жанр: Дача, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B6E0112B452BA6A8E7DB4150F212A2796A6E97C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188454   (275013) от 02.12.2017
+
+Nepal - Demos Originales + Ineditos (2012) [APE|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Te Destruiré
+02. Ciudadano De Las Tinieblas
+03. El Ojo Del Infierno
+04. Aquellos Bastardos(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A86F9E7FB48821FD7ECD7030F538410F36DADAEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337334   (275012) от 10.11.2019
+
+Wirecast Pro 13.0.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wirecast предлагает доступное программное обеспечение в качестве альтернативы дорогим аппаратным решениям организации видео-трансляций в сети Интернет. Благодаря Wirecast вы можете выводить на вещание несколько потоков с камер, в реальном времени вставляя в программный поток видеоклипы, изображения, звуки и такие необходимые элементы, как переходы, титры, хрома-кеинг, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Telestream, Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74814393ACAF11C6D1B2F4FA670351D79C2BFE52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337344   (275011) от 10.11.2019
+
+Николай Блохин | Владимирская (2019) [MP3]
 
 >>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275011.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приключения Сергея Сажина в мире колдунов продолжаются!
-«Лучше плохо лежать, чем хорошо сидеть!» – гласил один из жизненных принципов Серга, бывшего капитана полиции, старого опера, тертого, битого и стреляного, хотя и пребывающего теперь в теле модельной красотки, на задницу которой пялятся все – от последнего матроса до «крылатого» воина-летуна с острова Киссос. (   Читать дальше...   )Жанр: Попаданцы, Боевое фэнтезиПродолжительность: 09:15:43
+1395 год. В русские земли вторгаются войска Хромого Тимура (Тамерлана), прославившегося своими военными подвигами и невероятной жестокостью. Уже захвачен и разорен Елец, следующая - Москва. Навстречу его полчищам выдвигается наспех собранное войско молодого князя Василия, сына Дмитрия Донского. Но силы несопоставимы…
+Спасти Русь может только чудо. И оно свершается. (   Читать дальше...   )Жанр: Историческая повестьПродолжительность: 02:45:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D62CB42445B75074D4ADE1DDB7DF1D6D013EC417
+magnet:?xt=urn:btih:4DB395F0E4FB4626285B1D15B1E1BFD52FF9180C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -658,25 +619,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337471   (273537) от 11.11.2019
+###  Публикация: 1188278   (275010) от 02.12.2017
 
-The Foundry Katana 3.2v2 [En]
+Mirzadeh - Ancient Rites (2003) [FLAC|Lossless|image + .cue] <Black Metal>
 
->>Мультимедиа и Графика
->>ПО для моделирования
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275010.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Katana - это 3D-приложение, используемое для разработки, освещения и монтажа сцены. Интерфейс на основе нод используется для импорта активов и добавления источников света, для создания и назначения материалов, а также любых других изменений, необходимых для любом этапе создания. Эти «рецепты», созданные в проектах Katana, затем могут быть использованы для генерации (   Читать дальше...   )Язык интерфейса: Английский
+01. All For One Immortal
+02. Under The Veil of Misery
+03. Verenkantaja
+04. Winter Ceremony(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:34:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FDF94213809D4FBA2F38ADA246796DB1CC8CAF25
+magnet:?xt=urn:btih:6158CBAE1B25695B758555694AE0E001D0C45522
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -684,25 +648,85 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337631   (273536) от 11.11.2019
+###  Публикация: 1188383   (275009) от 02.12.2017
 
-Большой юбилейный концерт Александры Пахмутовой (2019) HDTV [H.264/1080p]
+Биатлон. Кубок Мира 2017-2018. 1-й Этап. Эстерсунд (Швеция). Женщины. Спринт (01.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275009.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Весь вечер на сцене Большого театра – Александра Пахмутова, поздравить композитора выйдут прославленные спортсмены: Вячеслав Фетисов, Лариса Латынина, Иван Едешко, Елена Чайковская, Владислав Третьяк, Аделина Сотникова, а также артисты самых разных жанров, среди которых Денис Мацуев и Лев Лещенко, Александр Градский и Тамара Гвердцители, Сергей Полунин и Хибла Герзмава, (   Читать дальше...   )Производство: РоссияЖанр: концертСубтитры: отсутствуютПродолжительность: 02:34:55
+01 декабря 2017 года, пятница. 19:45 МСК
+1-й этап Кубка Мира по биатлону 2017-2018. Эстерсунд (Швеция)
+Женщины. Спринт 7,5 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:13:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE42D571DCD61CFD0B21401A30EC36996765BA62
+magnet:?xt=urn:btih:0A7AC1894C08CC784A1CF4A4F7E5984085822EA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188458   (275008) от 02.12.2017
+
+Nepal - Manifiesto (1997) [APE|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Saga
+02. Perfil Siniestro
+03. Besando La Tierra
+04. Más Allá Del Asfalto(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3BB6D7D42985445829131E716417D79CC518470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337228   (275007) от 10.11.2019
+
+Schlaflieder Für Kinder - 20 Songs to Instantly Calm Your Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275007.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cosmic Waterfall 04:22
+2. Yoga Mat Sessions 02:02
+3. Serenity  02:44
+4. In the Distance 02:24(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7307F1F9456EE3A2076745741C9D289402712DBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

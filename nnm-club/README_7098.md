@@ -1,25 +1,22 @@
-###  Публикация: 1390867   (782265) от 17.06.2020
+###  Публикация: 1155894   (783070) от 11.02.2018
 
-Quicksilver Messenger Service - Happy Trails (1969) Remastered, 1992, BGO Records [FLAC|Lossless|tracks + .cue] <Rock, Psychedelic Rock, Classic Rock>
+STAR'цы (2017) WEBRip [H.264/720p-LQ] (сезон 4, выпуски 13-33 из 33) + Бонус "Школоте не понять"
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>След.
+>>Игровое видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783070.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Who Do You Love Suite, Who Do You Love (Part 1) (3:33)
-02. When You Love (5:15)
-03. Where You Love (6:07)
-04. How You Love (2:46)(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, Classic RockПродолжительность: 00:50:24
+Эксперты в области кино, игр и высоких технологий делятся своими взглядами на самые актуальные и животрепещущие новостные темы. В споре STAR'цев рождается если и не истина, то уж точно увлекательный дискурс.Жанр: Документальный, КомедияРежиссер: Geek-TVАктеры: Кирилл Ерошкин, Павел Кушелев, Александр Кузьменко, Андрей РусановСубтитры: отсутствуютПродолжительность: ~01:20:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1BA0EF7BE8440966E68E307C7DC22B3331700121
+magnet:?xt=urn:btih:20558F22E387F62293F2B2F053926E7F863A51D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,612 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390896   (782264) от 17.06.2020
+###  Публикация: 1390401   (783069) от 15.06.2020
 
-Литл Бэйби Бам - Давайте потанцуем! (2020) [MP3|320 Kbps]<Детские песни>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Наряжаемся в костюмы (принцессы, пираты и самолёты)
-02. Малыш акула (Акулья семья)
-03. Песенка о звуках разных животных
-04. Семья поросят(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:34:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390761   (782263) от 17.06.2020
-
-The Soft Machine - The Soft Machine (1968) Limited Edition, Reissue, 2013, ABC Records [FLAC|Lossless|tracks + .cue] <Jazz-Rock, Psychedelic Rock>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hope For Happiness (4:22)
-02. Joy Of A Toy (2:50)
-03. Hope For Happiness (Reprise) (1:40)
-04. Why Am I So Short? (1:38)(   Читать дальше...   )Жанр: Jazz-Rock, Psychedelic RockПродолжительность: 00:46:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390805   (782262) от 17.06.2020
-
-VA - The Best Workout Love Boy (2020) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fabloo - Make Me Complete (Original Mix)
-02. Amos Dj - Popcorn (Remix)
-03. Dj Marco Marzo - Open for Lunch
-04. Gipsybeat - Muzika Tambuza (Gipsy Extended Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5149FD5AAA418E0A83B50958748CCB1496CAE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390802   (782261) от 17.06.2020
-
-VA - Workout Music 2020 [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tyranix And Firman JP - Megapolis (Original Mix)
-02. Roman Hayez - Take Over (Original Mix)
-03. Mike Zaloxx - Voltage (Original Mix)
-04. Mat1ne - High Bounce (Original Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB028B8423BB710AD6D7E21A58788999B81EB0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390920   (782260) от 17.06.2020
-
-James Grant - The Anjunadeep Edition 300 (2020) 2CD, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nikola Melnikov & Max Sorokin - Sun Wakes Up Earlier Than All (Mixed) (04:59)
-02. Nordfold - Trondheim (Mixed) (04:22)
-03. Nikola Melnikov & Max Sorokin - Pandawa (Mixed) (03:49)
-04. Rezident - Pure (Mixed) (04:04)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 03:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:297937A22264F215BBA54AA124A65F01D7B1A8C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390923   (782259) от 17.06.2020
-
-VA - Quadrophobia V.1 (1998) Pendragon Records [FLAC|Lossless|tracks+.cue] <IDM, Electro, Industrial>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gridlock - Enzyme (04:30)
- 02. Gridlock - Headache (04:12)
- 03. Gridlock - Sickness (Second Disease) (04:14)
- 04. Gridlock - Retina (Reconstructed By Individual Totem) (05:41)(   Читать дальше...   )Жанр: IDM, Electro, IndustrialПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4194BD44A9239A6B66413A3C696DE6205454A073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390755   (782258) от 17.06.2020
-
-VA - EDM Pool Party: Night Session (2020) [MP3|320 Kbps] <Club, Dance, House, Edm>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782258.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Matoma - The Bender
-002. Headlinerz - Heat Of The Night
-003. Reepr - Drugs, Dance & Tekno
-004. Miami Shakers - City Lights(   Читать дальше...   )Жанр: Club, Dance, House, EdmПродолжительность: 09:36:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390859   (782257) от 17.06.2020
-
-Nick Drake - Five Leaves Left (1969) [FLAC|Lossless|tracks + .cue] <Rock, Folk Rock>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'Cello Song (4:48)
-02. Day Is Done (2:29)
-03. Fruit Tree (4:49)
-04. Man in a Shed (3:55)(   Читать дальше...   )Жанр: Rock, Folk RockПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390669   (782256) от 17.06.2020
-
-AMA Supercross Championship: Salt Lake City (11.06.2020) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_782256.jpg" />
-</div>
-
-
-###  Подробнее
-
-AMA Supercross Championship — американская гоночная серия. Гонки AMA Supercross Championship, основанные Американской ассоциацией мотоциклистов в 1974 году, проводятся с января по начало мая.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Вячеслав Брыкин)Продолжительность: 03:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6B4CED2E26E59FF9486DAD09B79A7466CB3E5F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390861   (782255) от 17.06.2020
-
-Серия Кубков NASCAR-2020. 11-й Этап. Мартинсвилль 500. Гонка / NASCAR Cup Series 2020. Round 11. Blue-Emu Maximum Pain Relief 500. Race WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782255.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 этап Nascar Cup, Blue-Emu Maximum Pain Relief 500, Martinsville Speedway (500 Laps, 263 Miles).Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Никита Дмитриев)Продолжительность: 03:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5664AB2C87D3EAA894B66D3162B4FC4C7F6106F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390839   (782254) от 17.06.2020
-
-VA - Beatport Trance: Electro Sound Pack #103 (2020) [MP3|320 Kbps] <Trance>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782254.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2d Project - Superstar
-002. Akatosh - Goblin's Dinner
-003. Jean Clemence - Ajna (Original Mix)
-004. Paracozm - Riding The Glass(   Читать дальше...   )Жанр: TranceПродолжительность: 09:47:47
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390760   (782253) от 17.06.2020
-
-Robert Wyatt - EPs (1974-1978) 1999 Box Set 5 CD, Compilation [FLAC|Lossless|tracks + .cue] <Jazz, Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роберт Уайатт (англ. Robert Wyatt; 28 января 1945, Бристоль) — британский музыкант, один из создателей влиятельной в прогрессивном роке группы Soft Machine. Женат на английской художнице и авторе песен Альфреде Бенж.01. Was a Friend (5:48)
-02. Maryan (6:46)
-03. A Sunday In Madrid (6:58)
-04. Free Will and Testament (4:33)Жанр: Jazz, Folk, World, & CountryПродолжительность: 00:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43DE6C0F10792791C640F8A64A7A8C0D4998697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390673   (782252) от 17.06.2020
-
-AMA Supercross Championship: Salt Lake City (15.06.2020) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782252.jpg" />
-</div>
-
-
-###  Подробнее
-
-AMA Supercross Championship — американская гоночная серия. Гонки AMA Supercross Championship, основанные Американской ассоциацией мотоциклистов в 1974 году, проводятся с января по начало мая.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Вячеслав Брыкин)Продолжительность: 02:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D8ECF38DE4683FC862F2F068DC1660378C13278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390720   (782251) от 17.06.2020
-
-VA - Club Music (2020) [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Louie Vega & Marc Anthony - Ride On The Rhythm (Masters At Work Dub Mix) 6:16
-02. Tori Amos - Professional Widow (Armand's Star Trunk Funk Mix) 3:47
-03. K-Klass - Let Me Show You (Klub Mix) 6:45
-04. Clubland - Hypnotized (PKA Full Philly 12' Mix) 6:31(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2DAC629DB51D3B343DA19F8394026DCF048D3F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390912   (782250) от 17.06.2020
-
-Grids for Instagram 6.0.11 [Multi/Ru]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grids переносит лучшее из Instagram на ваш Mac.
-Grids for Instagram - простая и удобная программа имеющая чистый не отвлекающий пользовательский интерфейс на Русском языке, позволит вам просматривать свою учетную запись в популярном сервисе Instagram. Самый большой плюс приложения в том, что вы сможете подключать к нему несколько аккаунтов и потом между ними легко (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: ThinkTime CreationsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390840   (782249) от 17.06.2020
-
-David Bowie - Hunky Dory (1971) Remastered, 1990, EMI [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Changes (3:38)
-02. Oh! You Pretty Things (3:12)
-03. Eight Line Poem (2:56)
-04. Life On Mars? (3:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:112AC54ED5053597DA7662E50EC6473D88A1233C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390877   (782248) от 17.06.2020
-
-Александр Макколл Смит | Детектив Варг (Книга 1). Отдел деликатных расследований (2020) [MP3, Кирилл Головин]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782248.jpg" />
-</div>
-
-
-###  Подробнее
-
-В шведской системе уголовного права находится место даже самым сложным и странным делам, за которые в полиции Мальмё отвечает элитное подразделение, известное как Отдел деликатных расследований: Ульф «Волк» Варг, внимательный и вдумчивый лидер, Анна Бенгсдоттер, влюбленная в машину Варга (не исключено, что и в самого Варга тоже), Карл Хольгерссон, который больше (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC5720479FBCC7069D85EB24BCB487DBE862BBA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390770   (782247) от 17.06.2020
-
-Kinza Browser 6.3.2 [Multi/Ru]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kinza Browser - японский браузер на базе Chromium с дополнительными настройками, такими как жесты мышью, супер перетаскивание, управление поведением вкладок, многофункциональная боковая панель (закладки, RSS, история).
-Имеет такие же возможности расширения функциональности, как и веб-браузер Google Chrome, включая добавление расширений, настройку тем и вход в систему (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390801   (782246) от 17.06.2020
-
-Beyond The Black - Horizons (2020) [MP3|320 Kbps] <Symphonic, Power Metal, Female Vocal>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Horizons (05:01)
- 02. Misery (03:44)
- 03. Wounded Healer (feat. Elize Ryd) (04:16)
- 04. Some Kind of Monster (04:22)(   Читать дальше...   )Жанр: Symphonic, Power Metal, Female VocalПродолжительность: 00:55:47
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390849   (782245) от 17.06.2020
-
-Мой особенный брат / Naui teukbyeolhan hyeongje / Inseparable Bros / My Special Brother (2019) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сэ-ха и Дон-гу не являются родственниками, но последние 20 лет живут как родные братья. Сэ-ха умный, но прикован к инвалидному креслу, а Дон-гу наоборот — обладает прекрасным здоровьем, зато обделён интеллектом. Однажды парни знакомятся с девушкой Ми-хён, которая, в отличие от остальных, относится к ним без предрассудков.Производство: Южная Корея / Joy Rabbit, Myung Films, Next Entertainment WorldЖанр: Драма, комедияРежиссер: Юк Сан-хёАктеры: Щин Ха-гюн, Ли Гван-су, Исом, Пак Чхоль-мин, Квон Хэ-хё, Киль Хэ-ён, Ан Джи-хо, Ким Джун-ги, Ким Гён-нам, Чхве Гван-ильПеревод: Многоголосый любительский (STEPonee)Субтитры: АнглийскиеПродолжительность: 01:53:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:611910ABEDCDD9B4EA862B04E1F2F65F759E3150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390858   (782244) от 17.06.2020
-
-Мой особенный брат / Naui teukbyeolhan hyeongje / Inseparable Bros / My Special Brother (2019) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сэ-ха и Дон-гу не являются родственниками, но последние 20 лет живут как родные братья. Сэ-ха умный, но прикован к инвалидному креслу, а Дон-гу наоборот — обладает прекрасным здоровьем, зато обделён интеллектом. Однажды парни знакомятся с девушкой Ми-хён, которая, в отличие от остальных, относится к ним без предрассудков.Производство: Южная Корея / Joy Rabbit, Myung Films, Next Entertainment WorldЖанр: Драма, комедияРежиссер: Юк Сан-хёАктеры: Щин Ха-гюн, Ли Гван-су, Исом, Пак Чхоль-мин, Квон Хэ-хё, Киль Хэ-ён, Ан Джи-хо, Ким Джун-ги, Ким Гён-нам, Чхве Гван-ильПеревод: Многоголосый любительский (STEPonee)Субтитры: Английские - отдельным файломПродолжительность: 01:53:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22EE439A00AC61DC48024EFECC7C4BD31CEEA678
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390910   (782243) от 17.06.2020
-
-save2pc Ultimate 5.6.1.1601 RePack (& Portable) by TryRooM [Ru/En]
+K-Lite Codec Pack Update 15.5.3 [En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783069.jpg" />
 </div>
 
 
 ###  Подробнее
 
-save2pc Ultimate - это простая в использовании программа, которая позволяет сохранять видео с известного файлового хранилища YouTube. При помощи программы можно загрузить любой видеофайл с веб-сервиса YouTube по приведенной на его страничке ссылке. Все, что требуется от юзера - это скопировать и вставить ссылку в окно save2pc Ultimate, выбрать нужный формат и запустить (   Читать дальше...   )Язык интерфейса: Русский | Английский - выбирается при установке
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1EBD7A1EE743D0433A76F86BE9B8166C63CDF768
+magnet:?xt=urn:btih:AD77222307DE92AA385EAF67EA341A1DF2221917
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,77 +50,658 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390879   (782242) от 17.06.2020
+###  Публикация: 1390252   (783068) от 15.06.2020
 
-Кейт Аткинсон | Джексон Броуди (Книга 5). Большое небо (2020) [MP3, Владимир Голицын]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джексон Броуди поселился в крошечной приморской деревушке в северном Йоркшире, где ему иногда составляют компанию сын и дряхлый лабрадор, и печально ожидает свадьбы своей дочери. Занимаясь рутинной работой частного детектива – в основном собирая доказательства супружеской неверности, – Джексон однажды встречает на осыпающемся утесе совершенно отчаявшегося человека. (   Читать дальше...   )Жанр: ДетективПродолжительность: 12:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:174B42265A671FE00892A1FBAFD4F01A4226AA17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390812   (782241) от 17.06.2020
-
-Исландия / Islandia (2019) WEBRip [H.264/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782241.jpg" />
-</div>
-
-
-###  Подробнее
-
-От невероятных пейзажей и обширных долин до живописных ландшафтов и величественных водопадов и озёр.Производство: ИсландияЖанр: Документальный, видовойРежиссер: Вадим ЩербаковПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:522150BA278723F57263563C3EC7B4F6DB68FF0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390883   (782240) от 17.06.2020
-
-Майк У. Крэйвен | Вашингтон По (Книга 1). Шоу марионеток (2020) [MP3, Роман Волков]
+Юрий Сучков - 5 Видеоклипов (2017-2020) [H.264/720p] <Chanson>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783068.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В древних каменных кругах озерного края находят обугленные тела пожилых мужчин. Все жертвы – сожжены заживо. И все указывает на то, что это дело рук одного человека, таинственного серийного убийцы, прозванного в прессе Камбрийским Сжигателем. Он не оставляет улик, полиция в растерянности. Пока на теле одной из жертв не находят вырезанное имя одного из детективов (   Читать дальше...   )Жанр: ДетективПродолжительность: 11:22:52
+001 Юрий Сучков. Белый призрак 2019
+002 Юрий Сучков. Кот по имени Кот 2019
+003 Юрий Сучков. Просто кошка 2017
+004 Юрий Сучков. Мяу! (Кошачий твист-ламбада) 2020(   Читать дальше...   )Производство: (с) Drova3Studio LTD Corporation / (с) 2020 Zymotic Productions Ultra-VideoЖанр: ChansonРежиссер: Юрий СучковАктеры: Кот "Заяц"Продолжительность: 00:20:25
 
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390333   (783067) от 15.06.2020
+
+Talking Heads - Talking Heads: 77 (1977) [FLAC|Lossless|tracks] <Rock, Art Rock,  New Wave>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uh-Oh, Love Comes to Town (2:49)
+02.  New Feeling (3:08)
+03. Tentative Decisions (3:08)
+04. Happy Day (3:55)(   Читать дальше...   )Жанр: Rock, Art Rock,  New WaveПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390356   (783066) от 15.06.2020
+
+Сьюзан Хинтон | Изгои (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленький городок в Оклахоме, 60-е годы. В давнем конфликте противостоят друг другу банды подростков – грязеры и вобы. Первое правило грязеров – по одному не ходить, второе – не попадаться. И всегда стоять за друзей горой, что бы они ни сделали. 14-летний Понибой Кертис уверен: богатеньким деткам – вобам, золотой молодежи с западной части города – никогда не понять (   Читать дальше...   )Жанр: КлассикаПродолжительность: 05:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A596719DED3BA0C4EA3F31B7826559239AB1956
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390488   (783065) от 15.06.2020
+
+VA - Sea Cruising Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gary B - It Feels Like Summer (3:54)
+02. Eivissarts - Stoned Love (Original Mix) (5:29)
+03. Clelia Felix - Under the Moonlight (4:36)
+04. Schwarz & Funk - Dambes (Original MIx) (5:26)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C004BA1B93F6803D09E845884A2B3AD204027F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390264   (783064) от 15.06.2020
+
+АХСиМСЗ - Да здравствует американский шовинизм! (George Floyd Protest in USA) (2020) WEBRip [H.264/1080p] <Radical political hardcore>
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783064.jpg" />
+</div>
+
+
+###  Подробнее
+
+CDA: 2007.5 - Правда Силы
+George Floyd Protest in USAПроизводство: (с) 2020 Zymotic Productions Ultra-VideoЖанр: Radical political hardcoreПродолжительность: 00:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E4AC459FC480753F67C7D43153F56699D50D614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390480   (783063) от 15.06.2020
+
+Борис Николаевич Ширяев | Неугасимая лампада (2014) [FB2, EPUB]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть «Неугасимая лампада» — самое значительное произведение Бориса Николаевича Ширяева, русского писателя второй волны эмиграции. Оказавшись в Соловецком лагере в 1920-х годах, Б. Ширяев описал тяжёлую жизнь его узников, полную страданий, лишений, но вместе с тем и неугасимого света надежды. Соединив рассказы о судьбах людей, соловецкие легенды и лагерный фольклор, (   Читать дальше...   )Жанр: Православная художественная литератураФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:424C90E3BD08278C8FE8FA43EF16FED0BCB5BA94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390418   (783062) от 15.06.2020
+
+Torch Browser 69.2.0.1707 Multi/Ru]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Torch Browser - браузер на платформе Chromium с расширенными возможностями: прямо из браузера можно будет скачать файл с торрента, сохранить видео, ускорить загрузку файлов, поделиться ссылками и т.д.
+Кроме этого, в Torch Browser встроены функции безопасности, призванные защитить пользовательские данные, а также обеспечить приватность деятельности в интернете.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390391   (783061) от 15.06.2020
+
+Arslan Senki: Fuujin Ranbu / The Heroic Legend of Arslan: Dust Storm Dance / Сказание об Арслане [ТВ-2] [2016, TV, 8 из 8 эп.] BDRip 720p Raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Силы Лузитании нечеловеческими усилиями продолжают удерживать власть над Королевством Парса, в то время как Арслан ведет ожесточенное сражение против Серебряной Маски. Арслан уверенно борется за свой законный трон, но осталось еще много проблем, нависающих тяжким бременем над юным принцем. Однако самой главной загадкой для Арслана по-прежнему остается личность его (   Читать дальше...   )Производство: Liden FilmsЖанр: приключения, фэнтези, драмаРежиссер: Абэ НориюкиСубтитры: РусскиеПродолжительность: 8 серий по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20882F708B86D5DABE69E8045BAFFE51DDD4E91F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390336   (783060) от 15.06.2020
+
+VA - Goa Visions 2020 [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783060.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Neelix; Durs - All Around Us (3:45)
+2. GHOST RIDER; Effective - Accession (Beat Herren Remix) (7:38)
+3. Off Limits - Bassayo (Original Mix) (6:37)
+4. Pitch Bend; Phazed - Zuma (5:23)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 03:12:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390363   (783059) от 15.06.2020
+
+VA - Morning Jazz Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Raquel Silva Joly - Dindi
+02 Alyssa Zezza - Do It Again
+03 Raquel Silva Joly - Estate
+04 Brazil Beat - Chega De Saudade(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:10:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390495   (783058) от 15.06.2020
+
+Killitorous - The Afterparty (2020) [MP3|320 Kbps] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Hail the Starchild (02:36)
+ 02. Married with Children (03:14)
+ 03. Rodney Dangerfield of Dreams (03:49)
+ 04. Eat Your God Alive (04:08)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2587483BA8DD3A9D3010AF6FB01FAD48CC50FED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390462   (783057) от 15.06.2020
+
+Роберт Кинцл, Маани Пейван | Стримпанки. YouTube и бунтари, изменившие медиаиндустрию (2019) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783057.jpg" />
+</div>
+
+
+###  Подробнее
+
+С момента своего появления YouTube приносит в индустрию медиа и развлечений такие глубокие изменения, которые можно сравнить разве что с переменами, связанными с изобретением кино, радио и телевидения. Инсайдеры из сферы развлечений и технологий, директор по развитию бизнеса YouTube Роберт Кинцл и ведущий автор Google Маани Пейван, рассказывают о взлете YouTube, (   Читать дальше...   )Жанр: Публицистика, Истории успехаПеревод: Д. МальцевФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:464C3A294FE6FEFA66D02E34A523EC9BAF491AD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390432   (783056) от 15.06.2020
+
+Glary Utilities Pro 5.144.0.170 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B5F65A5D62E6E932EB63399A883F65A9AC40F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390327   (783055) от 15.06.2020
+
+Lou Reed - Transformer (1972) [FLAC|Lossless|tracks+.cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vicious (2:59)
+02. Andy's Chest (3:21)
+03. Perfect Day (3:46)
+04. Hangin' Round (3:35)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE20545A0BC90F97A37269391BD38EC3802CCA13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390494   (783054) от 15.06.2020
+
+RogueKiller Anti-Malware 14.6.0.0 + Portable [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783054.jpg" />
+</div>
+
+
+###  Подробнее
+
+RogueKiller Anti-Malware можно использовать бесплатно для сканирования и очистки. Однако, приложение имеет дополнительные платные функции, которые обеспечивают защиту в режиме реального времени, более высокий уровень безопасности и позволяют более детально настраивать поведение программы. Среди дополнительных возможностей: автоматическое обновление, использование (   Читать дальше...   )Язык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01736BCF4FD6266A752A5738FA0CE2A6910030A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390422   (783053) от 15.06.2020
+
+В Иберию / Into Iberia (2019) WEBRip [H.264/2160p]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воздушный полёт, через некоторые разнообразные ландшафты Иберии.Производство: Испания, ПортугалияЖанр: Документальный, видовойРежиссер: Человек и дронПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390323   (783052) от 15.06.2020
+
+VA - Psytrance Festival 2020 (The Goa Experience) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783052.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Liquid Soul; Zyce; Solar Kid - Anjuna (Vegas Remix) (7:02)
+2. Zyrus 7 - Dúlamán (Extended Mix) (6:30)
+3. Neelix; Durs - All Around Us (3:45)
+4. Captain Hook - Space Tube 25 (15:26)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 03:27:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390446   (783051) от 15.06.2020
+
+Mirai Keisatsu Urashiman | Future Police Urashiman | Урасиман: Полиция будущего [1983, TV, 50 из 50] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет начинается с 1983 года, в котором молодой парень Рико ночью во время шторма вместе с котом спасается от преследования полиции и попадает в процессе этого в центр циклона, после чего из-за временно-пространственного искажения, попадает в будущее. В будущем его начинает преследовать преступная мафия «Некрим» во главе с Людовичем. И вот, взяв себе новое имя Рю (   Читать дальше...   )Производство: Tatsunoko Production / タツノコプロЖанр: приключения, комедия, фантастикаРежиссер: Масимо КойтиПеревод: KitsuNeNeЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 50 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81C5F0A74DC7B0EBD50E0BBE89C14DE8B897F913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390436   (783050) от 15.06.2020
+
+Lacey Free Music & Video Downloader 2.41 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lacey -  простой инструмент для поиска и скачивания мультимедийного аудио и видео контента. Поскольку найти в интернете популярные хиты обычно не составляет труда, вот только скачать их не всегда предоставляется возможным. Впрочем, и это не является проблемой, поскольку есть программы, которые позволяют, что называется, выпрямлять ссылки, а если проще — скачивать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1084E6C6B764C056EB404CB19D594259C0961F07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390466   (783049) от 15.06.2020
+
+Инга Ильм | Моя Италия (2019) [EPUB]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга российской актрисы, телеведущей и историка искусства Инги Ильм посвящена ее открытию Италии. Автор щедро делится с читателями своими впечатлениями от соприкосновения с древней культурой, кипящей современной жизнью на Апеннинском полуострове. Проходя страница за страницей по улицам итальянских городов, вы легко сможете представить себе, как века изменяли их (   Читать дальше...   )Жанр: Культурология, Общая история, ПутеводителиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBB083DEE7BE6DE5F5F6D635AF4DA2F52630C492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390397   (783048) от 15.06.2020
+
+Ровенна Миллер | Швея-чародейка (2020) [FB2]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_783048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Рассекреченное королевство».
+
+Во время революции каждый выбирает, на чьей он стороне.
+Швея Софи Балстрад заработала для своего ателье почти безупречную репутацию. Во время городских беспорядков она мечтала шить платья и заниматься чародейством. Но судьба распорядилась иначе.(   Читать дальше...   )Жанр: Героическое фэнтези, Городское фэнтези, Зарубежное фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390434   (783047) от 15.06.2020
+
+Rave The Reqviem - Great Artists of My Heart Vol. 08 (2020) [MP3|320 кб/с]<Industrial Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783047.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:04| 01. Prelvdivm (Nihil Ex Nil)
+|03:54| 02. Azalea
+|04:23| 03. The Ascension
+|01:01| 04. FVNERALЖанр: Industrial MetalПродолжительность: 02:32:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390435   (783046) от 15.06.2020
+
+Talamasca - The Experiment (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783046.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Experiment (7:36)
+2. Talamasca; Iván Castro - Anything To Feel Alive (8:17)
+3. Lady Sweet Dream (9:15)
+4. Another Sucker Down (8:03)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC19C9026D98CDDBAB70FBB2617F9BC76BC3F6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390470   (783045) от 15.06.2020
+
+Вячеслав Шпаковский, Екатерина Егорова | PR-дизайн и PR-продвижение (2018) [EPUB]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены методы PR-дизайна и общие принципы их поиска. Представлены разнообразные стратегии проведения комплексных PR-кампаний. На конкретных примерах подробно раскрыты средства PR-продвижения – начиная от подбора названия и темы оформления и заканчивая разработкой медиастратегии и организацией выставок. Рассмотрены технологии межличностной и групповой коммуникации, (   Читать дальше...   )Жанр: Маркетинг, PR, реклама, Учебники и пособия для вузовФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A75BD5C173865DD07C230BEA8381068E582FE635
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 926797   (531194) от 11.08.2015
+
+Elton John - The Million Dollar Piano (2014) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всемирно известный певец, автор и исполнитель песен, легендарный сэр Элтон Джон выступит со своим известным шоу The Million Dollar Piano в концертном зале Колизей в Лас-Вегасе. Центральное место в концерте отводится роялю, который является поистине чудом инженерной мысли: полностью покрытый 68 светодиодными LED-экранами, он представляет собой сплав новых технологий (   Читать дальше...   )01. The Bitch Is Back
+02. Bennie And The Jets
+03. Rocket Man
+04. Levon(   Читать дальше...   )Жанр: Rock, Pop Rock, Glam Rock, Soft Rock, R&BПродолжительность: 01:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A98C072240EE92D48FF470C24ACA35352842BFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927112   (529715) от 12.08.2015
+
+Alice Cooper - Live at Bonnaroo Festival (2012) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт на фестивале Bonnaroo в Great Stage Park, Manchester, Теннесси, 9 июня 2012 г.01. The Black Widow
+02. Brutal Planet
+03. I'm Eighteen
+04. Under My Wheels(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EF4365A3CB5EC360D3A1CA83690BEB62BA9E321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927154   (529627) от 12.08.2015
 
 A MusiCares Tribute to Carole King (2015) BDRip [H.264/1080i]
@@ -651,67 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F540B9865C3ADB16A74A4D6219E463EEE677AE23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539760   (505415) от 27.08.2012
-
-Heaven and Hell - Radio City Music Hall Live! (2011) BDRip 1080p
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505415.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. E5150/After All
-2. The Mob Rules
-3. Children Of The Sea
-4. Lady Evil
-5. I
-6. The Sign Of The Southern Cross
-7. Voodoo
-8. The Devil Cried
-9. Computer God
-10. Falling Off The Edge Of The World(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:56:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316737   (504942) от 27.07.2019
-
-Metallica - Live @ Moscow (2019) WEBRip [H.264/1080p-LQ]
-
->>След.
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504942.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 июля 2019 года в Москве состоялся концерт группы Metallica. Ветераны хэви-метала, одни из самых влиятельных рок-музыкантов мира выступили на БСА «Лужники» в рамках гастрольного тура WorldWired Tour.Производство: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E4B070F57F47409C016774040A5AC66F6604C84
 ```
 
 https://mybot314.ru/tekegram_catalog/

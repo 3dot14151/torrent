@@ -1,3 +1,107 @@
+###  Публикация: 1279301   (766688) от 28.01.2019
+
+Растровый клипарт - Creative Market - Butterfly Illustration Bundle - 1508506 [PSD, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник из 75 красочных старинных бабочек.Формат: PSD, PNGРазрешение файлов: 1500x1500-1582x2048
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72C72186665EFB509404477E9F486A94C7B33631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279291   (766678) от 28.01.2019
+
+Стили - GraphicRiver - 20 3D Retro Photoshop Styles asl.Vol.2 - 22813719 [PSB, ASL]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766678.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 3D Ретро стилей для текста.Формат: PSB, ASL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:783BCC9053F23131A439D846FCDE0BA835DA0D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213948   (766577) от 19.03.2018
+
+Растровый клипарт - Happy Easter #03 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт Пасха для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 131x400-800x800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9436BF970544B98892A83AE3A38A33FB897C0252
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214023   (766533) от 19.03.2018
+
+Экшены - Creative Market - 20 Sunlights with Flares - 1949486 [ATN, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добавьте красивые эффекты к вашим изображениям, используя наши оптически захваченные солнечные лучи с вспышками для фотографов, особенно свадебных, портретных и семейных фотографов.Формат: ATN, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97D9E4DD1E47D520F0DDE913383DAD42675EF359
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213952   (766531) от 19.03.2018
 
 Растровый клипарт - Painted Lilacs Photoshop Overlays [PNG]
@@ -585,112 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9182E392A9BDA598C22571EDC68E5592B7DC2142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214704   (763061) от 23.03.2018
-
-3D модели - Daz 3D - Wizard Magic Bundle - 50371 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Магический набор волшебников для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941E50B48B76665D1FFA9AEFB076D8DB747C3453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017078   (762557) от 16.05.2016
-
-Экшены - GraphicRiver - Liquify Photoshop Action - 9239689 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C305E0BEEDE5141769AA957596A321BAA6F8DBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017427   (762556) от 16.05.2016
-
-Экшены - CreativeMarket - 15 Oil Painting Effect Photoshop Act - 406110 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Oil Painting Effect - этот экшен был разработан для фотографов и графических дизайнеров.
-Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BABC4E5ADB18D0C3C3C594CC6EF910E01C3AAF0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017065   (762551) от 16.05.2016
-
-Экшены - GraphicRiver - Typography 2 Photoshop Action - 12095200 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Типографический эффект из ваших фотографий всего за несколько кликов.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70975B34589B3CEBDEB258FD6136EB0312ABE7EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

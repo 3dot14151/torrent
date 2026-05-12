@@ -1,3 +1,30 @@
+###  Публикация: 1221874   (689179) от 27.04.2018
+
+Фоны - Creativetacos - Free 12 Motion Blur 8K Backgrounds [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные текстуры с эффектом размытия.
+Автор: CreativetacosФормат: JPGРазрешение файлов: 7680 x 4320
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6B456DF05C6A4B0CFBBC8FCBF53FEE482DF6758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222304   (687481) от 28.04.2018
 
 Текстуры - GraphicBurger - 10 Marble Textures Vol.4 [JPG]
@@ -650,33 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:313CA3B25181391E5EABE780C66BBD8EF1A1A30A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222283   (685162) от 29.04.2018
-
-Текстуры - Creativetacos - 12 Free Distressed Cement Textures [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные текстуры - постаревший цемент.
-Автор: CreativetacosФормат: JPGРазрешение файлов: 6000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFE8610C57AB1839F10942152AECDCC7D09412DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

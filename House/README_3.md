@@ -1,3 +1,61 @@
+###  Публикация: 1470168   (1015629) от 17.05.2021
+
+VA - EDM 2021 Ibiza Opening Party (2021) [MP3|320 Kbps] <House, Deep House, Progressive House, Big Room>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MaxRiven - Time To Shine
+02. Geo Da Silva, Dani Corbalan - You Gotta Love Me
+03. Stephan F, YA-YA - New Spirit
+04. Rene Rodrigezz, Moodygee - Tom's Diner(   Читать дальше...   )Жанр: House, Deep House, Progressive House, Big RoomПродолжительность: 01:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E49D02E15711CD97FFF6C679DECD823439DDE1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472627   (1014166) от 26.05.2021
+
+VA - Armada Record Box - REMIXED I (2021) [MP3|320 Kbps] <Deep House, Progressive House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kidnap feat. Leo Stannard - Moments (Ben Bohmer & Nils Hoffmann Extended Remix)
+02. Lifelike & Kris Menace - Discopolis 2.0 (MEDUZA Extended Remix)
+03. Sian Evans - Hide U (Tinlicker Extended Remix)
+04. Morgan Page feat. Lissie - The Longest Road (deadmau5 Extended Remix)(   Читать дальше...   )Жанр: Deep House, Progressive House, ElectronicПродолжительность: 04:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA9E5DEE33CF067115863943EB521C3A2F3027C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349511   (1004493) от 01.01.2020
 
 VA - 2020 Workout Starts Now [MP3|320 Kbps] <Funky, Club House>
@@ -771,70 +829,6 @@ VA - La Nuit (Delicious Chill House Lounge Vol 1) (2016) [MP3|320 кб/с] <Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9017DF815D34920687992CB11653D1B03441FC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355614   (982294) от 27.01.2020
-
-VA - Workout All Music (Electro House Music Body Groove) (2020) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simon Le Grange - Yuo Mann 06:43
-02. Assian - Smalltalk 05:37
-03. Supernocs - Black Oce 04:33
-04. Supernocs - Abotha 06:07(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:54:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8128A762922F50F56D70E1D247FCB7A8DB25A8FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613985   (981753) от 05.02.2013
-
-VA - Jet Set Love Vol.1 (2013) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Groove Boyz - Come to the House (feat. Cadillac - Progression Vocal Mix)
-02. Victor Arman - My Angel Eyes (feat. Anjela - Vocal Playa Mix)
-03. Zaar - Iron Money (feat. Sakurya - House Sector Mix)
-04. Tony Roja - Deep Hole in Woman (feat. Morena - La Boca Mix)
-05. Train Inc. - Come Into My Life (Beach Groovers Mix)
-06. Tribeca Motel - The Angel in the Studio (Percussive Onda Mix)
-07. Pianofingher - The Stolen Stockings (House Zone Mix)
-08. Anthony Cool - Full Jazz (Jazz Style Mix)
-09. Heaven Grooves - Insane (The Bass Mix)
-10. House Gee - Lasalsa (House Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:55:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B53BE72FE404CC1080AFF149D019D7703880A14
 ```
 
 https://mybot314.ru/tekegram_catalog/

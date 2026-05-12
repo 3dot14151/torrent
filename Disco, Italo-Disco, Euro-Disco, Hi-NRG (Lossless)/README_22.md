@@ -1,3 +1,29 @@
+###  Публикация: 1590660   (187717) от 16.11.2022
+
+Savage - Greatest Hits and More (1990) 1995 Reissue, Compilation, Unofficial [FLAC|Lossless|tracks + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savage - Ten Years AgoЖанр: Italo-DiscoПродолжительность: 01:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3508247AE02810946B9C7A8187BF4826A3B4A21C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662830   (187405) от 19.09.2023
 
 Linda Jo Rizzo - Passion (The Original Maxi-Singles Collection) (2023) Compilation, Remastered [FLAC|Lossless|image + .cue] <Euro-Disco>
@@ -715,41 +741,6 @@ Romantic Avenue - Through the Years (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FAB66B6DD1CBB63B390AB3C571BC3953520C898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590871   (139102) от 18.12.2012
-
-VA - 40 Jahre Disco - Ilja Richter Prasentiert (2011) 14 CD [FLAC|Lossless]<Disco, Pop, Rock>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139102.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. The Rubettes - Sugar Baby Love (1974) 3:28
-02. Leif Garrett - Surfin' USA (1977) 2:22
-03. La Bionda - Baby Make Love (1981) 3:36
-04. Shakin' Stevens - Marie, Marie (1980) 2:44
-05. Darts - Reet Petite (1979) 2:53
-06. Georgie Fame & Alan Price - Rosetta (1971) 2:46
-07. Cliff Richard - Power To All Our Friends (1973) 3:01
-08. Christie - San Bernadino (1970) 3:11
-09. Middle Of The Road - Sacramento (A Wonderful Town) (1971) 2:54(   Читать дальше...   )Жанр: Disco, Pop, RockПродолжительность: 02:18:55
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

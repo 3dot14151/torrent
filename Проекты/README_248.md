@@ -1,3 +1,55 @@
+###  Публикация: 1064047   (425556) от 20.10.2016
+
+VideoBlocks - Halloween Intro / Pond5 - Halloween Intro - 68170172 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чутка пугающее хэллоуинское интро с атрибутами этого праздника - зеленый смог, кладбище, тыквы и все такое. Музыка включена в проект.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9AA2AAF231752E72429A12AE3A394886A7C507A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064421   (425555) от 20.10.2016
+
+Проекты - VideoHive - Blue Neon V.1 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания промо, интро или короткого слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC125D13D91AA60F914EBBF59E9FFE59AB552331
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064422   (425552) от 20.10.2016
 
 Проекты - VideoHive - Fashion Show [AEP]
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29F76085B849CFCF5FE8778049B6BD0CFD2FB97B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065155   (421112) от 22.10.2016
-
-Проекты - VideoHive - The House Backflip Show - 5531488 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания динамичного промо, интро, презентации показа мод, событий моды и многое другое.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2B0BC17697C83FE9EFD0952384CF8F6314FE9DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065349   (420962) от 22.10.2016
-
-Проекты - Motion Array - Hexagon slideshow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания красивого и анимированного слайд-шоу. Это простой в использовании шаблон содержит контроллер пользовательского цвета.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BAE75385CC9FDD1F53D93612B6B116C53D89BE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

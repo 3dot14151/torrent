@@ -1,3 +1,55 @@
+###  Публикация: 917963   (588586) от 13.07.2015
+
+Проекты - VideoHive - Service/Product/e-Shop Promotion [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания презентации интернет ресурса. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D41F11F07A556BE924C5900C1E3BF336E45874
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917976   (588568) от 13.07.2015
+
+Проекты - VideoHive - Corporate Lower Third [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Corporate Lower Third- элегантный проект текстовых подложек, выезжающий то с левой, то с правой стороны, который содержит 26 анимаций и 39 текстовых заполнителей. Проект адаптирован под Windows и Macosx.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6596714583F9B7A90A85A45EF8FEEB0EAEBCD5DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917894   (588506) от 13.07.2015
 
 Проекты - VideoHive - 30 Wedding Titles - 11861477 [AEP]
@@ -629,61 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2A0FDEE59C0B99647FEB1B9DCEF8CF1CCB6E4B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 809545   (586370) от 02.08.2014
-
-VideoHive - Photographers Portfolio - 1740345 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот проект можно использовать как демонстрацию
-портфолио или в других целях.Он идеален как фотосессия
-на показе моды, разных событий, вечеринок и свадеб.
-Превью, файл помощи, звук камеры, а так же(   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D59A9798948A9290A699E50B400C4EEE35410B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040384   (586325) от 05.08.2016
-
-Проекты - VideoHive - Autumn [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон проекта для создания осеннего фото видео слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A22054B976BDDBA62CA82F68326E5BB99D254A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

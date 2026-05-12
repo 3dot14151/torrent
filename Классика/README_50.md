@@ -1,3 +1,58 @@
+###  Публикация: 1712786   (112131) от 03.04.2024
+
+VA - The Most Famous Classical Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Suite Bergamasque, L. 75 - Clair de Lune (5:13)
+02. Dina Bolshakova - Cello Suite No.1 in G major, BWV 1007 - I. Prélude (2:37)
+03. Katya Kramer-Lapin - The Well-Tempered Clavier - Book 1, BWV 846-869 - I. Prelude in C Major, BWV 846 (2:05)
+04. Vyacheslav Gryaznov - Peer Gynt Suite No. 1, Op. 46 - I. Morning Mood (Arr. for 2 Pianos) (   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1762975F2AA71272DB4F91550692EDB2515D4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711317   (112046) от 04.04.2024
+
+Paola Erdas - Antonio Valente, Intavolatura de Cimbalo, Napoli 1576 (2021) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Renaissance, early baroqueПродолжительность: 01:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088CF4F8709C956CE41DC60A8CF967B26021CC08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712876   (112039) от 04.04.2024
 
 VA - Peaceful Piano Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -694,76 +749,6 @@ Kantate am Fest der Beschneidung Christi Cantata for the Feast of the Circumcisi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C5F3A9AC00282EE23770CA17CA355D7F5E3BE5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484136   (89017) от 17.04.2012
-
-Jascha Heifetz - The Heifetz Collection (1994) Vol.16 Beethoven Violin Sonatas /RCA Victor Gold Seal/ [FLAC|Lossless]<Classical, Romantic>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonata No.1 in D, Op.12, No.1 - Alegro con brio [05:41]
-02. Theme with Variations: Andante con moto [01:04]
-03. Variation I [01:04]
-04. Variation II [01:05]
-05. Variation III [01:06]
-06. Variation IV [01:44]
-07. Rondo: Allegro [04:27]
-08. Sonata No.2 in A, Op.12, No.2 - Allegro vivace [06:41]
-09. Andante piu tosto allegretto [04:55]
-10. Allegro piacevole [04:04](   Читать дальше...   )1994Жанр: Classical, RomanticФормат: 3xCD, CompilationsПродолжительность: 03:23:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5C202A00BE56861B651A3ADE38DF6ED3AD6F19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484194   (88986) от 17.04.2012
-
-Antonio Vivaldi, Antonio Salieri, Gioacchino Rossini, Antonio Paskulli - Works for an oboe and a chamber orchestra: Moscow Virtuosi, Alexey Utkin & Heinz Holliger, conductor Vladimir Spivakov ( ...
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88986.jpg" />
-</div>
-
-
-###  Подробнее
-
-АНТОНИО ВИВАЛЬДИ Antonio Vivaldi
-Концерт ре минор для двух гобоев, струнных и бассо континуо [9:06]
-Concerto for 2 Oboes, Strings and Basso Continuo in d minor [9:06]
-1.	Allegro molto [2:42]
-2.	Largo.Allegro [3:43]
-3.	Largo [2:41]
-Концерт ля минор для гобоя, струнных и бассо континуо [10:06]
-Concerto for Oboe, Strings and Basso Continuo in a minor [10:06]
-4.	Allegro non molto [3:30]
-5.	Larghetto [3:34](   Читать дальше...   )1998Жанр: OboeПродолжительность: 00:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C723C52BA03CBD37A35AF029727EA4E541A5F5AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

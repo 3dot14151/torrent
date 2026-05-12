@@ -1,54 +1,25 @@
-###  Публикация: 1098353   (242732) от 29.01.2017
+###  Публикация: 1632953   (243746) от 12.05.2023
 
-VA - Trance Favorites Episode #004 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Haig & Raffi - Daredevils Of Sassoun (Omniks Remix)  8:04
-02.  Dominik Von Francois - 100 States of Trance (Tristan Armes Remix)  6:58
-03.  Rolfiek - Root (Dave Moz Mozo Remix)  7:49
-04.  Ed Prymon - Aquaris (Original Mix)  5:19(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9080AC0687A81811DCCA9D85D405F39F1C45E2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457307   (242731) от 26.03.2021
-
-Immerse - The Weight That Holds Me Here (2021) [MP3|320 Kbps] <Post-Hardcore, Melodic Hardcore>
+Michael Thompson Band - The Love Goes On (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_243746.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Vile [00:03:25]
-02 Burn [00:03:57]
-03 With You [00:03:06]
-04 Southbound [00:03:03](   Читать дальше...   )Жанр: Post-Hardcore, Melodic HardcoreПродолжительность: 00:35:51
+01. The Love Goes On
+02. Whispers And Dreams
+03. War Of The Hearts
+04. In Your Arms(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:59:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:759CB4F06DC655C829915C3177EFFFD9E346192F
+magnet:?xt=urn:btih:5F75F531269D8BE37D48DACAD6192C378DEC9C84
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,25 +27,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543408   (242730) от 10.04.2022
+###  Публикация: 1622732   (243745) от 29.03.2023
 
-Парни под прикрытием / Panama (2022) WEBRip [H.265/1080p-LQ] [ 10-bit]
+AIMP 5.11 Build 2427 + Portable [Multi/Ru]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243745.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Простое и не совсем легальное задание завершить сделку по продаже оружия в Панаме оборачивается для оперативника ЦРУ и его напарника, бывшего морского пехотинца, сущим адом. Не понимая до конца, во что они ввязались, они оказываются в смертельном противостоянии с наркобароном-нимфоманом, полковником-психопатом, фам фаталь и международными спецслужбами.Производство: США, Пуэрто Рико / Yale Productions, SSS Entertainment, LB EntertainmentЖанр: Боевик, триллерРежиссер: Марк НевелдайнАктеры: Коул Хаузер, Мэл Гибсон, Чарли Уэбер, Джеки Крус, Кейт Кацман, Кьяра Лиз, Виктор Турпин, Саймон Филлипс, Маурисио Энао, Джулия Сандстром СэндстромПеревод: Дублированный (Марафон)Субтитры: Русские, английскиеПродолжительность: 01:34:31
+Обновился маленький, качественный, абсолютно бесплатный аудио плеер. Проигрывает большое количество современных популярных форматов. Плеер потребляет самый минимум системных ресурсов, система его просто не замечает, но при этом мгновенно работает с плейлистами и радует своей скоростью работы, даже если сравнивать его с платными аналогичными продуктами.
+   Радует AIMP (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5247B583B2CD755D470C2A6C1C0731E10F9B81D0
+magnet:?xt=urn:btih:7C3481A0DBBE662C5341D6443CB6F3BD383DE93C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,25 +54,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360595   (242729) от 15.02.2020
+###  Публикация: 1567843   (243744) от 04.08.2022
 
-Натан Эйдельман | Последний летописец, или Две жизни Николая Карамзина (2018) [MP3]
+IObit Driver Booster Pro 9.5.0.236 RePack (& Portable) by elchupacabra [Multi/Ru]
 
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243744.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга известнейшего писателя, публициста, литературоведа Н. Я. Эйдельмана посвящена главному труду Н. М. Карамзина - "Истории государства Российского". В начале XIX века Россия стояла перед настоятельной необходимостью широких преобразований в жизни государства. "Республиканец в душе и верный подданный царя русского", как писал о себе Карамзин, (   Читать дальше...   )Жанр: История, исторические наукиПродолжительность: 14:10:15
+Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3191D2FD9A6955D698FFFFEAADAAC29D3B489744
+magnet:?xt=urn:btih:BF1791A06FF488F0C6014EA3CE688B0830779EBE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,28 +80,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627760   (242728) от 20.04.2023
+###  Публикация: 1611832   (243743) от 13.02.2023
 
-Slung From A Tree - Voyage Into Cosmos (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Stoner, Psych, Doom>
+Amthrya - Passage (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243743.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. BLAZED AND CONFUSED [00:03:09]
-02. ASTRAL GOLD [00:03:27]
-03. LOW FREQUENCY DISTRUBANCE [00:05:38]
-04. NOISE POLLUTION [00:06:56](   Читать дальше...   )Жанр: Sludge Stoner, Psych, DoomПродолжительность: 00:43:57
+01 - A New Trace (08:00)
+02 - Dreads in Tears (07:16)
+03 - Frozen October (05:12)
+04 - Thorns of Shame (04:29)(   Читать дальше...   )Жанр: Progressive Black MetalПродолжительность: 01:00:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9019A2FC18B57DC43AB11542639386BB38914861
+magnet:?xt=urn:btih:6F0E10CE5626D978F045241ACFCD13C64C3F9A77
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,28 +109,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623903   (242727) от 05.04.2023
+###  Публикация: 1455407   (243742) от 19.03.2021
 
-Autumn Tears - Guardian Of The Pale (2023) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical Darkwave>
+Zoommy 3.2.1 [En]
 
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
+>>Программы для macOS
+>>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243742.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Old Tree [00:02:24]
-02. Of Wind, Water and Sand [00:04:59]
-03. A Requiem For Each New Day [00:04:34]
-04. Daydreaming In Ash Fields [00:05:17](   Читать дальше...   )Жанр: Neoclassical DarkwaveПродолжительность: 01:11:17
+Zoommy поможет вам найти отличные бесплатные стоковые фотографии для вашего творческого продукта или вдохновения. Более 200 000 фотографий под лицензией Creative Commons Zero & Public Domain из 50 источников.Тип издания: macOS SoftwareРелиз состоялся: 04.06.2018Разработчик: ZoommyAppПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93F43F0E3A5504EFAFD0296CCD21AC652DB27937
+magnet:?xt=urn:btih:F60CE67394C28DDF9392B444EACBACA18505D887
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,28 +135,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097981   (242726) от 29.01.2017
+###  Публикация: 1076487   (243741) от 26.11.2016
 
-Serena Jewkes - The Carriage House Sessions (2017) 2CD [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+VA - Nu Deep Gold Series:01 (2015) [MP3|320 Kbps] <Deep House>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243741.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Stairway To The Stars
-02. Darn That Dream
-03. EstateЖанр: Vocal JazzПродолжительность: 01:22:18
+01. Deepsy - I Like It (6:24)
+02. Ramon Kreisler - Your Eyes (7:28)
+03. Arilamas - There (8:16)
+04. 5prite - Do Dis (6:41)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:04:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27DA2A7CBFEC674235542169F68E7CD71A47FA6D
+magnet:?xt=urn:btih:A8A0FFDB56B955D0F1FCA68976E6D952DD77B8B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,25 +164,190 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623795   (242725) от 03.04.2023
+###  Публикация: 1537679   (243740) от 18.03.2022
 
-Юрий Тарарев, Александр Тарарев | Последний вздох (Книга 4). Ящик «Пандоры» (2023) [MP3, Сергей Демидов]
+VA - Loungerie (25 Amazing Lounge Tunes), Vol. 2 (2017) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lemongrass, Jane Maximova - Deep River (Five Seasons Remix) (6:13)
+02. Northbound - The Trail (4:51)
+03. Abraxas - Esperando La Alluvia (Waiting For Rain) (7:35)
+04. Kiwi Twist - Dark Tango (3:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:718C410049AAF0622B3CBC1CDE6FD48089420FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623009   (243739) от 31.03.2023
+
+Между двумя папоротниками / Between Two Ferns: The Movie (2019) WEB-DLRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заку Галифианакису придется отправиться со своей съемочной командой в большое путешествие, чтобы взять интервью у знаменитостей первой величины и восстановить свою репутацию.Производство: США / Funny or DieЖанр: комедияРежиссер: Скотт ОкерманАктеры: Зак Галифианакис, Лорен Лапкус, Райан Гол, Джавани Линаяо, Уилл Феррелл, Эди Паттерсон, Рекха Шанкар, Мэри Шир, Мэри Холлэнд, Мэтт БессерПеревод: Двуголосый профессиональный (Кубик в Кубе | 18+)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), русские (forced, full)Продолжительность: 01:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A3A31CF19E7C42FCFAE398A6DD81AA552F8698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542302   (243738) от 06.04.2022
+
+Topaz Gigapixel AI 6.0.0 RePack (& Portable) by TryRooM [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz A.I. Gigapixel — это первое и единственное приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, A.I.Gigapixel ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:319A3EE4657EB309EDA1411CACE6B67A3B358BF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632563   (243737) от 12.05.2023
+
+VA - Best Of Deep House 2023 [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_243737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dani Corbalan - Invisible (Extended Mix) (4:34)
+02. Audioboy - Fall Apart (Extended Mix) (4:02)
+03. Rinat Bibikov & DJ Safiter - Beautiful Life (Original Mix) (3:09)
+04. Lorenz Koin - A Million Times (Extended Mix) (3:13)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DB1A0408A95D8873C1BE669FEF6BBBCAF9F399F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622724   (243736) от 29.03.2023
+
+Topaz Video AI 3.1.11 RePack (& Portable) by TryRooM [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87BB79D82DFCD4FA3EB84CD5D8525DACF1980B32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611859   (243735) от 13.02.2023
+
+Ashtoreth - Bruxolico (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro Convenção das Bruxas do Pântano do Sul (05:36)
+02 - Lua Errante (05:08)
+03 - Serpente nos Cabelos (12:57)
+04 - Majestade Caída -Visão (05:06)(   Читать дальше...   )Жанр: Black, Doom MetalПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A11D70BE3ED75642BFE70BA0F1E45082F177EFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567715   (243734) от 04.08.2022
+
+Павел Коршунов | Мир Нории (Книга 6). Жестокая игра. Два мира (2022) [MP3, Максим Зингаев]
 
 >>Художественные аудиокниги и публицистика
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243734.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Наступило обманчивое затишье. Но противостояние Кибдиго и Джао лишь набирает обороты.Раскол в цивилизации Джао, грозит обернуться для Кибдиго и Межгалактической империи, колоссальными потерями. Джао хитры, а Кибдиго слишком юная цивилизация, которая допустила критическую ошибку.Ящик «Пандоры» вот-вот будет открыт! А чем это закончится для вселенной, не знает никто!Жанр: Боевая фантастика, Героическая фантастика, Космическая фантастикаПродолжительность: 06:36:04
+Представляем вам финальную книгу серии в аудиоформате. Крэйбен должен был умереть, но вернулся домой. Вернулся, чтобы стать важным звеном в цепи, которая соединит два мира в борьбе против общего врага. Но хочет ли этого сам Крэйбен? Слушайте окончание истории!Жанр: Боевое фэнтези, Киберпанк, Попаданцы, LitRPGПродолжительность: 08:48:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCBFF33BCCFE688B5F836B81A6CE0D12D8F79D00
+magnet:?xt=urn:btih:4E2450456029353F1DD326BDBCE2DFD01A4D95EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -221,239 +355,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541709   (242724) от 03.04.2022
+###  Публикация: 1626719   (243733) от 15.04.2023
 
-MediaInfo 22.03 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242724.jpg" />
-</div>
-
-
-###  Подробнее
-
-MediaInfo — программа для получения подробной технической информации об аудио и видео файлах. Программа показывает, каким кодеком сжато видео, с каким битрейтом, какое в нем соотношение сторон и количество кадров в секунду. Для аудиофайла MediaInfo показывает используемый кодек, битрейт, язык, количество каналов, частоту выборки и т.д.Тип издания: macOS SoftwareРелиз состоялся: 31.03.2022Разработчик: © 2022 MediaAreaПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9145BF718DB968D82AD9336772605AED89B87965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457523   (242723) от 26.03.2021
-
-TunesKit AceMovi Video Editor 3.1.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242723.jpg" />
-</div>
-
-
-###  Подробнее
-
-TunesKit AceMovi Video Editor может отличаться от множества подобных приложений для редактирования видео на рынке, главным образом, благодаря простому и интуитивно понятному интерфейсу, а также множеству мощных функций. С помощью этого программного обеспечения вы можете легко создавать высококачественные видео на Mac, независимо от того, являетесь ли вы профессионалом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.03.2021Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7410F9733A55997203C5B1EB23CB83BB10432965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624274   (242722) от 05.04.2023
-
-Airflow 3.3.5 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смотрите контент с компьютера на Apple TV и Chromecast. Не нужно ждать, индексировать, просто перетащите видео и смотрите. Проще уже действительно не придумать.Тип издания: macOS SoftwareРелиз состоялся: 02.04.2023Разработчик: © 2020 BitCave Ltd.Поддерживаемая ОС: macOS 10.12.2 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B9CEF24CA4B55F8FEAD56559A7E9E65F5BFF79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627523   (242721) от 20.04.2023
-
-Beyond The Touch - Strange Illusions (2023) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breakdown 04:28
-02. Money 04:15
-03. Into The Night 05:12
-04. Here I Go Again 04:58(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09C7C20E53DE3CCFDB48030EB5271EEF54C68FA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098416   (242720) от 29.01.2017
-
-Jim Adams - Don't Step On My Rhythm & Blues (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born Under A Good Sign 04:11
-02. Not Your Back Door Man 03:40
-03. James Earl 02:30
-04. The Not So Hot Friday Blues 03:08(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C904F414FEE13182C9720C3740E2FA72D6D3EF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360448   (242719) от 15.02.2020
-
-Император Чьен Лунг и красавица / Qian Long huang yu san gu niang / Emperor Chien Lung and the Beauty (1980) DVDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвертый фильм о похождениях императора Чьен Лунга. На этот раз император, озабоченный крупным землетрясением и большими разрушениями, а также отсутствием денег в казне, поручает своим министрам достать необходимую сумму и сам идет инкогнито в казино, надеясь выиграть кругленькую сумму.Производство: Гонконг, Shaw BrothersЖанр: Боевик, комедия, историяРежиссер: Ли ХаньсянАктеры: Тони Лю, Хелен Пун, Кара Хуэй, Куин Ли, Хул-Линг Лью, Шен Чан, Хеи Чан, Чок Чоу Чеунг, Кон Чюн, Хань ЧиангПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: отсутствуютПродолжительность: 01:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C18A2615EA243AFED3B17FA46AAE62C62A31A1C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568679   (242718) от 09.08.2022
-
-Элвис / Elvis (2022) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] [UKR, EN / UKR, EN Sub]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242718.jpg" />
-</div>
-
-
-###  Подробнее
-
-История жизни и музыки Элвиса Пресли через призму сложных взаимоотношений с его менеджером, полковником Томом Паркером. Они работали вместе более 20 лет: от начала карьеры Элвиса до его небывалой славы.Производство: Австралия, США / Warner Bros., Bazmark Films, Roadshow EntertainmentЖанр: биография, музыка, драмаРежиссер: Баз ЛурманАктеры: Остин Батлер, Том Хэнкс, Оливия ДеДжонг, Хелен Томсон, Ричард Роксбург, Келвин Харрисон, Дэвид Уэнэм, Коди Смит-Макфи, Люк Брейси, Дэйкер МонтгомериПеревод: ДублированныйЯзык озвучки: Украинский, английскийСубтитры: Украинские (Forced), английские (Full, SDH)Продолжительность: 02:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:683D305196B8C88845A614451A23CB56931BD65B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543231   (242717) от 10.04.2022
-
-Игры агентов / Агентская игра / Игра в агента / Agent Game (2022) WEB-DLRip [H.264/1080p-LQ] [MVO, AD]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Офицер ЦРУ Харрис участвует в миссиях по захвату иностранных граждан и доставке их в секретное место для допроса. Харриса обвиняют в убийстве шефа и задержанного во время допроса и он вынужден бежать от группы оперативников, посланных за ним во главе с безжалостным двойным агентом Олсеном и его подручным Виссером.Производство: США / Taylor & Dodge, Project InfinityЖанр: Триллер, боевикРежиссер: Grant S. JohnsonАктеры: Мэл Гибсон, Джейсон Айзекс, Дермот Малруни, Адан Канто, Кэти Кэссиди, Баркхад Абди, Риз Койро, Энни Илонзе, Мэтт Риди, Блу КимблПеревод: Любительский многоголосый (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:29:19Реклама: Присутствует баннер!
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623743   (242716) от 03.04.2023
-
-Display Driver Uninstaller 18.0.6.2 + Portable [Multi/Ru]
+Skype 8.96.0.408 RePack (& Portable) by KpoJIuK [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243733.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD / NVIDIA / Intel и драйверы звуковой карты Realtek / Sound Blaster из системы, не оставляя кучу ненужных файлов (включая ключи реестра, папки и файлы). DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует протокол MSNP24 для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:034141B41122DBC039182A1DE0C6D972DB1ED711
+magnet:?xt=urn:btih:790B4A17FB088E6011439C8FA5FD0096A3B14444
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -461,28 +381,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457350   (242715) от 26.03.2021
+###  Публикация: 1455609   (243732) от 19.03.2021
 
-Greenleaf - Echoes from a Mass (2021) [MP3|320 Kbps] <Stoner, Hard Rock>
+Юлия Варенцова | День Ангела. Рассказы о святых (2021) [EPUB]
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243732.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tides [00:04:41]
-02. Good God I Better Run Away [00:04:39]
-03. Needle in My Eye [00:05:01]
-04. Love Undone [00:03:28](   Читать дальше...   )Жанр: Stoner, Hard RockПродолжительность: 00:46:15
+Увлекательный рассказ о необыкновенных и очень разных судьбах святителей и угодников, мучеников и преподобных. Попытка воссоздания их живого образа, внимательная реконструкция биографии героев в контексте той или иной исторической эпохи. Мы нашли отголоски жизней святых в современности, побывали в местах, где они родились, проповедовали и несли свой подвиг. Мы устроили (   Читать дальше...   )Жанр: Биографии и мемуары, Православие, ХристианствоФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F66A7029D215A774037AFC9B51FEC34FF9C7CC94
+magnet:?xt=urn:btih:A3DE89F5FCBA51C314F51CE927530A8D52B0738C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -490,28 +407,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615333   (242714) от 25.02.2023
+###  Публикация: 1537899   (243731) от 18.03.2022
 
-Big City - Sunwind Sails (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
+VA - Dirty Weekend (25 Groovy House Tunes), Vol. 2 (2022) [AAC|~321 Kbps] <House>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243731.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Из Норвегии Big City возвращается со своим последними и четвертым диском . Что может быть необычно для музыкальной индустрии, альбом имеет стабильный состав с 2018 года. В музыкальном плане Big City также придерживается курса, который они установили на протяжении нескольких последних альбомов. Впрочем на первый взгляд они все-таки добавили металла01. I’m Somebody
-02. Sons Of Desire
-03. Human Mind
-04. Collin’s Looking For A Hideout(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:11
+01. Paco Caniza - Return to the Dancefloor (Original Mix) (4:54)
+02. Pansil - Body Music (Original Mix) (4:29)
+03. Tim Porta - One Chance, One Move, One Dance, One Shot (Original Mix) (5:00)
+04. Adam Clay, Andrea Belli, Mastro J - See the Sun (Original Mix) (6:01)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:21:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7BC8F24740320FAA598A5D7AA75F8189CAA55AFA
+magnet:?xt=urn:btih:7839B57B594B9EC8B7D9F0656BFDE03745494BF8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,28 +436,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541609   (242713) от 03.04.2022
+###  Публикация: 1632832   (243730) от 12.05.2023
 
-Ангел-хранитель - Неизданное. Том 2 (2022) [MP3|320 Kbps] <Heavy Metal, Horror Punk>
+Bazaart: Photo Editor & Graphic Design v1.23.0 [Ru/En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243730.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Уставший путник [00:03:30]
-02 - Семейная традиция [00:03:40]
-03 - Художник (feat. Alex Wish) [00:05:32]
-04 - Странный шум (feat. Alex Wish) [00:05:30](   Читать дальше...   )Жанр: Heavy Metal, Horror PunkПродолжительность: 00:38:29
+Базарт - это удостоенное различных наград приложение для редактирования фотографий и графического дизайна, которое поможет вам легко создавать красивые фотографии, профессиональные дизайны и потрясающее коллажное искусство. Откройте для себя возможности бесконечного творчества!Тип издания: Premium / ModРелиз состоялся: 10.05.2023Разработчик: Bazaart Ltd.Поддерживаемая ОС: Android 8.0+ (arm64-v8a)Язык интерфейса: Русский / Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:07819C7F54D8560A4D2A3B92A333F331B8D248D0
+magnet:?xt=urn:btih:C8CCB51DF46F488C4973E057E7CEF227E668EA2B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -548,55 +462,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627660   (242712) от 20.04.2023
+###  Публикация: 1333832   (243729) от 26.10.2019
 
-МузЛофт / МузLoft. Ваня Дмитриенко (2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242712.jpg" />
-</div>
-
-
-###  Подробнее
-
-МузЛофт – Здесь мы поем, ностальгируем и душевно болтаем о жизни с различными людьми из мира музыки.
-Ваня Дмитриенко. Про дружбу с Лепсом, свое совершеннолетие и критику от звезд. Сегодня у нас в гостях самый юный гость! Но при этом у Вани уже множество историй, потрясающая харизма и завораживающий голос. Ваня Дмитриенко, это юная звезда нашего шоу-бизнеса, которая (   Читать дальше...   )Производство: Россия | Y-GenerationЖанр: PopЯзык озвучки: РусскийПродолжительность: 01:13:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B712BEF77347D25F09C50DB841F2AC012E785B3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098298   (242711) от 29.01.2017
-
-Stormnatt - Omega Therion (2014) [FLAC|Lossless|image + .cue] <Black Metal>
+Jeremy - The 2nd Advent (2005) 2CD [FLAC|Lossless|image + .cue] <Progressive Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243729.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ascension of the Scarlett Angel
-02. Dead Soul Meditation
-03. The Bitter Fruits of Deceit
-04. Omega Therion(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:39:48
+01. Acts (English version)
+02. Gambler (English version)
+03. Babylon (English version)
+04. Remains Of The Day (English version)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:38:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F06C76A0FFC0FD526398D69BEDC0E48697F1AF3
+magnet:?xt=urn:btih:7D3601D7EDAB6C9F8BEFFE390F1B30B74783BB77
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -604,26 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542800   (242710) от 10.04.2022
+###  Публикация: 1611904   (243728) от 13.02.2023
 
-Mozilla FireFox 99.0.0.8124 Portable by JolyAnderson [Multi/Ru]
+Atomwinter - Sakrileg (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 
->>3
->>След.
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243728.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mozilla FireFox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. В него изначально входит проверка сайта на отслеживание, поддержка расширений и многое другое.
-Вашему вниманию предоставляется Portable версия браузера Firefox.Язык интерфейса: Русский, Английский и другие
+01. Intro [00:01:11]
+02. Ov Blood and Flesh [00:02:42]
+03. The Lungs Ov Hell [00:05:32]
+04. Brutal Scriptures [00:03:26](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D806FB699398CC8417CE76C588FBB659F3126530
+magnet:?xt=urn:btih:35E64E6D5D28328B7CF2E2F1C55D9227C9553A71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -631,27 +520,135 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360371   (242709) от 15.02.2020
+###  Публикация: 1076410   (243727) от 26.11.2016
 
-Fuel for Pages 2.0 [En]
+VA - Осенняя дискотека по-русски. Выпуск 5 (2016) [MP3|256 Kbps] <Pop>
 
->>Программы для macOS
->>Офис, Интернет для macOS
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243727.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Fuel for Pages - это удивительное дополнение для приложения Apple Pages. В Вашем распоряжении 1019 шаблонов в 11 категориях, такие как: - Брошюры, - Визитные карточки, - Календарь, - Карты и Приглашения, - Конверты, - Листовки, - Флаеры, - Письма, - Бюллетени, - Бланки для докладов, - Резюме.
+001.Sasha Holiday - Цвет Желаний 3:50
+002.Alexno - Текила 3:25
+003.Анна Боронина - Уходи 3:30
+004.Arseniya - Аритмия 4:50(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:858F5914DD1A7370CCC90F0F921834BAD7FA5123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542134   (243726) от 06.04.2022
+
+Мушкетёры / The Three Musketeers (2011) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой д’Артаньян покинул родной дом и отправился в Париж, надеясь на место в полку мушкетёров. По случайности в один день он обидел сразу троих мушкетёров — Атоса, Портоса и Арамиса — и получил от всех троих вызовы на дуэль. Но дуэль была прервана появлением гвардейцев кардинала, которые хотели арестовать их за нарушение указа о запрете дуэлей. Д’Артаньян и три (   Читать дальше...   )Производство: США, Германия, Франция, Великобритания / Constantin Film Produktion GmbH, Impact Pictures, New Legacy, Nouvelles Éditions de FilmsЖанр: боевик, приключенияРежиссер: Пол У. С. АндерсонАктеры: Логан Лерман, Милла Йовович, Мэттью Макфэдиен, Рэй Стивенсон, Люк Эванс, Мадс Миккельсен, Габриэлла Уайлд, Джеймс Корден, Орландо Блум, Кристоф ВальцПеревод: дублированный, авторскийЯзык озвучки: русский, украинский, английскийСубтитры: русские, английские (SDH)Продолжительность: 01:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5261545B7047AA7C92C2C653D14E740198AE4CB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567631   (243725) от 04.08.2022
+
+Великолепный век / Muhtesem Yuzyil (2012) WEBRip [H.264/1080p] (Сезон 2, серии 1-39 (25-63) из 39) Русский Дубляж
+
+>>Зарубежные сериалы
+>>Турецкие сериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет основан на реальных событиях, произошедших во времена правления султана Сулеймана I, и рассказывает о периоде жизни девушки Александры, взятой в плен турками и названной Хюррем. Позже она стала первой официальной женой Сулеймана, но для этого ей пришлось пройти сложный путь…Производство: Турция, TIMS ProductionsЖанр: мелодрама, история, военный, биография, драмаРежиссер: Ягмур Тайлан, Дурул ТайланАктеры: Халит Эргенч, Мерьем Узерли, Филиз Ахмет, Нур Айсан, Окан Ялабык, Бурджу Туна, Ксения Камкина, Мелике Ипек Ялова, Бурак Озчивит, Мехмет Гюнсюр, Селим Байрактар, Небахат Чехре, Сельма ЭргечПеревод: Дублированный (Русский Дубляж)Язык озвучки: РусскийПродолжительность: ~01:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87AC26F78AACD500AF86008C409A71C0D4EF62FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626741   (243724) от 15.04.2023
+
+Животные-символы Рождества / Wild Christmas (2020) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243724.jpg" />
+</div>
+
+
+###  Подробнее
+
+В истории, традициях и символике рождественских праздников присутствует немало представителей царства животных. Ни одно Рождество не обходится без оленей, везущих сани Санта-Клауса, или без красногрудых малиновок и снегирей.Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальный, природа, исследованияПеревод: дублированныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78746728AFCC6F1F5A36EA9FFA6A31EF24F6034E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622491   (243723) от 29.03.2023
+
+Enterclass, Марина Ласаева | Дачное настроение (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дачный сезон богат на сюжеты для картин. Начинаем готовиться заранее в марафоне с Мариной Ласаевой. Напишем четыре сюжета разными материалами, научимся акварельной «легкости» и острой графике. Шишки, цветы, натюрморт с самоваром и крыжовник линером – отличное подспорье для грядущего творческого сезона. Старт 18 марта – присоединяйтесь!
 
-Различные размеры. - Все шаблоны доступны в US Letter и A4. Размер бумаги (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.02.2020Разработчик: Infinite Loop AppsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+МАРИНА ЛАСАЕВА
+художник-акварелист,(   Читать дальше...   )Производство: EnterclassЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 14:38:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FCF17CDCEA7E31E85906C23D34759E811A5570E
+magnet:?xt=urn:btih:65138A38520C2A721162C5748C6ADC36ACFFCFB1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,52 +656,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624272   (242708) от 05.04.2023
+###  Публикация: 1076681   (243721) от 26.11.2016
 
-TG Pro (Temperature Gauge Pro) 2.80 [En]
+Мария Белахова | Две повести (1968) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243721.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу Марии Белаховой вошли две повести: «Дочь» и «Сын». Очень добрые, философские повести, о детях и их родителях. Настоящих и приемных. О войне и мире, о месте ребенка в жизни.Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:248DA015D93CBFF2688BF4E9C6A0A2E965490173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333812   (243720) от 26.10.2019
+
+Cisdem PDFCompressor 3.2.0 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243720.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TG Pro — контроль температуры и вентиляторов вашего Mac.
-Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.04..2023Разработчик: © 2022 Tunabelly SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+Cisdem PDFCompressor является программным обеспечением для сжатия PDF файлов. Программа позволяет уменьшить размер всех ваших PDF файлов до 90%, сохраняя при этом их исходное качество неизменным. С Cisdem PDFCompressor, вы можете сэкономить место на Вашем компьютере, а также обмениваться PDF-файлами с друзьями/коллегами значительно быстрее.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Cisdem Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:32B0A328C1374F145582C5A80425937B2CBAF126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568697   (242707) от 09.08.2022
-
-Яндекс.Браузер для геймеров 22.7.3.780 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B489A30867F82D5C1DEFE1255EA9F922015F82
+magnet:?xt=urn:btih:4C90D9A0C09E68BA19EFFF4361602626CE6F15F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

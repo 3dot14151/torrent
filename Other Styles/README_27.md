@@ -1,3 +1,119 @@
+###  Публикация: 1370936   (893415) от 29.03.2020
+
+Richard Clayderman & James Last - Together At Last (1991) [FLAC|Lossless|tracks + .cue]<Instrumental, Piano, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From A Distance
+02. ( Everything I Do ) I Do It For You
+03. Sacrifice
+04. Moonfire(   Читать дальше...   )Жанр: Instrumental, Piano, Easy ListeningПродолжительность: 00:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC58E2699462652A3241498D32FD2EC4E4E4EAC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370935   (893406) от 29.03.2020
+
+VA - Ethnic Music The Indians' Collection (2013) [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sioux Company - Brandishing the Tomahawk
+02. Nazca - Ly-O-Lay Ale Loya (The Counterclockwise Circle Dance)
+03. Nazca; Wayra Rodriguez - Ancient Spirit
+04. Nazca; Wayra Rodriguez - Ceremony(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 04:20:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A36A54AB0989C9256FE9A754CE3D99DFED47652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370945   (893353) от 29.03.2020
+
+VA - Super Instrumental Vol.1 (2001) Величайшие хиты XX века [FLAC|Lossless|tracks + .cue]<Instrumental, Pop>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G. Last - The Lonely Shepherd
+02. P. Mauriat - Love Is Blue
+03. F. Pourcel - A Paris
+04. P. Weekers - El Condor Pasa(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 01:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AA3881FA977DD2FB1D2AD79E0F3A54520B23BE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101863   (892929) от 08.02.2017
+
+Greg Maroney - Quiet Piano Improvisations, Vol. 2 (2017) [MP3|320 Kbps] <New Age. Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  My Everything [00:04:51]
+02 -  Melting Heart [00:05:02]
+03 -  Meditation [00:07:06]
+04 -  Daydream [00:06:37](   Читать дальше...   )Жанр: New Age. InstrumentalПродолжительность: 01:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E69C6D0BF856CB53F48CA4F29B293DDEE19BDAE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101989   (892922) от 08.02.2017
 
 Chronotope Project - Passages (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <New-Age, Electronic, Ambient>
@@ -631,122 +747,6 @@ VA - Музыка гармонии сна (2008) [FLAC|Lossless|image + .cue] <R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA9956FA93FC0AEAF0AE3B965974A5648A7A9FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 224083   (887981) от 01.04.2020
-
-Bliss - 8 Альбомов (1997-2007) [FLAС|Lossless|tracks] <Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1997 - Flying Free
-1997 - The Journey
-1999 - Through These Eyes(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 07:21:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C0664D4DAF34DBFC370F39275A81AC9FABF7FCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 145860   (887976) от 01.04.2020
-
-Enigma - Greatest Hits (2008) 2CD Digipack Edition [FLAC|Lossless|image + .cue] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out From The Deep (Short Radio Edit) (3:27)
-02. Seven Lives (4:25)
-03. Goodbye Milky Way (5:53)
-04. Following The Sun (Radio Edit) (4:16)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 02:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5B012AB3BBDA7ABBA29D8A46D12F779F76BFD3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994672   (887788) от 09.03.2016
-
-Omnia - Naked Harp (2015) [MP3|320 кб/с] <Folk, World, Celtic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Morning in May  03:08
-02. The Flutterby Set  04:42
-03. Eleanor Plunkett  02:43
-04. The Fairy Queen  02:50(   Читать дальше...   )Жанр: Folk, World, CelticПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA85238EE5D1596FDDAA9E2E46DEC7C3AD229475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494655   (887713) от 08.09.2021
-
-Guy Sweens - Rise of the Inca (2021) [MP3|320 Kbps] <New age, Ethnic, Native American>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viracocha
-02. Inti Raymi
-03. Cusco
-04. The Power of Stones(   Читать дальше...   )Жанр: New age, Ethnic, Native AmericanПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A910CE733E6CAE39981F88C047E53E63E8559B71
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1022319   (729632) от 01.06.2016
+
+Проекты - VideoHive - Ramadhan&Eid [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ramadhan&Eid - красивое цветение виноградной лозы в виде луны Рамадана.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A45072E51DF0F3AE36D0236AFC62AD43F754AB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284184   (729582) от 20.02.2019
+
+Проекты - VideoHive - Epic City Opener - 18722779 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект "Epic City Opener" - это отличное вступление, и в последствии показ вашего логотипа для вещательного канала.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FAAD19CA2D5AADCB4F5674D5CFD737BDF4B9B0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284306   (729581) от 20.02.2019
 
 Проекты - VideoHive - Awards Presentation Pack - 22841927 [AEP]
@@ -624,58 +676,6 @@ Photo Gallery in Flowers - это медленная, и успокаивающ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB2880A993A4C2E5D3CCAF0855BBE7E98B58F0D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022374   (729234) от 01.06.2016
-
-Проекты - VideoHive - Glitch Film Intro - 10898983 [AEP]
-
->>Проекты
->>Трейлеры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания эффектного глюк фильма, интро или трейлера.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:289205E05F781AC6DA711BB6282600C37AE52A65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 667077   (729096) от 11.06.2013
-
-Проекты - VideoHive - The Lost Genotype - 4697489 [AEP]
-
->>Проекты
->>Трейлеры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальный шаблон в футуристическом стиле с абстрактными элементами 3D модели ДНК. Это лучший способ для продвижения ваших фильмов, игр и многое другое.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FFE7F7D4DF1DED4E59E52A536D69B1848FF30D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

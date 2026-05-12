@@ -1,22 +1,52 @@
-###  Публикация: 988174   (922893) от 19.02.2016
+###  Публикация: 1095342   (924176) от 21.01.2017
 
-В теме. Добро на войну? (18.02.2016) SATRip
+VA - Взрывной хит-парад Выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924176.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Olisha - Мы Такие Девочки 3:23
+002. Tut Tut Child Feat. Holly Drummond - Fell Down 4:42
+003. Ilona - Я Super 3:04
+004. Серебро - See You Again 4:08(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:791DC7173054CA69808EC612EAC4663DC4AA2F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987942   (924175) от 18.02.2016
+
+Поединок с Владимиром Соловьевым. Выпуск №121 (2016.02.18) SATRip
 
 >>Документалистика и Телепередачи
->>Тележурналистика
+>>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924175.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В Турции совершено два теракта за сутки. Жители Турции боятся приближаться к военным автомобилям. В стране два теракта за сутки, и оба раза мишенями стали солдатыТелекомпания: Москва 24Жанр: ДокументальныйПродолжительность: 00:26:00
+Актуальный разговор Владимира Соловьева на общественно-политические темы.
+Сегодня, 18 февраля на телеканале «Россия-1» в программе «Поединок с Владимиром Соловьевым» Владимир Жириновский против Николая Злобина.Телекомпания: РоссияЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:39:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8DBD86316A760B267A739525592693D314A7B9B
+magnet:?xt=urn:btih:EE1BC5175C58CD19A7D61BAB4F273CED66FC7454
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +54,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 987877   (922892) от 19.02.2016
+###  Публикация: 1095359   (924174) от 21.01.2017
 
-Cedar Walton - Eastern Rebellion 4 (1983) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+Паршивая овца / Black Sheep (2006) BDRip [H.264/1080p-LQ]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924174.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Manteca [06:51]
- 02.Close Enough For Love [06:36]
- 03.St. Thomas [04:12]
- 04.I Am Not So Sure [06:45](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:38:00
+Генри Олдфилд, панически боящийся овец и проходящий курс лечения, возвращается на ферму своего отца, чтобы продать дело своему старшему брату Ангусу. Он не знает, что на ферме происходит нечто оооочень страшное: Ангус безрассудно запустил программу генной инженерии. Когда два ярых поборника защиты окружающей среды — не ведая что творят — выпускают мутанта-ягненка (   Читать дальше...   )Производство: Новая Зеландия / New Zealand Film CommissionЖанр: Ужасы, Фантастика, КомедияРежиссер: Джонатан КингАктеры: Нэйтан Майстер, Питер Вини, Даниэль Мэйсон, Тэмми Дэвис, Оливер Драйвер, Тэнди Райт, Гленис Левестам, Ник Блейк, Мэттью Чемберлен, Ник ФентонПеревод: ДублированныйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:26:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83F2517EDFFC09462E2E2A5E035DC727DD0F4893
+magnet:?xt=urn:btih:646F2478F49135EA57A48BCC88F03506CD2F5035
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +80,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 988205   (922891) от 19.02.2016
+###  Публикация: 1095766   (924173) от 21.01.2017
 
-Buddy Tate & Claude Hopkins - Buddy & Claude (1960) 1999, Prestige[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+Лилия Гриненкова | Зло Аркаруса - босс первого уровня (2016) [FB2]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924173.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Is It So [04:23]
- 02.Yes, Indeed [07:02]
- 03.What's Your Story Morning Glory [03:27]
- 04.Willow Weep For Me [07:22](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:14:29
+Первый роман цикла «Зло Аркаруса».
+
+Они – Боссы. На них собирают рейды, за них охотятся в данжах. Убить их – цель игры каждого геймера. Но что, если в шкуре босса окажется не искусственный интеллект, а самые обычные игроки? Злу Аркаруса, ставшему боссом не самого популярного подземелья предстоит на личном опыте убедится, как это не легко быть боссом подземелья, когда (   Читать дальше...   )Жанр: Боевая фантастика, LitRPGФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B7F60346A4CDCE270BFF3505498FF50CD625D38
+magnet:?xt=urn:btih:88DC11C713623C948996CC2B105E8A7A0935BCB8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,25 +108,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 988133   (922890) от 19.02.2016
+###  Публикация: 987712   (924172) от 18.02.2016
 
-Линия защиты. Курсы безумия (2016.02.17) SATRip
+Проекты - MotionMile - ANIMATED COMPANY PROMO [AEP]
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Проекты
+>>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924172.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждую неделю, в прайм-тайм, фильм-репортаж – о нас, о главных и спорных моментах нашей с вами жизни. Это больше, чем новости. Мы освещаем самые актуальные события и проблемы, а авторы программы готовы взглянуть на них со своей особой, индивидуальной точки зрения. Все интересное, необычное, зрелищное, что заслуживает вашего внимания, найдёт отражение в нашем эфире.Производство: РоссияТелекомпания: ТВЦЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:26:08
+Забавный проект для бизнес-презентации.
+Используется в Adobe After Effects.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C2EE361E1F1083FEA616EAF415DB72C76A3F7DC
+magnet:?xt=urn:btih:DB089EB3AF3EC9ED8617D085B77DE3C9AE534F6E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,83 +135,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 988293   (922889) от 19.02.2016
+###  Публикация: 987716   (924171) от 18.02.2016
 
-Horace Tapscott with the Pan-Afrikan Peoples Arkestra - LIVE at I.U.C.C (1979) 2CD, 2006, Nimbus West Records[FLAC|Lossless|image+.cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922889.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Macrame [20:36]
-02.Future Sally's Time [11:18]
-03.Noissessprahs [16:28](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E4C3542468D7310AD9C7A2A973084AC8AC9A30E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988255   (922887) от 19.02.2016
-
-В центре событий с Анной Прохоровой (19.02.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922887.jpg" />
-</div>
-
-
-###  Подробнее
-
-"В центре событий" о том, что действительно важно: 1. На Украине власти нет. Кому выгодна охота на российские фуры? 2. Мир на пороге большой войны? Танец турецких дервишей на пороховой бочке. 3. Теракты в Париже и химическое оружие ИГИЛ. О чем ещё знает, но молчит ЦРУ? 4. Эксперимент удался! Кто и как за два года угробил Украину?Телекомпания: ТВ-ЦентрЖанр: ТелепередачаПродолжительность: 00:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C011DFADC5808AC64509A338804C603750417AF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988057   (922886) от 19.02.2016
-
-VA - Dark Sessions Radio 019 (Mixed by Oberon) (2016) [MP3|320 кб/с] <Trance>
+Судная ночь 3 / The Purge: Election Year (2016) WEBRip [H.264/1080p] [Трейлер]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924171.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Origin - Burn Tonight (Original Mix) (7:39)
-02. David Rust - Monolith (Original Mix) (7:46)
-03. Tasso - Exploitation (Original Mix) (5:55)
-04. Peter Plaznik - Psychotria Viridis (Original Mix) (7:46)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:32
+Сенатору США Чарли Роан надоело, что раз в год в стране проходят так называемые «Судные ночи», 12 часов беззакония и убийств, за которые никого не наказывают. Женщина баллотируется в президенты и планирует остановить традицию, но сильные мира сего против ее затеи.
+В результате предательства Роан оказывается на улицах города Вашингтон во время очередной Судной Ночи, (   Читать дальше...   )Производство: США, Франция / Blumhouse Productions, Platinum Dunes, Universal PicturesЖанр: Фантастика, Боевик, ТриллерРежиссер: Джеймс ДеМонакоАктеры: Фрэнк Грилло, Элизабет Митчелл, Майкелти Уильямсон, Рэймонд Дж. Барри, Эдвин ХоджПеревод: ДублированныйПродолжительность: 00:02:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:40DBD8261A442AD6D6430575F164E334B8E0EB0F
+magnet:?xt=urn:btih:F805DED4533FC708622CDEC2275A9E815FBE3A5F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -192,25 +162,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 987826   (922885) от 19.02.2016
+###  Публикация: 987334   (924170) от 18.02.2016
 
-Ю. И. Римаренко | Буржуазный национализм и его "теория" нации (1974) [DJVU] [Uk]
+Тюрьма / Prison (1987) HDRip [H.264]
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924170.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге освещаются вопросы методологии критики буржуазного национализма, на конкретном документальном и литературном материалах вскрывается характер антинаучного подхода буржуазно-националистических авторов к проблеме происхождения и сущности нации, вскрывается теоретически нежизнеспособная и политически реакционная сущность доктрин украинского буржуазного национализма.Жанр: История, политологияФормат: DJVU
+В 1964 году Чарлз Форсайт был посажен на электрический стул за убийство, совершенное им в тюрьме. Жалобы заключенных на пытки и жестокость привели к закрытию тюрьмы. Через двадцать лет тюрьму открыли, и во главе ее стал тот же директор, что и прежде. Дух казненного возвращается, чтобы отомстить своему тюремщику.Производство: США / Empire PicturesЖанр: Ужасы, Триллер, Драма, КриминалРежиссер: Ренни ХарлинАктеры: Вигго Мортенсен, Челси Филд, Лейн Смит, Линкольн Килпэтрик, Том Эверетт, Иван Кэйн, Андре Де Шилдс, Томми Листер, Стефен Е. ЛиттлПеревод: Многоголосый закадровый, Авторский одноголосый, закадровый (Михалёв)Язык субтитров: АнглийскийПродолжительность: 01:42:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12B5992403CE59AC0D0A9B68786DA4F97E78F35D
+magnet:?xt=urn:btih:0EBA243F66EB96923E067636127A4B5319EE9C61
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -218,164 +188,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 988294   (922884) от 19.02.2016
+###  Публикация: 987952   (924169) от 18.02.2016
 
-Ильдико фон Кюрти | Сердечный трепет (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они совершенно не подходят друг другу. Он преуспевающий адвокат, а у нее свое кафе в Гамбурге. Его переполняют нереализованные желания, а она пытается в них разобраться. Он любит свою мебель, а она - свои проблемы. И при этом оба любят друг друга. Но в одно проклятое утро все рушится в одночасье. С разбитым сердцем садится она в машину, одержимая жаждой мести. Тем (   Читать дальше...   )Жанр: Проза, ЛРПродолжительность: 06:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64B46291194EDC20816A35B03892C86A88F6BA18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095644   (922883) от 22.01.2017
-
-VA - Who's Afraid Of 138?! Top 15 2017-01 (2017) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Armin van Buuren ft BullySongs - Caught In The Slipstream (Coming Soon!!! Remix)  3:25
-02.  Ben Gold - Anatac  3:38
-03.  Paul van Dyk & Ronald van Gelderen ft Gaelan & Eric Lumiere - Everyone Needs Love (Paul Van Dyk's VANDIT Club Mix)  3:25
-04.  Allen & Envy ft Victoriya - Don't Say  3:58(   Читать дальше...   )Жанр: TranceПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF57296BDC400F4B545DEA0BDBEA10E1729D0CEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988113   (922882) от 19.02.2016
-
-Николай Богданов | Сказ про красную звёздочку (1973) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0A695E641E166F2809BD733B68D06A3890EDD20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095560   (922881) от 22.01.2017
-
-VA - Trance Asylum 4 (2017) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rene Ablaze & Jam Da Bass - Fly (Radio Edit)  3:13
-02.  Alizera - Fairy (Radio Edit)  3:30
-03.  Dk Project - Blue Skies (Radio Cut)  4:16
-04.  Tranc Eye Presents Skull Crusher - Acidland (Radio Cut)  3:02(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E0C22B70BB6BFF56766D2F9D73DA48AEA35127
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988290   (922880) от 19.02.2016
-
-Эстер Браун | Последние штрихи (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приемный отец Бетси, лорд Филлимор, считая дочь успешным бизнес-консультантом, обращается к ней с просьбой помочь ему восстановить семейное дело — Академию, где богатых девиц обучают светским манерам. Но стоит ли это делать? Ведь хорошие манеры явно не в чести у нынешних учениц. На каждой из них висит столько бриллиантов, что их хватит на покупку средних размеров (   Читать дальше...   )Жанр: РоманПродолжительность: 13:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD385515934BE979DD947EE931BB94640B60140C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095591   (922879) от 22.01.2017
-
-VA - Redux Presents: The Uplifting Selection Vol.1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+ATB - Under The Stars (2016) [MP3|320 кб/с] <Chillout, Downtempo, Ambient>
 
 >>Electronic
->>Trance
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924169.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  UDM - Omega (Extended Mix)  6:10
-02.  TrancEye - Yearning (Original Mix)  7:10
-03.  Symon & Jay - Aerify (Extended Mix)  6:57
-04.  Asteroid - Gravitation (Extended Mix)  6:44(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:09:39
+01. Yoe Mase - Street Piano (3:14)
+02. ATB feat. Anova - Sternwanderer (6:09)
+03. ATB - Straight To The Stars (4:21)
+04. Yoe Mase - A Past Life (2:04)(   Читать дальше...   )Жанр: Chillout, Downtempo, AmbientПродолжительность: 01:14:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA3E0C93CF32B1FFB82ABC2F136541127ECC630F
+magnet:?xt=urn:btih:F6DDDD6B0521B6970E6D136836E0F29364ABE6BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -383,115 +217,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 988060   (922878) от 19.02.2016
+###  Публикация: 987915   (924168) от 18.02.2016
 
-VA - Recoverworld Radio 005 (Mixed by Rich Smith) (2016) [MP3|320 кб/с] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rich Smith & Kimberly Hale - When the Sun Comes Up (6:53)
-02. Para X - Love Train (Janina T Remix) (7:06)
-03. Almar & Danny Stubbs - Midnight Sun (7:13)
-04. Para X - Love Train (6:40)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:23:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6618C2B2F1D421D1F6C473F70C9CA1E44C392A03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095846   (922877) от 22.01.2017
-
-VA - Black Hole House Music 01-17 (2017) [MP3|320 Kbps] <House, Progressive, Vocal>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Marc Lee ft Angelika Borof - Something Inside Me  5:40
-02.  Frigid Armadillo ft Natalie Major - Electric Hearts (Original Mix)  6:44
-03.  The Overview Effect ft Luke Chable - Sweetness + Light  3:38
-04.  Quinten 909 & Andrey Exx ft Diva Vocal - U Got the Love (Max Lyazgin & Hugobeat Remix)  5:40(   Читать дальше...   )Жанр: House, Progressive, VocalПродолжительность: 01:17:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A571668C039C86E99CEC7060AAF2348CF1681F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988011   (922876) от 19.02.2016
-
-Nancy Harms - Ellington At Night (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lush Life
-02. Rocks In My Bed
-03. Do Nothin' Till You Hear From Me
-04. Lost In Meditation(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB3C05474835BAA5B3186C9E65606C6DF7586953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095583   (922875) от 22.01.2017
-
-VA - Transorica  Vol.21 (2017) [MP3|320 Kbps] <Trance>
+ATB - Under The Stars (2016) Limited Edition [FLAC|Lossless|tracks + .cue] <Ambient, Downtempo>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924168.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Oleg Quantize - Radio Interference (Original Mix)  4:19
-02.  Thirteen X - Kamikaze (Original Mix)  6:28
-03.  Aurovision - Awaking Life (Original Mix)  7:39
-04.  CH.YV - Road (Original Mix)  6:21(   Читать дальше...   )Жанр: TranceПродолжительность: 01:05:53
+01. Yoe Mase - Street Piano (3:14)
+02. ATB feat. Anova - Sternwanderer (6:10)
+03. ATB - Straight To The Stars (4:21)
+04. Yoe Mase - A Past Life (2:04)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:14:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB479548519B5D9E89EB7C05478DB7CC89932917
+magnet:?xt=urn:btih:FA8D30C9421A1F6E1ACAB02C3EE5DF15D83F2836
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -499,21 +246,262 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 987745   (922874) от 19.02.2016
+###  Публикация: 1366310   (924167) от 11.03.2020
 
-Электроды-стенты позволят считать сигналы через кровеносную систему мозга
+The Clayton Brothers - Soul Brothers (2015) ArtistShare [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
 
->>Поговорим
->>DailyTechInfo
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924167.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Интерфейсы мозг-компьютер, которые были разработаны в достаточном количестве за последние годы, позволяют парализованным людям управлять "силой мысли" специализированными роботизированными протезами, экзоскелетами, роботами и элементами управления интерфейсов пользователя компьютерных программ. В большинстве случаев такие интерфейсы требуют наличия электродов (   Читать дальше...   )
+01. Bass in Cracks [5:18]
+02. Soul Stomp [11:29]
+03. Long Live The King [9:17]
+04. New Bossa [5:58](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 01:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E408CC5C91BEF0B60EBA71D9A8470D849DC5C10F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366482   (924166) от 11.03.2020
+
+Exporter for Contacts 1.12.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Exporter for Contacts (ранее был «Export Address Book») - это популярное и мощное приложение для Mac, предназначенное для экспорта контактных данных из контактов Apple в различные форматы, способное организовать настройки экспорта в настраиваемых шаблонах, что значительно упрощает повторный экспорт. Приложение позволяет экспортировать выбранные контакты, группы и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.03.2020Разработчик: Stefan KellerПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D069FD891F968A961AF0CC8D41DC6A4A5012E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366472   (924165) от 11.03.2020
+
+Halftribe - Backwater Revisited (2019) Dronarivm [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Soundscape>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tuning Out (04:24)
+ 02. Maybe (03:31)
+ 03. More Than Autumn (05:05)
+ 04. Bumpy Roads (03:12)(   Читать дальше...   )Жанр: Ambient, Experimental, SoundscapeПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBA8B4E02928A49159550656CC385373DA79466F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 756187   (924163) от 12.02.2014
+
+Магия, магия / Magic Magic (2013) WEB-DL [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алисия и её лучшая подруга Сара путешествуют по отдалённым местам Чили вместе с парнем Сары, его сестрой и их чудаковатым приятелем Бринком. Алисия страдает от бессонницы и постепенно начинает сходить с ума. Границы реальности и вымысла становятся для неё всё более размытыми. После того, как Сара внезапно возвращается в Сантьяго, состояние Алисии ещё больше ухудшается. (   Читать дальше...   )Производство: Чили, США | Braven Films, Killer Films, Rip Cord ProductionsЖанр: ТриллерРежиссер: Себастьян СильваАктеры: Майкл Сера, Джуно Темпл, Эмили Браунинг, Каталина Сандино Морено, Аугусто Силва, Луис Дубо, Роксана Нараньо, Лоренца Айяпан, Джон Карлос Уэнчунао, Райен Аликинтуй ...Перевод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: Субтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E62BAAA817B2122EF16E2B551DB0FFB64292235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 755958   (924162) от 12.02.2014
+
+Дорога, дорога домой / The Way Way Back (2013) BDRemux [1080p]
+
+>>След.
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: СШАЖанр: Драма, КомедияРежиссер: Нат Факсон, Джим РэшАктеры: Стив Карелл, Тони Коллетт, Эллисон Дженни, Анна-София Робб, Сэм Рокуэлл, Майя Рудольф, Лайам Джеймс, Роб Кордри, Аманда Пит, Ривер АгиррПеревод: Двухголосый закадровыйОзвучка / Автор перевода: Ozz (Ирина Воронова и Алексей Серегин)Язык субтитров: Русский (El Brujo), английскийПродолжительность: 01:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96B926C1DD40C5244D7F425E2497BC35EC7C3417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489741   (924155) от 17.08.2021
+
+Valentina Studio Pro 11.4.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Valentina Studio - это идеальный инструмент управления данными для администраторов баз данных. Valentina Studio PRO для разблокировки современных инструментов моделирования данных, дизайна и редактирования отчетов и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 08.08.2021Разработчик: Paradigma SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAD9F0B463E22206D88055AA6E127ACF77F65299
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489735   (924153) от 17.08.2021
+
+Advanced Uninstall Manager 2.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Advanced Uninstall Manager, как следует из названия, представляет собой утилиту для удаления приложений. Это приложение-деинсталлятор, созданное Systweak Software, не только помогает удалить нежелательные приложения, но и помогает ускорить запуск.
+Просто перетащите ненужное приложение в Advanced Uninstall Manager и удалите все связанные с ним файлы одним щелчком (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.06.2021Разработчик: Systweak SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8076A0F20746BA64D885F9B7417D54A01FDBBB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 756274   (924152) от 12.02.2014
+
+Выдача багажа / Baggage Claim (2013) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пообещав не стать самой старшей незамужней женщиной в своей семье, Монтана отправляется в тридцатидневную экспедицию, чтобы очаровать потенциальных женихов.Производство: США | Sneak Preview ProductionsЖанр: КомедияРежиссер: Дэвид Е. ТалбертАктеры: Пола Пэттон, Дерек Люк, Тэй Диггз, Борис Коджо, Трей Сонгз, Джилл Скотт, Адам Броди, Дженифер Льюис, Джимон Хонсу, Лорен ЛондонПеревод: Многоголосый закадровый, профессиональный (Лицензия)Субтитры: ОтсутствуютПродолжительность: 01:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12246B355068CC0335F8D23881CA4128DA1E410F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489750   (924150) от 17.08.2021
+
+WiFiSpoof 3.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924150.jpg" />
+</div>
+
+
+###  Подробнее
+
+WiFiSpoof - небольшая утилита, которая поможет вам легко сменить WiFi Mac-адрес с помощью горячих клавиш или из строки меню. MAC-адрес можно поменять на любой случайный (сгенерированный приложением) или непосредственно заданный вами.Тип издания: macOS SoftwareРелиз состоялся: 17.08.2021Разработчик: SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F63AC7012E93283D86135CCD2BC4ED315926B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489796   (924148) от 17.08.2021
+
+Boxy SVG 3  v3.59.5 [En]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель проекта Boxy SVG - создать редактор SVG для рядовых пользователей, а также для профессиональных дизайнеров и разработчиков.Тип издания: macOS SoftwareРелиз состоялся: 16.08.2021Разработчик: Jaroslaw FoksaПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
@@ -525,112 +513,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095761   (922873) от 22.01.2017
+###  Публикация: 1489670   (924146) от 17.08.2021
 
-Black Harvest - White Light Came Down (2005) [FLAC|Lossless|image + .cue] <Black Metal, Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die, Lavinia (07:20)
-02. Let Us Go (04:32)
-03. Tamora (06:39)
-04. Remnant (06:44)(   Читать дальше...   )Жанр: Black Metal, Doom, Death MetalПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B067A35FAB4AD50C1684AE6392572441072ACBD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987298   (922872) от 19.02.2016
-
-VA - Techno 2007 - The Best (2007) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pele - Childhoods End (7:33)
-02. Kaliber - Kaliber 12 (6:29)
-03. Flinsch 'n Nielson - Gimmik 2 (5:52)
-04. Guy Gerber - The State of Change (6:46)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC45CD2EE6A64BC6DAC3FBE73ABF6A5A3BB5F707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095926   (922871) от 22.01.2017
-
-VA - Kazan Deeper 2017 (2017) [MP3|320 Kbps] <Deep House, Melodic, Progressive, Funky>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amen B & Miroslav Vrlik - 2 Faced People (Martin Cloud Remix) 06:01
-02. Rauwkost - Slipe And Slide 06:49
-03. Peer Van Mladen - With You 05:37
-04. Sam Greycious - Going Back 08:35(   Читать дальше...   )Жанр: Deep House, Melodic, Progressive, FunkyПродолжительность: 02:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8895AA4B14A36707DAEFDAC2F2143AE929E6AB54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988312   (922870) от 19.02.2016
-
-Время покажет с Петром Толстым. Украина: два года спустя (19.02.2016) SATRip
+guitarFineTune 8.3.1 [En]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924146.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В студии программы "Время покажет" говорят о политической и экономической ситуации на Украине спустя два года после февральского переворота и обсуждают инициативу украинских депутатов от Радикальной партии о переименовании России в Московию.Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 00:40:00
+guitarFineTune - это приложение. это помогает настраивать электрические и акустические гитары.  Все струны можно настраивать одновременно. Измеренный звук для всех 6 струн отображается одновременно и сравнивается со звуками струн, какими они должны быть, когда гитара находится в идеальном состоянии.Тип издания: macOS SoftwareРелиз состоялся: 08.07.2021Разработчик: Eigil KroghПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B574259D57285D65D5B96C7C0EDFA8647504FE87
+magnet:?xt=urn:btih:E21AA08E6E57BC9495555375F52856247CCD93D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -638,27 +539,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095878   (922869) от 22.01.2017
+###  Публикация: 756180   (924145) от 12.02.2014
 
-Addaura - 1 demo, 1 album, 1 EP (2010-2015) [MP3|207-268 Kbps] <Atmospheric Black Metal>
+Джо Диспенза | Сила подсознания, или как изменить жизнь за 4 недели (2013) [FB2]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>След.
+>>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924145.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Amid The Tumult And Clamor (I Look For The Light Through The Pouring Rain)
-02. Chambering Things Lost
-03. The Sun Shines Today Also (On The Oaks Of That Bird Hill)Жанр: Atmospheric Black MetalПродолжительность: 01:50:16
+Мозг не отличает событий внешнего мира от тех, что происходят у нас в мыслях. Это дает нам свободу творить свою жизнь по собственному желанию. Но мы должны знать и уметь использовать правильные инструменты.Жанр: ЭзотерикаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA8C3F70A4407DECB94B63B8DFD99E0CE414B6FE
+magnet:?xt=urn:btih:C34BDC0DB9B92D08A4F25AEF2CD10F12C3FFE978
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -666,28 +565,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095941   (922868) от 22.01.2017
+###  Публикация: 753140   (924143) от 12.02.2014
 
-Scott Wilkie - Home Again The Solo Piano Sessions (2008) [FLAC|Lossless|tracks + .cue] <Jazz>
+Dr.Web вписался в цензуру интернета и блокировки сайтов
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>3
+>>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924143.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The One [5:15]
-02. Home Again [5:05]
-03. Pier 39 [5:08]
-04. Claire's Lullaby [3:29](   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:18
+В последний день января Компания «Доктор Веб» анонсировала новые возможности своего продукта «Dr.Web Security Space 9.0»: внедрение в свой антивирусный продукт новой «фичи», которая (наверное, как считают в компании) должна понравиться их пользователям — «ограничение доступа к сайтам в связи с обращениями правообладателей, обнаруживших нарушения своих интеллектуальных прав в сети Интернет».
+(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A03EC4C10B6904D11319F2B58867BB3B08160589
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -695,28 +592,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 631261   (922857) от 18.03.2013
+###  Публикация: 756085   (924139) от 12.02.2014
 
-Золотая коллекция Ретро (4 части из 4) (2006) DVDRip
+Метро 2033 / Metro 2033 (2010) [Ru/Multi] (1.0.0.1) SteamRip R.G. Origins
 
->>Театр и Музыкальное видео
->>Концерты (SD)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924139.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Данный видеоматериал представляет собой уникальную подборку песен в исполнении замечательных артистов эстрады: Л. Клемент, В. Кругловой, Г. Отса, М. Бернеса, В. Мулермана, А. Королева, В. Трошина, Г. Великановой, Н. Дорды, Т. Миансаровой, М. Лукач, Н. Пантелеевой, Г. Ненашевой, И. Бржевской, П. Бюль-бюль-оглы, М. Магомаева, Л. Мондрус, В. Ободзинского. Исполнители, (   Читать дальше...   )Жанр: Ретро, эстрадаПродолжительность: 00:55:56
-01. Сормовская лирическая (Г. Отс)
-02. Иволга (Н.Пнтелеева)
-03. А там впереди все дорога (В. Трошин)(   Читать дальше...   )
+В 2013 году мир был разрушен глобальной катастрофой, уничтожившей население Земли и превратившей ее поверхность в отравленную пустошь. Горстка выживших нашла убежище в глубинах московского метро, а человеческая цивилизация вновь погрузилась в Темные века.
+
+Сейчас на дворе 2033-й год. Целое поколение людей родилось и выросло под землей, наблюдая, как их осажденные (   Читать дальше...   )Тип издания: ЛицензияРазработчик: 4A GamesЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, Английский, Немецкий, Французский, Итальянский, ИспанскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Итальянский, Испанский, Чешский, Голландский, ПольскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский, Чешский, Голландский, Польский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F561F0CE6A8CEC305ABA54DE289F23137D6D14A
+magnet:?xt=urn:btih:BCE927445CA6FD93D6B858B98FFAD4D0379DE158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366449   (924134) от 11.03.2020
+
+A Better Finder Rename 11 v11.13 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924134.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Better Finder Rename является лучшим решением для автоматизации процесса переименования большого количества файлов. Программа работает как отдельное приложение, однако может быть вызвано и из контекстного меню Finder.
+Под простым и понятным интерфейсом A Better Finder Rename скрываются гибкие настройки переименования файлов. В программе есть полный комплект настроек, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2020Разработчик: Frank ReiffПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BEEA54E0DB6288E6581E0590D8710BCB597BD18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366280   (924133) от 11.03.2020
+
+Sensei 1.1.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sensei - это приложение, которое охватывает как программное, так и аппаратное обеспечение, включая гораздо больше функций, чем другие приложения в категории оптимизации Mac. Он включает в себя функции для очистки вашего диска, удаления приложений, анализа состояния аккумулятора и диска, мониторинга статистики CPU/GPU/RAM, оптимизации скорости загрузки и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 10.03.2020Разработчик: Oskar Groth / Cindori ABПоддерживаемая ОС: OS X 10.15 и вышеЯзык интерфейса: Английский, Шведский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A94E9A7B19E545DDF238CCA9E5747D96F433F20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366283   (924132) от 11.03.2020
+
+VA - Sirup Miami 2020 [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funk Machine - In My Arms [03:00]
+02. Sons Of Maria - Empires [02:57]
+03. ilMuro - Lost [03:14]
+04. The Giver - Do It [03:12](   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:289B6EFD910A3A9BB6BD8B5E1344341A16E3DC9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

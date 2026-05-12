@@ -1,3 +1,59 @@
+###  Публикация: 1023290   (726205) от 04.06.2016
+
+Белый Орел - Как упоительны в России вечера (2009) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Как упоительны в России вечера [03:56]
+02. Потому что нельзя быть красивой такой [04:45]
+03. С высоких гор [03:44]
+04. Без тебя [04:35](   Читать дальше...   )Жанр: PopПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC6E27B3218F3278BC6D198E1D2BE4E11194DA59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128990   (724228) от 27.04.2017
+
+Nu Virgos (ВИА Гра) - Stop! Stop! Stop! (single) (2003) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop! Stop! Stop! (Original Version) (3:48)
+02. Stop! Stop! Stop! (Upbeat Version) (3:48)Жанр: PopПродолжительность: 00:07:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63AEDB788CAED5B7CA433285B263B660EB3332AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023411   (723838) от 05.06.2016
 
 Александр Малинин - Звездная серия (1997) [FLAC|Lossless|image + .cue] <Pop, Romance>
@@ -687,64 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01C5DBBEC5D2B330195056147ACEA6F947E87F48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028930   (684421) от 25.06.2016
-
-Мона Лиза - Я уезжаю (1997) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я уезжаю
-02. Давай поговорим
-03. Напиши
-04. Белый город(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C90F030D85471484CEE27F235F06F93B6CD224F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028935   (684409) от 25.06.2016
-
-Мона Лиза - Наши бабы лучше Аббы! (1994) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Омон
-02. За океан
-03. Я верю в тебя
-04. Эмансипация(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C5DF29A63B9B3744DB69BB15B29F9E931F2157D
 ```
 
 https://mybot314.ru/tekegram_catalog/

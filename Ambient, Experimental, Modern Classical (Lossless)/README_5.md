@@ -1,3 +1,30 @@
+###  Публикация: 1038936   (830769) от 04.05.2020
+
+Massimo Magrini (Bad Sector, Olhon) - Discography 46 Releases (1995-2019) [FLAC|Lossless|tracks+.cue, tracks] <Dark Ambient, Industrial, Experimental, Noise, Ambient>
+
+>>След.
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Part I (19:00)
+ 02. Part II (19:00)Тип издания: CD, Vinyl, WebЖанр: Dark Ambient, Industrial, Experimental, Noise, Ambient •Продолжительность: 37:38:55 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:766AC707973B107A45459E06EBD4D76A3E82C50B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502464   (828234) от 14.10.2021
 
 MLO - Oumuamua (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Ambient>
@@ -713,32 +740,6 @@ Brambles - Charcoal (Special Edition) (2014) Serein [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79AF81D59D2986598855FDA6A72AE161FE9FDAD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202197   (790455) от 28.01.2018
-
-VA - Peaceful Piano (2017) Decca [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Contemporary, Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Modern Classical, Ambient, Contemporary •Продолжительность: 03:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33F448A714171B0C84226E91AB10FA776D7E906F
 ```
 
 https://mybot314.ru/tekegram_catalog/

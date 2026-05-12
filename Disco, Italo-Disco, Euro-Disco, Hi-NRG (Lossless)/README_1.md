@@ -1,3 +1,32 @@
+###  Публикация: 1451486   (1028342) от 02.03.2021
+
+VA - New Italo Disco Top 25 Compilation, Vol. 15 (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Dance, Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boy Blue - Don't Leave Me Alone (Short Vocal Disco Mix) (4:33)
+02. Boy Blue - Save Me (Short Vocal Classic Mix) (4:15)
+03. Italian Party - The Name of the Game (Vocal Radio Dancefloor Mix) (4:25)
+04. Momento - Systematic Lover (Vocal Short Dancefloor Mix) (Radio-Edit) (4:26)(   Читать дальше...   )Жанр: Italo-Disco, Dance, EurobeatПродолжительность: 01:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A78400E7CCA4E5C231EEC3B3C1011EB4006FA5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452346   (1027719) от 06.03.2021
 
 Genghis Khan - Here We Go (2021) Japan Edition [FLAC|Lossless|image + .cue] <Disco, Eurodance>
@@ -714,35 +743,6 @@ VA - Disco 80's Fresh Hits & Remixes (2015) [FLAC|Lossless|WEB-DL|tracks] <Italo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75356CF79EF1EC6705CCFB2D4C46F4C37A5DF53E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466344   (1018558) от 29.04.2021
-
-VA - Disco 80's Maxi Club Hits, Vol.2 (Remixes & Rarities) (2012) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sabrina - Boys Boys Boys (Special Long Club Mix) (8:44)
-02. Digital Emotion - Go Go Yellow Screen (Maxi Remix Version) (8:34)
-03. Baltimora - Key Karimba (Remix Maxi Version) (5:59)
-04. Den Harrow - Big Love (Maxi Remix) (6:06)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 01:07:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5409777243F9CEB44467F94AAFD0A42377C0023
 ```
 
 https://mybot314.ru/tekegram_catalog/

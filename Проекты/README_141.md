@@ -1,3 +1,55 @@
+###  Публикация: 1024019   (719608) от 07.06.2016
+
+Проекты - VideoHive - Social Logos and Lower Third - 10139777 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор социальных медиа иконок для ваших видеороликов.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDB5BAFD4465A4F4B08FA7D236ADE79394AC66ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024173   (719605) от 07.06.2016
+
+Проекты - VideoHive - Event Promo - 16014050 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Event Promo - проект для ваших промо-роликов.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:408380C4C0894242BA96FE22C558256B32CB21FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023991   (719601) от 07.06.2016
 
 Проекты - VideoHive - Social Media Agency Opener - 4936794 [AEP]
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5996E33726A0899AA1DE59FACA985C58F6BA9D29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024300   (717494) от 08.06.2016
-
-Проекты - VideoHive - Summer Slideshow - 16093863 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Summer Slideshow - Летний качественный слайд-шоу, имеющий модульную структуру, так что вы всегда можете изменить его длину. Проект включает в себя подробный видео-урок, и поэтому даже человек с базовыми знаниями АЕ, может быстро понять структуру проекта. Просто введите ваши собственные фотографии или видео, отредактируйте текст и наслаждайтесь стильным и модным видео.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AFBA594B492B6BA5BAA276DC589CA0E34AB0910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024310   (717474) от 08.06.2016
-
-Проекты - VideoHive - Photo Frames (Memories) - 3728399 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайдшоу. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A73A6289364B245B5BAACB305F64480462252790
 ```
 
 https://mybot314.ru/tekegram_catalog/

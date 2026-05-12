@@ -1,3 +1,61 @@
+###  Публикация: 1750207   (43154) от 18.09.2024
+
+VA - 20 Greatest Cello Composers (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stockholm Chamber Duo - Le Carnaval des Animaux, R. 125 XIII. Le Cygne (2:53)
+02. Victor Yoran - Cello Suite No. 1 in G Major, BWV 1007 I. Prélude (1:47)
+03. Victor Yoran - Cello Suite No. 1 in G Major, BWV 1007 II. Allemande (6:51)
+04. Victor Yoran - Cello Suite No. 1 in G Major, BWV 1007 III. Courante (3:19)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9702436780AC3F608F502E94026684ECB6C0381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750483   (42955) от 20.09.2024
+
+Secret Garden - Songs In The Circle Of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Neoclassical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Renaissance (4:43)
+02. Lullaby For Grown-Ups (4:35)
+03. Fionnuala's Violin (3:57)
+04. Irish Waltz (3:32)(   Читать дальше...   )Жанр: Classical Crossover, NeoclassicalПродолжительность: 00:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25FE0C67C61A2E9F80EC9B362D23E979D8D4B421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750897   (42724) от 22.09.2024
 
 VA - Classical Piano Masters (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -685,63 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3BAE5225DF3D617DB7553780EE474E76768B15D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785745   (24161) от 19.03.2025
-
-Ильин Роман - Бетховен. К Элизе (2025) [MP3|320 Kbps] <Classic, chamber>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24161.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Бетховен. К Элизе (1)
-2. Бетховен. К Элизе (2)
-3. Грациоли. Соната. Часть перваяЖанр: Classic, chamberПродолжительность: 00:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF7DD7D7F5502DC8340C68A2B8CD1A2A3A5953C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788412   (23004) от 30.03.2025
-
-André Rieu, Johann Strauss Orchestra - Jewels Of Romance (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indian Love Call (4:39)
-02. The Ludlows (From Legends Of The Fall) (3:51)
-03. Nitsch Jaka (Ukrainian Folksong)(Anna Reker, Mastreechter Staar) (3:56)
-04. Morning Has Broken (4:57)(   Читать дальше...   )Жанр: Classical, InstrumentalПродолжительность: 01:10:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F63A22452A1FDBB8B7F8EEE1D709592DCB72184
 ```
 
 https://mybot314.ru/tekegram_catalog/

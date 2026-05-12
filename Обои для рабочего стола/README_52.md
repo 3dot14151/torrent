@@ -1,3 +1,29 @@
+###  Публикация: 1243943   (486071) от 30.08.2018
+
+Обои - Ultra HD 3840x2160 Wallpaper Pack 335 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486071.jpg" />
+</div>
+
+
+###  Подробнее
+
+В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8BB329FF7B9347CBB0A52CF29CB99AA9C76C2D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243945   (486070) от 30.08.2018
 
 Обои - Desktop Wallpapers Full HD. Part (274) [JPG]
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:375B61EDB47A6AECDC16540CF9CDC3952C1246FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546204   (480214) от 12.09.2012
-
-Логотипы Windows, Linux, Apple и пр. (12.09.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E0BA85CE5D10D7D17B3C82396CBC153C200E6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

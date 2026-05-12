@@ -1,3 +1,61 @@
+###  Публикация: 960762   (303379) от 30.11.2015
+
+Beethoven - Van Swieten Society (van Swieten Society) (2012) [FLAC|image +.cue]<Classical, Chamber Music, Romantic Period, Symphony>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Trio in D major (after Symphony No. 2, Op. 36)
+01. Adagio,Allegro con brio (13:02)
+02. Larghetto, quasi andante (10:39)
+03. Scherzo: Allegro (04:05)(   Читать дальше...   )Жанр: Classical, Chamber Music, Romantic Period, SymphonyПродолжительность: 00:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2345A5C57767C8430ADED6DB139004039CA0D270
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960427   (303368) от 30.11.2015
+
+Brahms - Symphonies Nos. 1 & 3 (Gunter Wand & NDR Symphony Orchestra) (2001) [FLAC|image +.cue]<Classical, Romantic Period, Symphony>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony No. 1 in C minor, Op. 68
+01. un poco sostenuto - allegro (13:15)
+02. andante sostenuto (08:54)
+03. un poco allegretto e grazioso (04:52)(   Читать дальше...   )Жанр: Classical, Romantic Period, SymphonyПродолжительность: 01:19:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94AF953C4196504BF52849E284470470B991EEA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961019   (303231) от 30.11.2015
 
 Rachmaninov - Complete Works for Piano and Orchestra (Rafael Orozco & Royal Philharmonic Orchestra) (2CDs) (1993) [FLAC|image +.cue]<Classical, Romantic Period, Post-Romantic, Concerto, Vari ...
@@ -684,64 +742,6 @@ Piano Concerto No. 1 in B-flat minor, Op. 23:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C62515B62C6EB56DE6B0FBF7A399A7FBFB773D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961851   (296985) от 03.12.2015
-
-Boccherini - Symphonies op.35, 41 & 42 (Academy for Early Music Berlin) (2003) [FLAC|Lossless]<Classical, Orchestral, Classical Period, Symphony>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony no.26 in C minor, op.41, G.519
-01. Allegro vivo assai (06:13)
-02. Pastorale: Lentarello (05:35)
-03. Minuetto: Allegro (02:48)(   Читать дальше...   )Жанр: Classical, Orchestral, Classical Period, SymphonyПродолжительность: 01:18:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EF96A9BA0AC9048B26E10D803CE6CA6295CA783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961882   (296981) от 03.12.2015
-
-Monteverdi - L'incoronazione di Poppea (Nikolaus Harnoncourt & Concentus musicus Wien) (3CDs) (2009) [FLAC|Lossless]<Claassical, Baroque Period, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Act Two
-01. Io non so dov'io vada (06:20)
-02. Hor che Seneca  morto (08:21)
-03. Dorme, l'incauta dorme (03:27)(   Читать дальше...   )Жанр: Claassical, Baroque Period, OperaПродолжительность: 03:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:628B0EEE7BC2EE0D2DBC35FAC1A9010EE49A7430
 ```
 
 https://mybot314.ru/tekegram_catalog/

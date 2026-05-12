@@ -1,3 +1,61 @@
+###  Публикация: 1048840   (545861) от 03.09.2016
+
+VA - Suanda Ibiza (2016) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer  -  Lights (Matrick Summer Remix)  4:20
+02. Ruslan Radriges  -  No Way Back (Original Mix)  5:13
+03. Frainbreeze & Lucid Blue  -  Light My Way (Original Mix)  5:43
+04. Armos  -  Call Of The Road (Ruslan Radriges Remix)  4:44(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 01:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A6FAED524D886D89EFBD6B2E01B61131E04964
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048920   (545793) от 03.09.2016
+
+VA - Trance Aliens (2016) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Counteractive & Fido  -  Alien Explorer  7:48
+02. Jericho Ismael  -  Laguna  7:17
+03. Wittendoerfer  -  Anywhere but Here (DJ Space Raven Remix)  6:40
+04. DK Project & Blue Wave  -  Lost Sense  7:19(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 05:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF7D77F9A7E278F9D861EFF07F54873CE7A0085A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1238658   (545506) от 31.07.2018
 
 VA - The Best Of Critical State 003 (2018) [MP3|320 Kbps] <Trance>
@@ -687,64 +745,6 @@ VA - Miami Music (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9526A5BD246D18D5F1FAD6B231766B89B32B2863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240117   (531384) от 09.08.2018
-
-VA - Trance Energy (Mixed by Cosmic Gate & Ben Nicky) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.VA - Trance Energy 2018 (Continuous Mix By Cosmic Gate)
-02.Estiva - Cubes (Original Mix)
-03.Above & Beyond - Red Rocks (Original Mix)
-04.Gabriel & Dresden Ft. Sub Teal - Only Road (Cosmic Gate Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A8C2838663397A450C92D0343280177FA0E6E39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312654   (530819) от 05.07.2019
-
-VA - Uplifting Trance Top 50 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Dymond feat. Susana - Love You Are Made Of (Extended Mix)
-02. Maria Nayler - Angry Skies (James Dymond Extended Mix)
-03. Allen & Envy feat. Neev Kennedy - Without You (Dan Stone Remix)
-04. Sneijder feat. Jess Morgan - Sky Is On Fire (Kaimo K Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:55:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6465337A56E067E5050829C33C736472BE51AD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

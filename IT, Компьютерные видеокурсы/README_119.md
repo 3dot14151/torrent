@@ -1,3 +1,31 @@
+###  Публикация: 1810607   (9298) от 05.08.2025
+
+Специалист, Сергей Прощаев | Apache Kafka для разработчиков (2025) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Apache Kafka представляет собой ведущий брокер сообщений, широко используемый в современных разработческих стэках. Владение Apache Kafka позволяет Java-разработчикам выстраивать системы для обработки потоковых данных, такие как системы очередей, стриминговую обработку и обмен данными между компонентами приложений.
+
+Курс предоставит необходимые знания и умения для (   Читать дальше...   )Производство: СпециалистЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 12:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01FB0E864088007D66FD57B66452EF74B5E79564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812350   (7809) от 15.08.2025
 
 Антон Агафонов | Нейросети для сетевиков 3.0 (2025) WEB-DL [AD] [RU]
@@ -674,35 +702,6 @@ Grafana была создана 7 лет назад для визуализац�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37E33B706632DE70D5F371D19CAC889D5818EC6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819857   (619) от 27.09.2025
-
-Udemy, Joseph Heidari | Understanding Node.js: Core Concepts (2025) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Welcome to the most comprehensive Node.js course on the internet!
-
-In this course, we're going to do a deep dive into Node.js itself without cluttering our minds with other tools and NPM packages and truly master this powerful technology.
-(   Читать дальше...   )Производство: udemyЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 77:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F3138BDD91A73EB02920B7F341CF7A90190FA99
 ```
 
 https://mybot314.ru/tekegram_catalog/

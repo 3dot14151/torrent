@@ -1,3 +1,84 @@
+###  Публикация: 540427   (503400) от 29.08.2012
+
+Chris Parker - Symphony (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ClubПродолжительность: 00:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:897124E7B47BA8019445C233797FBF159BD84BFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540336   (500871) от 31.08.2012
+
+Сборник клипов - VA -Top 37 evropa plus + bonus (2011-2012) WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность: 02:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D0BCA02CF8622C61C9A63FD94DB8E571753B691
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934954   (500193) от 07.09.2015
+
+Осенний марафон № 187 / Сборник видеоклипов (2015) WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжаем прерванную линию клипов. Раз уж наступила осень - пусть будет осенний сборник из зажигительных рок'н'рольных хитов.1. Against The Current - Talk (Official Video) (00:03:14)
+2. Animal ДжаZ - Дальше (Official Video) (00:04:50)
+3. Bill Ryder-Jones - Two To Birkenhead (Official Video) (00:04:23)
+4. Bring Me The Horizon - Throne (Official Video) (00:03:09)(   Читать дальше...   )Жанр: Indie, Rock, Punk, AlternativeПродолжительность: 01:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A24B680FCE62837142A3887003DE8AF9D4EA8B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541603   (499513) от 02.09.2012
 
 Hi-Jakkers ft Tenny Ten, JP Tronik & Rodrigues - VIP (2012) [H.264/1080p] WEBRip
@@ -629,87 +710,6 @@ Beat Club - Progressive Times - Vol3. 1970 (2009) DVDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2700AED505F926128A1466972005A2A2A603CA29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701921   (472726) от 20.09.2013
-
-Beat Club - Progressive Times - Vol 2. 1970 (2009) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Sabbath - Black Sabbath
-02. Rare Bird - Sympathy
-03. Blodwyn Pig - See My Way
-02. Canned Heat - Future Blues(   Читать дальше...   )Жанр: Музыка,  RockПродолжительность: 01:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA0B189738625619CEA2B2BED8140927CB903B35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547677   (471962) от 16.09.2012
-
-Jelena Karleusa feat. Nesh - SO (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3786F13CC68F6FCE303C8A7D757B385235A7017F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 386753   (469518) от 12.09.2011
-
-Калевала / Сон Река (2011) HDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность: 00:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ED534BE9D41677009E16AE4BEA23C8847F43ADD
 ```
 
 https://mybot314.ru/tekegram_catalog/

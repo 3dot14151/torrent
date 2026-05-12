@@ -1,3 +1,29 @@
+###  Публикация: 541550   (583895) от 12.05.2019
+
+VA - Guitar Mania Vol.01-23 (1999-2004) [MP3|320 кб/с]<Instrumental / Surf / Rock'n'Roll>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Instrumental / Surf / Rock'n'RollПродолжительность: 01:11:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D7E0489F073EF8D49C0135FA19EE363647C88EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 642595   (583894) от 12.05.2019
 
 VA - The Best Of LoungeLegends (7CD) (2013) [MP3|192-320 кб/с]<Instrumental>
@@ -733,35 +759,6 @@ The Exotic Guitars - Compilation (2022) [MP3|320 Kbps] <Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD053D060A6FF44493FA3D5F13860DD373C51FD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157541   (525158) от 12.08.2017
-
-VA - Ambient Area: Selected Downtempo Works (2017) [MP3|320 Kbps] <Downtempo, Ambient, Chillout>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525158.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Cantoma - Early Till Late  4:46
-002.  Chillelektro - Koos  6:06
-003.  Spinne - Daemmerung  4:59
-004.  Tequila Sunset - No One Cant Stand By You (feat. Dong)  3:57(   Читать дальше...   )Жанр: Downtempo, Ambient, ChilloutПродолжительность: 07:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3E9673D936EF0034C6598AE2501CE0D33A0CE53
 ```
 
 https://mybot314.ru/tekegram_catalog/

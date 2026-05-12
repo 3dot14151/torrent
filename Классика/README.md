@@ -1,4 +1,61 @@
 https://t.me/izofen
+###  Публикация: 1869042   (1067871) от 03.05.2026
+
+VA - The Best Classical Instrumental Music (2026) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Botticelli Trio - The Four Seasons, Op. 8, Concerto No. 2 in G Minor, RV 315 Summer III. Presto (Arr. for 2 Violins and Piano by Christina Grigoryants) (2:51)
+02. Maria Nemtsova - The Nutcracker Suite, Op. 71a II. Dance of the Sugar Plum Fairy (Arr. for Piano by Mikhail Pletnev) (2:07)
+03. Katya Kramer-Lapin - Piano Sonata No. 11 in A Major, K. 331-300i III. (   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8706CDD6AB732E4A5D1454028E2BED248D277A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867605   (1067698) от 02.05.2026
+
+Amici Forever - The Opera Band (2004) [FLAC|Lossless|image + .cue] <Classical, Pop>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067698.jpg" />
+</div>
+
+
+###  Подробнее
+
+1		Prayer In The Night 3:16
+2		Senza Catene (Unchained Melody) 3:47
+3		Canto Alla Vita 4:26
+4		Vita Mia	4:17(   Читать дальше...   )Жанр: Classical, PopПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F5D4E5930EDA84891A414494558DEB36D528275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1866460   (1066159) от 20.04.2026
 
 VA - The Best of Classical Piano (2026) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -689,64 +746,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8DB29C0AFBBE688C6408BE84756B6A00B0D6C12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446909   (1032263) от 11.02.2021
-
-VA - Winter Mood - Sweet Melancholic Piano Music for a Winter Snowy Day (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Classical Romance - Just Romance (04:28)
-02. Melancholic Piano - Piano Song (04:01)
-03. Lolita Drome - Song for Kissing (03:53)
-04. Levon Oran Wind - Winter Sleep (04:00)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37728AF0107821FBE50609EE8FE5C355C76DAB34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446927   (1032261) от 11.02.2021
-
-R.Strauss - Also sprach Zarathustra (2019) [FLAC|Lossless|image + .cue] <Classical orchestral>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Also Sprach Zarathustra, Op. 30, TrV 176
-01. 1. Einleitung (Sonnenaufgang) [0:01:50.18]
-02. 2. Von Den Hinterweltlern [0:03:43.09]
-03. 3. Von Der Großen Sehnsucht [0:02:08.70](   Читать дальше...   )Жанр: Classical orchestralПродолжительность: 01:25:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E90E3999452C924EC7435322885A2A5AA0767D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

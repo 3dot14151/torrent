@@ -1,3 +1,29 @@
+###  Публикация: 1221609   (693174) от 25.04.2018
+
+Текстуры - Texturemate - Asphalt 1 Free Texture Pack [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные текстуры.Формат: JPGРазрешение файлов: 3888 x 2592
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3054DE504116A1154A077302F118B0FF469602B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221616   (693084) от 25.04.2018
 
 Текстуры - Texturemate - Grunge 1 Free Texture Pack [JPG]
@@ -649,33 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FBA1377A80DAA3F1D1CEAB9A24280A16844987E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221874   (689179) от 27.04.2018
-
-Фоны - Creativetacos - Free 12 Motion Blur 8K Backgrounds [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные текстуры с эффектом размытия.
-Автор: CreativetacosФормат: JPGРазрешение файлов: 7680 x 4320
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6B456DF05C6A4B0CFBBC8FCBF53FEE482DF6758
 ```
 
 https://mybot314.ru/tekegram_catalog/

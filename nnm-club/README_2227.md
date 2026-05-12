@@ -1,23 +1,22 @@
-###  Публикация: 1480907   (1008735) от 30.06.2021
+###  Публикация: 381413   (1009353) от 25.06.2021
 
-Loopback 2.2.4 [En]
+Звездный путь: Дальний космос 9 / Star Trek: Deep Space Nine (1993-1999) DVDRip (сезон 1-7, серии 1-173 из 173) FUNTik, Yrich&Natasha
 
->>Архив торрентов
->>Архив 4Apple
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009353.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Синхронизация аудио между приложениями на вашем Mac.
-Создание виртуальных звуковых устройств, чтобы взять звук от приложений и аудио устройств ввода, а затем отправить его к аудио приложению обработки. Loopback дает вам силу студии микшерного пульта, прямо на вашем компьютере. Настройка виртуального звукового устройства из нескольких источников легко. Просто добавьте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.03.2021Разработчик: Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский, Немецкий, Французский и т.д.
+Действие сериала разворачивается в 2369—2375 годах на космической станции «Дальний Космос 9» , находящейся на орбите только что освобожденной от оккупации Кардассианской Империи планеты Бэйджор. Волею случая в непосредственной близости от станции обнаруживается пространственная аномалия — коридор, связывающий Бэйджор с Гамма-квадрантом галактики. Это открытие превращает (   Читать дальше...   )Производство: США / Paramount TelevisionЖанр: фантастика, боевик, драма, приключенияРежиссер: Дэвид Ливингстон, Лес Ландау, Уинрих КольбеАктеры: Эйвери Брукс, Рене Обержонуа, Сиррок Лофтон, Александр Сиддиг, Колм Мини, Нана Визитор, Армин Шимерман, Терри Фаррелл, Майкл Дорн, Рэнди ДжеймсПеревод: Одноголосый любительский (с 20 серии 6 сезона двуголосый) - FUNTik, Yrich&NatashaЯзык озвучки: Русский, английскийПродолжительность: ~00:45:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2DC1DA21B4577B6D2E87265BA4AB73AF114AC101
+magnet:?xt=urn:btih:9E452EF61D0C2E1AB407FA217757806A1493B138
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,27 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480532   (1008734) от 30.06.2021
+###  Публикация: 1328607   (1009352) от 25.06.2021
 
-Bootstrap Studio 5.7.1 [En]
+Триада (2019) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-16 из 16)
 
->>Архив торрентов
->>Архив 4Apple
+>>Отечественные сериалы
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009352.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Bootstrap Studio - это мощное настольное приложение для проектирования и создания прототипов сайтов.
-Оно поставляется с большим количеством встроенных компонентов, которые можно перетаскивать для создания адаптивных веб-страниц. Приложение построено на основе чрезвычайно популярной платформы Bootstrap и экспортирует чистый и семантический HTML.
-Bootstrap Studio обладает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.06.2021Разработчик: BootstrapstudioПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+Главный герой никак не может выбрать между любовницей и женой, с которой у них много лет не получается родить ребенка. Лучший друг советует ему переспать с танцовщицей в клубе и понять, перед какой из любящих женщин ему будет стыдно. Толя решает последовать совету… и через несколько недель все три женщины сообщают Толе, что у него будет ребенок... Ну то есть три (   Читать дальше...   )Производство: Россия / Comedy Club Production, KeyStone ProductionЖанр: комедия, мелодрамаРежиссер: Дмитрий ДьяченкоАктеры: Борис Дергачёв, Дарья Мороз, Любовь Аксёнова, Анастасия Калашникова, Александр Пташенчук, Инга Оболдина, Кирилл Полухин, Тимофей Трибунцев, Владислав Ветров, Елена Шевченко и др.Продолжительность: ~00:28:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6003A36ADB249D12DDB19F0B10793F1CDC97A2CB
+magnet:?xt=urn:btih:5B967783FD5A939BCC6AEAB6CBDE7585160DEDD7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,21 +50,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480872   (1008733) от 30.06.2021
+###  Публикация: 1414554   (1009351) от 25.06.2021
 
-Мэйбл Норманд. Происшествие со шкафом / Won in a Closet (Won in a Cupboard) (1914) WEBRip
+Основание: Осман / Kurulus: Osman (2020-2021) WEB-DLRip [H.264/1080p-LQ] (сезон 2, серии 1-37 (28-64) из 37) turok1990, AveTurk
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009351.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Деревенская любовь. Она мила, Он чертовски хорош, вокруг природа. И люди простодушны и искренни.Производство: США, Keystone Film CompanyЖанр: Комедия, короткометражный, немое киноРежиссер: Мак СеннетАктеры: Мэйбл Норманд, Чарльз Инсли, Чарльз Эйвери, Элис Девенпорт, Ник Когли, Фрэнк Кули, Уильям Хаубер, Хэнк Манн, Руб Миллер, Аль Ст. ДжонПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:13:15
+Сериал посвящен жизни Османа Бея - сына Эртугрула Гази и основателя Османской империи.Производство: Турция / Bozdağ Film, Tekden FilmЖанр: боевик, драма, приключения, военный, историяРежиссер: Метин Гюнай, Фетхи Байрам, Ахмет ЙильмазАктеры: Бурак Озчивит, Нуреттин Сёнмез, Рагып Саваш, Эркан Авчи, Дидем Балчин, Есим Джерен Бозоглу, Канболат Геркем Арслан, Сечкин Оздемир, Серай Кая, Озге Торер и др.Перевод: Одноголосый любительский (turok1990), двуголосый любительский (AveTurk)Язык озвучки: Русский, турецкийПродолжительность: ~02:22:00 серия
 
 ## Скачать торент
 ```bash
@@ -79,28 +76,398 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480815   (1008732) от 30.06.2021
+###  Публикация: 179674   (1009350) от 25.06.2021
 
-Ремигиуш Мруз | Дамиан Вернер (Книга 1). Безмолвная (2021) [MP3, Александр Аравушкин, Ксения Бржезовская]
+Во все тяжкие / Breaking Bad (2008) HDTVRip (сезон 1, серии 1-7 из 7) LostFilm
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Школьный учитель химии Уолтер Уайт узнаёт, что болен раком лёгких. Учитывая сложное финансовое состояние дел семьи, а также перспективы, Уолтер решает заняться изготовлением метамфетамина. Для этого он привлекает своего бывшего ученика Джесси Пинкмана, когда-то исключённого из школы при активном содействии Уайта. Пинкман сам занимался варкой мета, но накануне, в (   Читать дальше...   )Производство: США / High Bridge Productions, Gran Via Productions, American Movie Classics (AMC)Жанр: триллер, криминал, драмаРежиссер: Мишель МакЛарен, Адам Бернштейн, Винс ГиллиганАктеры: Брайан Крэнстон, Анна Ганн, Аарон Пол, Дин Норрис, Бетси Брандт, АрДжей Митти, Боб Оденкёрк, Джанкарло Эспозито, Джонатан Бэнкс, Стивен Майкл КесадаПеревод: Многоголосый профессиональный (LostFilm)Язык озвучки: РусскийПродолжительность: ~00:47:00 серия
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479969   (1009349) от 26.06.2021
+
+Thunda - Enlightened (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metalized Thunder
+02. Enlightened
+03. Savage Lover
+04. Midnight Warriors(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479979   (1009348) от 26.06.2021
+
+Ferdy Doernberg - Just A Piano A nd A Handful Of Dreams (1995) [FLAC|Lossless|image + .cue] <Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.88 Keys
+02.Over The Edge
+03.Just A Piano And A Handful Of Dreams
+04.Alone(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479976   (1009347) от 26.06.2021
+
+Endless Chain - Forthcoming Past (2021) [MP3|320 Kbps] <Hard & Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forthcoming Past
+02. They’re the Ones to Fall
+03. Hold Out Hope
+04. All of the Above(   Читать дальше...   )Жанр: Hard & Heavy MetalПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAF314759075DC9E0A8C45E501F257D144003EBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479967   (1009346) от 26.06.2021
+
+Midgar - Unity (2021) [MP3|320 Kbps] <Alt. Rock, Post-Hardcore, Modern Classical>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Prelude [00:01:15]
+02 - Ascension [00:03:11]
+03 - We Don’t Make The Rules [00:03:16]
+04 - Disciple [00:04:07](   Читать дальше...   )Жанр: Alt. Rock, Post-Hardcore, Modern ClassicalПродолжительность: 00:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C776DC83A41B50F36DEEAA739DA25C4E02A60539
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479965   (1009345) от 26.06.2021
+
+Light The Torch - You Will Be the Death of Me (2021) [MP3|320 Kbps] <Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - More Than Dreaming [00:03:09]
+02 - Let Me Fall Apart [00:03:27]
+03 - End of the World [00:03:17]
+04 - Wilting in the Light [00:03:48](   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC991042011B1B71D4BC5FD3CB89390F2DB392AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479961   (1009344) от 26.06.2021
+
+Amos Hoffman, Edwin G. Hamilton - Stories (2020) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz Funk, Groove, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009344.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Let's Have Fun - 03:30
+2. American Dream - 04:12
+3. Southern Hospitality(Feat. Mark Rapp) - 04:01
+4. Genuine Love - 04:17(   Читать дальше...   )Жанр: Fusion, Jazz Funk, Groove, SoulПродолжительность: 00:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB1A03D930F659F92167610407DFE56AAF298DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479951   (1009343) от 26.06.2021
+
+Lacuna Coil - Live From The Apocalypse (2021) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anima Nera (1:54)
+02. Sword of Anger (3:27)
+03. Save Me (4:28)
+04. Now Or Never (4:20)(   Читать дальше...   )Жанр: Gothic Metal, Alternative MetalПродолжительность: 01:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C814D94A68CE1F887A2C54122F78DEA4791B32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479954   (1009342) от 26.06.2021
+
+Иэн Келли, Вивьен Вествуд | Вивьен Вествуд (2015) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автобиография Вивьен Вествуд, записанная Иэном Келли и дополненная воспоминаниями родных и друзей королевы панка, – захватывающая история талантливой женщины с сильным характером, пробившей себе дорогу к славе. Она увлекалась роком, создала панк, над ней смеялись журналисты, её оскорбляли прохожие, когда она появлялась на улице в своих экстравагантных нарядах. Вивьен (   Читать дальше...   )Жанр: Дизайн, Зарубежная литература о культуре и искусствеПеревод: Татьяна ЗотинаФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B0D5C9D805ADB90C485B06912A61182EB36C86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479970   (1009341) от 26.06.2021
+
+Grateful Dead - Grateful Dead Skull And Roses (2021) 50th Anniversary Expanded Edition [MP3|320 Kbps] <Folk Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009341.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Good Lovin’ (Live at the Fillmore West, San Francisco, CA, July 2, 1971) (17:47)
+2. Sing Me Back Home (Live at the Fillmore West, San Francisco, CA, July 2, 1971) (10:16)
+3. Mama Tried (Live at the Fillmore West, San Francisco, CA, July 2, 1971) (03:08)
+4. Cryptical Envelopment (Live at the Fillmore West, San Francisco, CA, July 2, 1971) (02:25)(   Читать дальше...   )Жанр: Folk Rock, Psychedelic RockПродолжительность: 2CD, 02:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51768DF8338905166687417D4F8FCA35D8FD7D09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479947   (1009340) от 26.06.2021
+
+Lacuna Coil - Live From The Apocalypse (2021) [MP3|320 Kbps] <Gothic Metal, Alternative Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anima Nera (1:54)
+02. Sword of Anger (3:27)
+03. Save Me (4:28)
+04. Now Or Never (4:20)(   Читать дальше...   )Жанр: Gothic Metal, Alternative MetalПродолжительность: 01:03:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479991   (1009339) от 26.06.2021
+
+Frozen Crown - Winterbane (2021) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Embrace The Night
+02. Towards The Sun
+03. Far Beyond
+04. The Lone Stranger(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47CA9B374CD7BCA5F1A2310249EA22D84F3D4F04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479999   (1009338) от 26.06.2021
+
+Frozen Crown - The Fallen King (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fail No More (4:10)
+02. To Infinity (4:11)
+03. Kings (4:07)
+04. I Am The Tyrant (4:49)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67234ED13F97034CFCFFA2B6098012916B5EB375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479968   (1009337) от 26.06.2021
+
+Лев Николаевич Толстой | Воскресение. Аудиоспектакль (2013) [MP3]
 
 >>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009337.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первая книга цикла «Дамиан Вернер».
+Роман «Воскресение» – шедевр позднего творчества Льва Толстого. Шедевром является также предлагаемая вниманию слушателей постановка этого романа – спектакль великого режиссёра Немировича-Данченко.
 
-Национальный бестселлер Польши. Самый популярный писатель страны.
-Спустя десять лет после трагического исчезновения невесты Дамиан Вернер уверен, что больше никогда ее не увидит. Но вот однажды кто-то разместил на одном из интернет-порталов по поиску пропавших людей фото девушки, очень похожей на Еву. Что это – не более чем случайное (   Читать дальше...   )Жанр: Детектив, триллерПродолжительность: 11:13:01
+Любовь и порок, закон и справедливость, мучительная переоценка ценностей и долгий путь к нравственному очищению и духовному прозрению – все эти глубокие драматические (   Читать дальше...   )Жанр: Литература 19 века, Пьесы и драматургия, Русская классикаПродолжительность: 02:40:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7F509102925AC62E777E1052615FC36B6F2CA41
+magnet:?xt=urn:btih:834DAC53E06295473EC95D03B89DF1CAA98B0F3F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,24 +475,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480710   (1008731) от 30.06.2021
+###  Публикация: 1479905   (1009336) от 26.06.2021
 
-Motley Crue - Theatre of Pain (1985) 40th Anniversary remastered, 2021, Mötley Records [FLAC 2.0|96/24|tracks|WEB-DL] <Heavy-Metal, Glam-Metal>
+Platinum - Iceman (1990) [FLAC|Lossless|image + .cue] <Heavy Metal>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009336.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - City Boy Blues (40th Anniversary Remastered) [00:04:08]
-02 - Smokin' In The Boys Room (40th Anniversary Remastered) [00:03:27]
-03 - Louder Than Hell (40th Anniversary Remastered) [00:02:31]
-04 - Keep Your Eyes On The Money (40th Anniversary Remastered) [00:04:38](   Читать дальше...   )Жанр: Heavy-Metal, Glam-MetalПродолжительность: 00:35:43
+01. Iceman
+02. Blind Lead The Blind
+03. Freedom Fighters
+04. Still In Love With You(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:06:40
 
 ## Скачать торент
 ```bash
@@ -137,21 +504,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480876   (1008730) от 30.06.2021
+###  Публикация: 1479908   (1009335) от 26.06.2021
 
-Шкатулка раджи / L'ecrin du rajah (The Rajah's Casket) (1906) WEBRip
+Jaded Heart - Fight The System (2014) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
 
->>нет
->>нет
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009335.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Злой волшебник проникает во дворец Раджи, похищает шкатулку с драгоценностями и улетает с трофеями на драконе, успев «показать нос» Радже в огромном экране-окне. Раджа с визирем пускаются в погоню, находят злодея в его мрачной пещере, отважно (безусловно, надо видеть, с каким страшным врагом они вступили в схватку) отвоевывают свое добро, а заодно находят там красавицу-царевну. (   Читать дальше...   )Производство: Франция, ИталияЖанр: Короткометражный, сказка, восточная фантазия, немое киноРежиссер: Гастон ВельАктеры: НеизвестныПеревод: НемойСубтитры: ОтсутствуютПродолжительность: 00:08:14
+01. Schizophrenic
+02. Control
+03. Not In A Million Years
+04. I Lost My Faith(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE8565253AD693F07CBF51FB82376726BB4801CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480041   (1009334) от 26.06.2021
+
+White Ward - Debemur Morti (2021) EP [FLAC|Lossless|Web-DL|tracks] <Black Metal, Post Metal, Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Debemur Morti (9:07)
+02. Embers (8:02)Производство: Debemur Morti ProductionsЖанр: Black Metal, Post Metal, Atmospheric Black MetalПродолжительность: 00:17:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E48647E3D830467D80E92F225D7C43A9C493A270
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479910   (1009333) от 26.06.2021
+
+Jaded Heart - Common Destiny (2012) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. With You
+02. Saints Denied
+03. Into Tears
+04. Buried Alive(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 01::01:13
 
 ## Скачать торент
 ```bash
@@ -163,25 +589,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480730   (1008729) от 30.06.2021
+###  Публикация: 1480064   (1009332) от 26.06.2021
 
-Картинки - Смесь 1000шт фото и фотошоп №12 [JPG, PNG]
+Enslaved - Below the Lights (2021) [MP3|320 Kbps] <Progressive Black Metal>
 
->>Графика, Арт, Разное
->>Картинки
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009332.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка по теме разное.Формат: JPG, PNGРазрешение файлов: 1279x1920-9845x3455
+01 - As Fire Swept Clean the Earth (Cinematic Tour 2020) [00:06:38]
+02 - The Dead Stare (Cinematic Tour 2020) [00:05:41]
+03 - The Crossing (Cinematic Tour 2020) [00:09:37]
+04 - Queen of Night (Cinematic Tour 2020) [00:06:11](   Читать дальше...   )Жанр: Progressive Black MetalПродолжительность: 00:48:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:610C798D92BE485CF3F67D5D228C2336833C6512
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -189,80 +618,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480731   (1008728) от 30.06.2021
+###  Публикация: 1480057   (1009331) от 26.06.2021
 
-Картинки - Смесь 1000шт фото и фотошоп №13 [JPG, PNG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008728.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка по теме разное.Формат: JPG, PNGРазрешение файлов: 1272x1920-14400x3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:351AD45DE062A798802B4C35799692C393313A99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480783   (1008727) от 30.06.2021
-
-Битва дизайнеров (20.06.2021) WEB-DL [H.264/1080p-LQ] (сезон 2, выпуск 20)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дизайнеры со всей страны соберутся, чтобы выяснить, кто из них лучший! У каждого будет комната площадью 5 квадратных метров, двое рабочих, бюджет 70 тысяч рублей и 8 часов, чтобы реализовать свой проект. Тех дизайнеров, которые пройдут проверку, будет ждать второе задание – ремонт в настоящей квартире. Кто из дизайнеров лучше других справится с задачей? Кому доверят (   Читать дальше...   )Телекомпания: ИП «Кочуков Станислав Андреевич» по заказу АО «ТНТ-Телесеть»Жанр: Реалити-шоуСубтитры: ОтсутствуютПродолжительность: 00:20:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE62B06E9CDA6F30F37D1364127F59CF7ACB9E00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480718   (1008726) от 30.06.2021
-
-Motley Crue - Girls, Girls, Girls (1987) 40th Anniversary remastered, 2021, Mötley Records [FLAC 2.0|96/24|tracks|WEB-DL] <Glam Metal, Heavy Metal>
+Modest Mouse - The Golden Casket (2021) [MP3|320 Kbps] <Indie Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009331.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wild Side (40th Anniversary Remastered) [00:04:41]
-02. Girls, Girls, Girls (40th Anniversary Remastered) [00:04:30]
-03. Dancing On Glass (40th Anniversary Remastered) [00:04:18]
-04. Bad Boy Boogie (40th Anniversary Remastered) [00:03:27](   Читать дальше...   )Жанр: Glam Metal, Heavy MetalПродолжительность: 00:39:53
+01 - Fuck Your Acid Trip [00:03:11]
+02 - We Are Between [00:03:52]
+03 - We're Lucky [00:02:44]
+04 - Walking And Running [00:03:01](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:50:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFB2A9064ED1EB3184AA144729975C967D47C4AD
+magnet:?xt=urn:btih:DC3446CDAF7BBDCBEAF97FC6E17DB3CB3CFBD2CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -270,25 +647,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480726   (1008725) от 30.06.2021
+###  Публикация: 1480052   (1009330) от 26.06.2021
 
-Картинки - Смесь 1000шт фото и фотошоп №10 [JPG]
+Subset - Lacidus (2021) [FLAC|Lossless|Web-DL|tracks] <Techno, Dub Techno>
 
->>Графика, Арт, Разное
->>Картинки
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009330.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В хорошем качестве подборка по теме разное.Формат: JPGРазрешение файлов: 1280x720-14418x3572
+01. LacidusПроизводство: Superordinate Dub Waves – SUPDUB299Жанр: Techno, Dub TechnoПродолжительность: 00:28:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15AF6493C92080E1C2A2A2FFF9066E47198746FC
+magnet:?xt=urn:btih:0226BFB8CC8E3EB4F9A40A13CB9011FC19974408
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -296,83 +673,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480745   (1008724) от 30.06.2021
+###  Публикация: 1480072   (1009329) от 26.06.2021
 
-Роман в камне. Архитектурные шедевры мира (2010) SATRip (выпуски 1-4 )
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интересные Истории о создании Архитектурных шедевров мираПроизводство: Россия, ТК "Культура"Жанр: Документальный, история, архитектура, искусствоРежиссер: Марина ИсаеваЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: серии x ~23-30 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5E31A7709F870432A73315687634294F9EA81E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480823   (1008723) от 30.06.2021
-
-Johnny Whitehorse - Totemic Flute Chants (2007) [FLAC|Lossless|tracks + .cue] <Native American>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cougar
-02. Coyote
-03. Thunderbird
-04. Emergence(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5662C4094E11109649CBC1F08F792D9828192B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480790   (1008722) от 30.06.2021
-
-AmuZeum - New Beginnings (2020) [FLAC|Lossless|image + .cue] <Sympho Prog>
+Спикер - Медленный День (2021) EP [FLAC|Lossless|tracks + .cue] <Atmospheric Black Metal, Post Black Metal, Depressive Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009329.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Challenge (11:22)
-02. Changing Seasons (9:01)
-03. Birthright (4:16)
-04. Naysayer (6:35)(   Читать дальше...   )Жанр: Sympho ProgПродолжительность: 00:50:20
+01. Суицидница (2:01)
+02. Ангел Ночи (3:23)
+03. Любовь - Тяжёлый Наркотик (8:17)
+04. Медленный День (4:16)(   Читать дальше...   )Производство: Not On Label (Спикер Self-released) – spkr-01Жанр: Atmospheric Black Metal, Post Black Metal, Depressive Rock, ShoegazeПродолжительность: 00:19:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0EE518C7BC8F3FA22FAF5309A30F1032EA6AAA6
+magnet:?xt=urn:btih:280CD79A1D5745DD84B7D7CBF9EAE8058DD3D52E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -380,320 +702,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480878   (1008721) от 30.06.2021
+###  Публикация: 1479688   (1009328) от 26.06.2021
 
-Елена Серебренникова | Популярная научно-практическая энциклопедия современных знаний. Древний мир. На заре человечества (2015) [PDF]
+SkyEye - Soldiers Of Light (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009328.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта книга о каменном веке, самом длинном периоде развития человечества, который охватывает почти 2 миллиона лет. Вы узнаете о том, какими были предки современных людей, как они добывали огонь и приручали диких животных, создавали наскальные рисунки и хранили краски, сможете побывать в жилище древнего человека и поохотиться на мамонтов. Книга поможет школьникам в (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
+01. The Arrival
+02. King Of The Skies
+03. Soldiers Of Light
+04. Constellation(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:340596D511B9E84F71C23E447397B7217F0CE9DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480729   (1008720) от 30.06.2021
-
-Картинки - Смесь 1000шт фото и фотошоп №11 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008720.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка по теме разное.Формат: JPGРазрешение файлов: 1272x1920-9374x6208
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C5401EA1A4B5898CF4FEAFDD01FE4368ECC1B65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480733   (1008719) от 30.06.2021
-
-Картинки - Смесь 1000шт фото и фотошоп №15 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008719.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка по теме разное.Формат: JPGРазрешение файлов: 1280x720-14184x4182
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E34D4A036994084B2BE36995BF66B1F2EDE216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480699   (1008718) от 30.06.2021
-
-Johnny Warman - Walking Into Mirrors (серия "Другие восьмидесятые") (1981) CD, Album, Enhanced, Reissue, Remastered, 2002, Angel Air Records [MP3|320 Kbps] <Space Pop Rock, Synthpop, N ...
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walking Into Mirrors
-02. Radio Active
-03. Searchlights
-04. Martian Summer(   Читать дальше...   )Жанр: Space Pop Rock, Synthpop, New Wave, Avant-Pop, RockПродолжительность: 01:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16EB0A242B3C8C4E8165E3AA38C398A612B1702A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480784   (1008717) от 30.06.2021
-
-Битва дизайнеров (27.06.2021) WEB-DL [H.264/1080p-LQ] (сезон 2, выпуск 21)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дизайнеры со всей страны соберутся, чтобы выяснить, кто из них лучший! У каждого будет комната площадью 5 квадратных метров, двое рабочих, бюджет 70 тысяч рублей и 8 часов, чтобы реализовать свой проект. Тех дизайнеров, которые пройдут проверку, будет ждать второе задание – ремонт в настоящей квартире. Кто из дизайнеров лучше других справится с задачей? Кому доверят (   Читать дальше...   )Телекомпания: ИП «Кочуков Станислав Андреевич» по заказу АО «ТНТ-Телесеть»Жанр: Реалити-шоуСубтитры: ОтсутствуютПродолжительность: 00:22:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6739ACA980897556745E8741CF01543CF85CF319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480811   (1008716) от 30.06.2021
-
-Пока, пташка / Bye Bye Birdie (1963) BDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рок-исполнитель и кумир молодежи Конрад Берди отправляется в небольшой городок в штате Огайо, чтобы дать прощальный концерт и поцеловать свою поклонницу Ким Маккафи, прежде чем отправиться в армию. Это событие должно быть показано в шоу Эда Салливана. У неудачливого композитора Альберта Питерсона появляется последний шанс прославиться. Но на пути внезапно возникает (   Читать дальше...   )Производство: США, Kohlmar-Sidney ProductionsЖанр: Mюзикл, комедияРежиссер: Джордж СидниАктеры: Джанет Ли, Дик Ван Дайк, Энн-Маргрет, Морин Стейплтон, Бобби Райделл, Джесс Пирсон, Пол Линде, Мэри Ларош, Майкл Эванс, Роберт ПейджПеревод: Одноголосый любительский (Grampy)Субтитры: отсутствуютПродолжительность: 01:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F0F0D62E2AB376A210571326B1B6B6CB51242D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480732   (1008715) от 30.06.2021
-
-Картинки - Смесь 1000шт фото и фотошоп №14 [JPG, PNG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008715.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка по теме разное.Формат: JPG, PNGРазрешение файлов: 1272x1920-18453x4644
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B95570B22B54EDA964F3B42ADD674BB52C42C025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480734   (1008714) от 30.06.2021
-
-Картинки - Смесь 1000шт фото и фотошоп №16 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008714.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка по теме разное.Формат: JPGРазрешение файлов: 1280x736-13442x4395
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48059A54C354A996DE9C491D5F86D31238EFCC91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480735   (1008713) от 30.06.2021
-
-Картинки - Смесь 1000шт фото и фотошоп №17 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008713.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка по теме разное.Формат: JPGРазрешение файлов: 1280x719-13734x2873
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D0E14E77729DC4759DCA94CF2B9179159A9DEE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480767   (1008712) от 30.06.2021
-
-VA - Acoustic Guitar Hits 2021 [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JP Cooper - September Song - Guitar Acoustic (3:32)
-02. Filip Rudan - Blind (2:59)
-03. Lewis Capaldi - Before You Go - Guitar Acoustic (3:38)
-04. Vinko Ćemeraš & Talvi Tuuli - A Quiet Storm For Her (3:35)(   Читать дальше...   )Жанр: Easy Listening, LoungeПродолжительность: 02:28:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B829179034E3EF78612BBD7DF7544E2F665E5DA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480785   (1008711) от 30.06.2021
-
-Hataraku Saibou!! | Клетки за работой! [ТВ-2] [2021, TV, 8 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008711.jpg" />
-</div>
-
-
-###  Подробнее
-
-День за днём мы живём с вами, совершенно не задумываясь о процессах, происходящих внутри нашего организма. Всё происходит словно само собой, наши лёгкие 24 часа в сутки осуществляют газообмен, а сердце неутомимо перекачивает кровь по всему телу. И даже когда наш разум засыпает, тело наше продолжает неустанно трудиться, чтобы на следующее утро мы смогли вновь открыть (   Читать дальше...   )Производство: студия David Production / デイヴィッドプロダクションЖанр: приключения, комедияРежиссер: Огура ХирофумиПеревод: Wakanim (дехардсаб, оформление - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 8 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8289DA359D1F31A83AC1DA3F824B930CB2467DA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480598   (1008710) от 30.06.2021
-
-David Arkenstone - Celtic Chillout Beats (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call Of The Celts (4:13)
-02. Navarre's Return (4:07)
-03. They Danced All Night (4:02)
-04. Siren Of The Sea (4:03)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F54F7BB87271A073BA05E4CABC255A657005990
+magnet:?xt=urn:btih:79AE6B93A750AFA4B9FB8D7FE148E3F57067A16E
 ```
 
 https://mybot314.ru/tekegram_catalog/

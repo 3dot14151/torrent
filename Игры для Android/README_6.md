@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_772915.jpg" />
 </div>
 
 

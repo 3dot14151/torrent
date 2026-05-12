@@ -1,3 +1,119 @@
+###  Публикация: 1232599   (598375) от 25.06.2018
+
+Mark Pinkus - Deep Diving (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swedish Skies
+02. The Day of Absurdity
+03. The Endless Apartment Search Waltz
+04. Reminisce(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF962DB175B1ABAF4258843BF0DF398E5863422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039243   (598045) от 31.07.2016
+
+Craig Padilla - Heaven Condensed (2016) [MP3|320 Kbps] <Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stonington Moon 09:24
+ 02. Heaven Condensed 28:46
+ 03. Across the Light 07:18
+ 04. Heavenly Sails 28:31Жанр: Ambient, New AgeПродолжительность: 01:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CF2073A8958CA56B9CC95AAFABD00381BDEA3C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038958   (597487) от 31.07.2016
+
+Levin Minnemann Rudess - From the Law Offices Of (2016) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Instrumental, Jazz-Rock>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back to the Machine [00:04:18]
+02. Ready, Set, Sue [00:03:31]
+03. Riff Splat [00:05:34]
+04. What is the Meaning? [00:04:21](   Читать дальше...   )Жанр: Progressive Rock, Instrumental, Jazz-RockПродолжительность: o1:09:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02E4CDEBC6A01F69440238CA4E19AAE6100EE935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039268   (597373) от 31.07.2016
+
+Ewan Dobson - 2 Альбома (2008, 2010) [FLAC|Lossless|tracks + .cue] <Acoustic, Bluegrass>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Know Your Pain    03:59
+02. Level 5    05:19
+03. Orange    04:04
+04. Dancing with Her    03:14(   Читать дальше...   )Жанр: Acoustic, BluegrassПродолжительность: 02:23:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8324EBC58AC27B0CD74D78C967F7B0D8A696108
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 526195   (597056) от 24.07.2012
 
 Fausto Papetti - Collections (2009) [FLAC|Lossless|image + .cue] <Instrumental>
@@ -650,122 +766,6 @@ Spiritu (986) - Spiritu (986) (2000) Legacy Recordings, 2021 Remastered [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C21F90E561167B0B278C29E8637C1B4C3CFF80A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550837   (591192) от 13.05.2022
-
-Giovanni Marradi - Feelings (1997) [FLAC|Lossless|image + .cue] <Piano, Instrumental, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For All We Know (4:40)
-02. Annie's Song (2:43)
-03. Mozart's Piano Concerto No. 21 (3:21)
-04. Come Back To Sorrento (3:22)(   Читать дальше...   )Жанр: Piano, Instrumental, New AgeПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01CA82855CCEA686B2F3AD485C7253D1A7447C72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915680   (589960) от 10.07.2015
-
-TYA - Echoes (2015) [MP3|320 кб/с]<New Age, Chillout, World, Tribal>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Open Road (07:45)
-02. Whispering Wind (05:57)
-03. The Love We Share (05:24)
-04. Blossom of Bliss (05:47)(   Читать дальше...   )Жанр: New Age, Chillout, World, TribalПродолжительность: 01:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:204AB4D6C2B1A9F5BBA9D0B6D8DE18E7CA229246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915526   (589947) от 10.07.2015
-
-Indios de America - Indios de America (2004) [MP3|160 кб/с]<Native american, Ethnic, Folk, New Age>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing moon
-02. Ananas
-03. Indios de America
-04. Yeha - noha(   Читать дальше...   )Жанр: Native american, Ethnic, Folk, New AgeПродолжительность: 00:58:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54E1862D0924C48D0D40C7A2D151202AE96613DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917180   (589532) от 11.07.2015
-
-Valentina Babor - Piano Princess (2015) [MP3|320 кб/с]<Instrumental, Classical, Pop, Piano Solo>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Children (04:21)
-02. Nobody Does It Better (03:27)
-03. I Believe I Can Fly (04:16)
-04. When The Rain Begins To Fall (03:49)(   Читать дальше...   )Жанр: Instrumental, Classical, Pop, Piano SoloПродолжительность: 00:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA2A43700A4B46CB02A06A1B7BFA1E30DDA65097
 ```
 
 https://mybot314.ru/tekegram_catalog/

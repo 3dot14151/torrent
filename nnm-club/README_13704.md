@@ -1,25 +1,31 @@
-###  Публикация: 1318072   (497742) от 04.08.2019
+###  Публикация: 539504   (499608) от 02.09.2012
 
-V.A. - Cafe Del Mar XXV (Volumen Veinticinco) (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Easy Listening>
+TrollfesT - Brumlebassen (2012) [MP3|320 кб/с]<Folk Metal>
 
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499608.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chicane - No Ordinary Morning (Thomas Datt Ambient Mix)
-02. Zero 7 - Likufanele (Original Mix)
-03. Trio Mocoto - Nao Adianta (Original Mix)
-04. Honey Dijon & Tim K feat. Nomi Ruiz - Why (Original Mix)(   Читать дальше...   )Жанр: Lounge, Chill Out, Easy ListeningПродолжительность: 02:16:49
+01. Brumlebassen (05:38)
+02. Böse Tivoli (04:07)
+03. Illsint (03:06)
+04: Hevlette (01:48)
+05. Finsken, Norsken And Presten (04:31)
+06. Mystisk Maskert (01:45)
+07. Apis Mellifera (04:33)
+08. TrinkenTroll (03:09)
+09. Verboten Kjærleik (04:04)
+10. Bråk (04:12)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:48:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56AF21B267E18383FDE5B84B2E612133AE5E4896
+magnet:?xt=urn:btih:B5A459FEF7770C1E1C596DD77F3990B49E1CD6DA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,106 +33,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317971   (497741) от 04.08.2019
+###  Публикация: 542323   (499607) от 02.09.2012
 
-Джон Максвелл Кутзее | Толстой, Беккет, Флобер и другие. 23 очерка о мировой литературе (2019) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон Максвелл Кутзее – первый писатель, который дважды был награжден Букеровской премией – в 1983 году за роман «Жизнь и время Михаэла К.» и в 1999 году за роман «Бесчестье». В 2003 году он удостоился Нобелевской премии по литературе. «Описывая слабости и недостатки людей, писатель обнаруживает божественную искру в человеческом существе», – говорилось в заявлении (   Читать дальше...   )Жанр: Критика, Литературоведение, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2524811E3DCF262A32E5B723213A3D132C04D066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318155   (497740) от 04.08.2019
-
-Роберт Бейли | Бульдожья хватка (2019) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессор Томас Макмертри когда-то бросил адвокатскую практику ради громкой преподавательской карьеры. Теперь он – живая легенда. Однако на старости лет «легенда» переживает не лучшие времена. Скандальное видео поставило его на грань позорного выдворения из университета, а врачи обнаружили рак. И когда его просит о помощи подруга, профессор лишь разводит руками. (   Читать дальше...   )Жанр: ДетективыПеревод: Михаил Александрович ЗаготФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C8242E22DC4A3E19B917E51C2E33BF82FA2E42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318055   (497739) от 04.08.2019
-
-А.В. Могилев, Л.В. Листрова | Методы программирования. Компьютерные вычисления (2008) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга является частью комплекта учебников по курсу информатики и информационно-коммуникационных технологий (ИКТ) в старших классах общеобразовательной школы на профильном уровне. Она охватывает 5-й и 6-й из 10-ти модулей курса и является продолжением пособий "Информация и информационные процессы. Социальная информатика", "Средства информатизации. Телекоммуникационные (   Читать дальше...   )Жанр: ИнформатикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B591391444D753EB0A442AA0833FD62B3D8C27B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564761   (497738) от 21.07.2022
-
-Molder - Engrossed In Decay (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Thrash Metal>
+Lunar Aurora - Hoagascht (2012) [WavPack|Lossless]<Atmospheric Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499607.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Glutinous Remains
-02. Engrossed In Decay
-03. Relentless Pestilence
-04. Chemically Dissolved(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:43:53
+01. Im Gartn (6:59)
+02. Nachteule (6:53)
+03. Sterna (6:30)
+04. Beagliachda (5:42)
+05. Håbergoaß (5:14)
+06. Wedaleichtn (6:13)
+07. Geisterwoid (6:06)
+08. Reng (7:32)Жанр: Atmospheric Black MetalПродолжительность: 00:51:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2169CCE7ACE2B92DF7A709F235C9E9564480382
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,134 +66,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564985   (497737) от 21.07.2022
+###  Публикация: 540954   (499606) от 02.09.2012
 
-Invisible 2.5.7.1 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Invisible - надежная и ориентированная на пользователя утилита, которая позволяет защитить паролем ваши данные и скрыть свои личные данные с помощью нескольких щелчков мыши
-Invisible является простым в использовании и очень интуитивным инструментом, который предоставляет своим пользователям самый простой способ, чтобы скрыть и защитить свои личные данные от посторонних (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.07.2022Разработчик: © 2021 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:506666EE91A220570254257339FF0FD6356949EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564872   (497736) от 21.07.2022
-
-Max Roach with The New Orchestra of Boston and The So What Brass Quintet (1993, 1995) 1996, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Third Stream>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Festival Journey [50:51]
-02. Ghost Dance [12:13]Жанр: Hard Bop, Post-Bop, Third StreamПродолжительность: 01:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:149A4E8CFE2EE00EEC60E8A648254A69C9A95653
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564899   (497735) от 21.07.2022
-
-WebToLayers 1.3.2 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497735.jpg" />
-</div>
-
-
-###  Подробнее
-
-WebToLayers преобразует веб-сайты в документы Photoshop. Другими словами, приложение позволяет создавать скриншоты веб-страниц, сохраняя каждый элемент в отдельном слое. Приложение сэкономит вам много времени при перепроектировании или улучшении существующих веб-страниц.Тип издания: macOS SoftwareРелиз состоялся: 20.07.2022Разработчик: © 2012-2021 Jérémy VizziniПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28DB77FC4D6BF24692B738327BAFE75E0EDADBC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564874   (497734) от 21.07.2022
-
-Glass Tides - Wake Me Up (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wake Me Up
-02. Paranoia
-03. Enough (feat. Will King)
-04. Without You(   Читать дальше...   )Жанр: Alternative Rock, Post-HardcoreПродолжительность: 00:28:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53584BBC2653DA15C8AC349786D2F7CAA2834555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565008   (497733) от 21.07.2022
-
-WiFiSpoof 3.8.4.1 [Multi]
+Butterfly - Trance Life Radio Podcast 002 (August 2012) (Guest Stan Sanych) (28.08.2012) [MP3|320 кб/с]<Progressive House, Progressive Trance, Vocal Trance>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499606.jpg" />
 </div>
 
 
 ###  Подробнее
 
-WiFiSpoof - небольшая утилита, которая поможет вам легко сменить WiFi Mac-адрес с помощью горячих клавиш или из строки меню. MAC-адрес можно поменять на любой случайный (сгенерированный приложением) или непосредственно заданный вами.Тип издания: macOS SoftwareРелиз состоялся: 21.07.2022Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
+Pre-party Live Mix:
+01. Glenn Morrison -  Triangle & Strings (Tom Middleton Remix)
+02. Aleksey Beloozerov -  For Those Who Sleeps (The Fusion Remix)
+03. Davor Bojanov -  Abstract (Original Mix)
+04. Rank 1 -  Opus 17 (Nuera 2012 Remix)
+05. EDX feat. Hadley -  Everything (Dub Mix)
+06. Kastis Torrau & Arnas D -  Atlantic (Original Mix)
+07. Gregory Esayan & Shinobi -  Astro Ibiza (Original Mix)
+08. Internos feat. Tiff Lacey -  Hidden Sorcery (Matrick Remix)
+09. Glenn Morrison -  Transparent Road (Original Mix)Жанр: Progressive House, Progressive Trance, Vocal TranceПродолжительность: 03:56:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E3C6DDA1CF2929294BA568279635196793B951F
+magnet:?xt=urn:btih:54106EAB4BEDB4B4FB63730BD29E45151EEE68AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -269,25 +101,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564894   (497732) от 21.07.2022
+###  Публикация: 542003   (499605) от 02.09.2012
 
-Debookee v8.1.4 [En]
+Журнал | Кулинарный практикум №7 [июль 2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практичный журнал для современных хозяек, который служит надежным источником полезной и практичной информации о продуктах питания и способах приготовления вкусной и здоровой пищи. Он знакомит читателя с новинками бытовой техники и продуктов питания; раскрывает секреты здорового питания и рецепты от звезд кино, телевидения и шоу-бизнеса. Множество разнотиповых подробных рецептов с красочными фотографиями, указанием калорийности, количества персон, затрат времени на приготовление.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4665B5FCAFA43D7EB5A61E60B53170CDB0A5058
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542211   (499602) от 02.09.2012
+
+Журнал | Загадки истории №7 [2012] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17C5A6FB38F2B0FC10452568499222453CAD7518
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542295   (499601) от 02.09.2012
+
+VA - Top 50 Club Hits September (2012) [MP3|320 кб/с]<Dance, Club>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499601.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Debookee - анализатор сетевого трафика, с возможностью определить, с какого устройства был выход в сеть через вашу точку доступа. Вы сможете проверить трафик, исходящий с любого устройства: iPhone, iPad, Android, BlackBerry, PC, Mac и т.п. Модуль сетевого анализа (NA) осуществляет мониторинг сети и в настоящее время поддерживает HTTP, HTTPS (отдельный модуль), DNS, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.07.2022Разработчик: © 2022 iwaxx LtdПоддерживаемая ОС: macOS 10.14 или вышеЯзык интерфейса: Английский
+01. Vivo feat. Orel - Bitchy Girl (Extended Edit)
+02. DJ MaGnUm & DJ Lion feat. K-Flow - Party People (Radio Edit)
+03. Christopher S & Slin Project feat. Tommy Clint - Tear Down The Club (Extended Mix)
+04. Jeronimo - One Kiss (CJ Stone & ReFuge Radio)
+05. DJ Yankovski & InVersia - Football (Spain Version)
+06. D. O. N. S. & Mikael Weeremts feat. Kadoc - The Nighttrain 2k12 (Jidax Remix)
+07. Dutch Agency feat. Antoine Delvig & Yulya - I Wanna Kiss You (Radio Edit)
+08. Dave202 vs. Cerf Mitiska Jaren - Arrival vs. Beggin You (Armin Van Buuren Mashup)
+09. Gary Caos - Specialize In Love (Radio Edit)
+10. Digital LAB & Pedro Henriques ft Polina - Spirit in My Life (Original Mix)Жанр: Dance, ClubПродолжительность: 04:48:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E9556A78C2B7D88F23C0A0EF7FC9F5BEEFDAA47
+magnet:?xt=urn:btih:035ACA2FF442527907ABD206C2697CF7D78A6D8E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -295,25 +188,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564879   (497731) от 21.07.2022
+###  Публикация: 1564627   (499600) от 19.07.2022
 
-Тэа Тауэнтцин | Любовь моя последняя (2010) [MP3, Николай Савицкий]
+Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life Suru Koto ni Shimashita | Меня выгнали из гильдии героев [2021, TV, 13 эп.] BDRip 1080p raw
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Аниме с субтитрами
+>>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499600.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Некий Гвидо Ахенваль убит ночью в собственной квартире. А как раз накануне имела место публичная семейная ссора с участием его жены Этты. Комиссар Фрайтаг начинает расследование.Жанр: Полицейские детективыПродолжительность: 03:06:54
+Доблестный и могучий авантюрист мечтает... открыть аптеку? В прошлом Ред был членом отряда героя, сильнейшей группы, призванной спасти мир от злых сил Тараксона. Но в один момент всё поменялось, когда один из товарищей Реда решил выгнать его из отряда. После произошедшего Ред задумывается над открытием собственной аптеки и о спокойной жизни в глуши. Однако сохранить (   Читать дальше...   )Жанр: приключения, фэнтези, романтикаРежиссер: Хосино МакотоПеревод: Wakanim (оформление - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:37AD9FDF24960702982B00975B7A90DBCA6B342C
+magnet:?xt=urn:btih:8C2838DAC988AA1C624DC18F196C2656AFFE7F0B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -321,170 +214,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564824   (497730) от 21.07.2022
+###  Публикация: 1564648   (499599) от 19.07.2022
 
-Blackslash - No Steel No Future (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen Of The Night
-02. Mignight Fire
-03. The Power
-04. Under The Spell(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:485254EB58EA661399253050633C71E9F7FEF866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564898   (497729) от 21.07.2022
-
-Postico 1.5.21 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой, но мощный менеджер PostgreSQL баз данных для Mac
-Цель - сделать работу с базами данных PostgreSQL немного проще с помощью коллекции интуитивно понятных инструментов в удобном интерфейсе. PostgreSQL является одним из самых мощных и комплексных систем управления базами данных, поэтому работать с ним не так просто, как может показаться.
-Postico - рациональный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.07.2022Разработчик: © 2021 Jakob EggerПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14E92A105051D19263AC6209D87E56A51380C3FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564878   (497728) от 21.07.2022
-
-Threar - You Live With What You Create (2022) [MP3|320 Kbps] <Melodic Hardcore, Post-hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uncreated Light(Explicit) [00:04:55]
-02. In Place Of Silence [00:07:00]
-03. Room Of One's Own [00:04:40]
-04. Bury Me In Ash [00:05:41](   Читать дальше...   )Жанр: Melodic Hardcore, Post-hardcoreПродолжительность: 00:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:082605B6189C61B5F392B3CE355721A1A0FAF5E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564896   (497727) от 21.07.2022
-
-October Burns Black - Two Worlds Collide (2022) [MP3|320 Kbps] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Divide and Conquer [00:03:05]
-02 - Black Veil [00:04:19]
-03 - Tightrope [00:04:52]
-04 - Regress [00:03:34](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B16D25D2F13698EE66607C97860C53CFC2E9F5B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564994   (497726) от 21.07.2022
-
-Oceans of Slumber - Starlight and Ash (2022) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Waters Rising (4:22)
-02. Hearts of Stone (3:56)
-03. The Lighthouse (3:34)
-04. Red Forest Roads (4:08)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C0F2D8C792CD45C3BFE97AFEA5F7D0E361A43B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564951   (497725) от 21.07.2022
-
-Java SE Development Kit 17.0.4 LTS [En]
+MusicBrainz Picard 2.8.2 + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499599.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Java SE Development Kit - программное обеспечение необходимое для запуска веб-сайтов и приложений, созданных с помощью языка программирования Java, на котором написано множество программ и игр, особенно тех, для которых важна мобильность. Состоит из виртуальной машины и библиотеки Java-классов.
-Позволяет играть в сетевые игры, общаться с людьми по всему миру, подсчитывать (   Читать дальше...   )Язык интерфейса: Английский
+MusicBrainz Picard - простая в использовании программа для редактирования тегов аудио файлов, которая поддерживает большое количество разнообразных форматов, включая MP3, Ogg Vorbis, FLAC, MP4 (AAC), Musepack, WavPack, Speex и пр.
+Приложение анализирует музыкальный трэк и ищет его в онлайн базе MusicBrainz, если совпадение найдено, то программа скачивает всю информацию (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D3C10D6ADFC6D5352CC8C586910346AF33E3D8B
+magnet:?xt=urn:btih:22C2A61D9E42A8FC93C5B87D63FE8BC7AC8027AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -492,28 +241,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564996   (497724) от 21.07.2022
+###  Публикация: 1564625   (499598) от 19.07.2022
 
-Highway Sentinels - The Waiting Fire (2022) [MP3|320 Kbps] <Hard Rock>
+Джеральд Даррелл | Переход (2020) [MP3, Puffin Cafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды к известному букинисту Питеру Леттингу обращается молодой человек с просьбой провести каталогизацию своей домашней библиотеки. Вскоре Питер и Гидеон (так зовут молодого человека) становятся довольно близкими друзьями. Но у Гидеона есть семейная тайна, в которой фигурируют его старый дядюшка и... зеркала. Зеркала, развешанные в большом доме дядюшки, скрывают (   Читать дальше...   )Жанр: МистикаПродолжительность: 02:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43640A133C95335E9E6D2646091E7FC5EC370B6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564543   (499597) от 19.07.2022
+
+Break Me Down - 1 Album, 3 Singles (2019-2022) [MP3|320 Kbps] <Alternative Metal, Female Vocal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499597.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I'm A Loser (3:28)
-02. Face In The Crowd (4:02)
-03. Afterlife (4:55)
-04. Love And Hate (4:33)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:20
+01. See Me Fall (Single) [00:04:01]Жанр: Alternative Metal, Female VocalПродолжительность: 00:51:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6960D33F7CCF53D2F75BC6E9F0149931F10A9564
+magnet:?xt=urn:btih:81EE41220A44014EBC54953C7EC8C66F4B33A890
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -521,25 +293,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565018   (497723) от 21.07.2022
+###  Публикация: 1564553   (499596) от 19.07.2022
 
-SSH Config Editor Pro 2.5 [En]
+Джеймс Блиш | Закон Чарли (2021) [MP3, Максим Тарлавин (Scaners)]
 
->>Программы для macOS
->>Утилиты для macOS
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499596.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Удобный инструмент для управления файлами конфигурации SSH клиента OpenSSH. Вы можете добавить или изменить идентичность файлов, порт экспедирования (с графическим предварительным просмотром), а также любой другой вариант SSH конфигурации.Тип издания: macOS SoftwareРелиз состоялся: 21.07.2022Разработчик: © 2016-2022 HejkiПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+На планете Фэзас разбился исследовательский корабль, и пережил катастрофу только Чарли Эванс. Четырнадцать лет он провёл на этой планете, единственный человек среди фэзиан. Когда за ним прилетели земляне и забрали с собой, они не сразу поняли, что в Чарли не осталось ничего человеческого…Жанр: ФантастикаПродолжительность: 00:33:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1594D2AE6DF9047F0FDDB60280B276EC11941961
+magnet:?xt=urn:btih:FFC7F3A8B73D8A223702B20A0453DCC446BCE35F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -547,26 +319,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564941   (497722) от 21.07.2022
+###  Публикация: 1564411   (499595) от 19.07.2022
 
-DjVu Reader Pro 2.6.5 [Ru/En]
+Убийство в семье / Mord in der Familie - Der Zauberwurfel / Murder Squared (2021) WEBRip (сезон 1, серии 1-4 из 4) ViruseProject [AD]
 
->>Архив торрентов
->>Архив 4Apple
+>>Зарубежные сериалы
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499595.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DjVu Reader Pro предельно простое в использовании приложение, которое не перегружено лишними функциями, позволяя полностью сосредоточиться на чтении книги. Приложение поддерживает индексы страниц и содержания. Для быстрой навигации предусмотрена панель с миниатюрами страниц. Есть возможность масштабирования страниц.
-В целом, DjVu Reader Pro это отличная читалка книг (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.07.2022Разработчик: © 2021 FirmShell LtdПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский и Английский
+Томас Беккер, сын строительного магната Генри Беккера, застрелен в своей машине в первый день Нового года. Инспектор Барбара Фальк и коллега Кристиан Крамер в первую очередь подозревают, что убийство связано с обрушением дома-куба, амбициозного строительного проекта компании «Беккер и сын», которой руководит единокровный брат убитого Эрик БЕккер. В результате катастрофы (   Читать дальше...   )Производство: Германия / Rowboat Film- und FernsehproduktionЖанр: драма, криминал, детективРежиссер: Михаэль ШнайдерАктеры: Матиас Кеберлин, Хайнер Лаутербах, Лукас Грегорович, Петра Шмидт-Шаллер, Катарина Лоренц, Сабина Уинтерфелдт, Wolf Danny Homann, Jacob Speidel, Patrick Simons, Нино Порцио и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, немецкийСубтитры: Русские (отдельным файлом)Продолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DC5EADCCEB0C71A7CDC783AA4B57EE48FE091B5
+magnet:?xt=urn:btih:1AB852C6D1ECB250397BC0383B0CF15D25C887EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -574,80 +345,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564950   (497721) от 21.07.2022
+###  Публикация: 1564542   (499594) от 19.07.2022
 
-MP3 Gain - Audio Normalization 5.3.0 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497721.jpg" />
-</div>
-
-
-###  Подробнее
-
-MP3 Gain для Mac - это простой инструмент, разработанный специально для регулировки и нормализации громкости аудиофайлов (mp3, wma и т.д.). Он автоматически нормализует громкость аудиофайлов и регулирует громкость звуковых дорожек без потерь. Он выполняет статистический анализ, чтобы определить, насколько громко файл на самом деле звучит для человеческого уха.Тип издания: macOS SoftwareРелиз состоялся: 14.05.2022Разработчик: © 2022 SEASOFT LTDПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и Упрощенный Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB02776483A43974B71ADA54E702B3A0D66FF1DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565004   (497720) от 21.07.2022
-
-USBclean 3.6.5.1 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая мощная утилита для очистки USB, когда-либо сделанная. Быстро и легко удалять надоедливые файлы мусора и призраков с внешних USB-накопителей. .DS_Store, Thumbs.db, .Spotlight и файлы trashes занимают драгоценное пространство и могут вызывать проблемы на некоторых устройствах. Удалите любое количество предварительно настроенных типов файлов или добавьте собственные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.07.2022Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B957CDDD3976CBFE221AE419401C21332E3A7F98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564999   (497719) от 21.07.2022
-
-Miss Crazy - Clones (2022) [MP3|320 Kbps] <Hard Glam Rock>
+Sorrowful Knight - Legacy of The Knight (Best of 2014-2020) (2022) [MP3|320 Kbps] <Symphonic Power Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499594.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I’m Never Gonna Get Over You
-02. Clones
-03. Living In America
-04. I Don’t Believe In Love(   Читать дальше...   )Жанр: Hard Glam RockПродолжительность: 00:31:24
+01 - The Kingdom of Rock [00:03:29]
+02 - The Fall Of Olympus [00:04:18]
+03 - Dead Space [00:04:17]
+04 - The Final Starfall [00:07:49](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:24:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01A49D7D7045D75F0A5330BFE01ED1EBA2F01D3C
+magnet:?xt=urn:btih:DB22D8DE9A98509A6F3B45A50997A3897C804C79
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -655,25 +374,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 543127   (497717) от 04.09.2012
+###  Публикация: 1564561   (499593) от 19.07.2022
 
-Журнал | Здоровье в доме №35 [сентябрь 2012] [PDF]
+Нейро - С обратной стороны (2015) Remastered, 2022 [MP3|320 Kbps] <Industrial Gothic Metal>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499593.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал для тех, кто мечтает вернуть утраченное здоровье – свое и своих близких, исцелиться от давнего или острого недуга, найти ответ на жизненно важный вопрос о здоровье. Не выдуманные истории излечения даже самых серьезных болезней, диалог читателей с профессионалами в области традиционной и нетрадиционной медицины, народные рецепты.Формат: PDF
+01 - Интро [00:03:00]
+02 - С обратной стороны [00:03:50]
+03 - Жажда крови [00:03:29]
+04 - Когда она... [00:04:36](   Читать дальше...   )Жанр: Industrial Gothic MetalПродолжительность: 00:40:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B68236F81FC6B150038AAAC058EB6C4082CD2922
+magnet:?xt=urn:btih:F1CCE82A089C03467BEDA068C05617757A3BF2BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -681,25 +403,326 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 542645   (497714) от 04.09.2012
+###  Публикация: 1564429   (499592) от 19.07.2022
 
-Журнал | Macworld (USA) [октябрь 2012] [PDF] [En]
+Wicked Sensation - Outbreak (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499592.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал, посвященный электронике Apple. В каждом номере представлен обзор технических и программных новинок для этих устройств. В текущем номере: руководство по OS X Mountain Lion, тест Ultimate MacBook Air - модели 2012 года, обзор журналов в iTunes, работа с фото и видео в iOS, "скорая помощь" для Mac-а (ремонт железа).Формат: PDF
+01. Mission Timewalker (Intro)
+02. Starbreaker
+03. Child of Sorrows
+04. Light in the Dark (feat. Gus G)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:47:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C966ED50EB393D3CF20D03CDB6CB0ADFC2B69B41
+magnet:?xt=urn:btih:55936E9288C991E3F1AFA08BFCC74AB387088DC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564559   (499591) от 19.07.2022
+
+Garmin: TopoActive South America 2020.10 [En]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Покорите Южную Америку с помощью этой универсальной карты, оптимизированной для активного отдыха и составленной из базы данных созданной сообществом OpenStreetMap (OSM).Тип издания: РазблокированоРелиз состоялся: февраль 2020Разработчик: Garmin / OSMПоддерживаемая ОС: GarminЯзык интерфейса: английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62592CF860BA611517296D2010EF4090EE69AB60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564588   (499590) от 19.07.2022
+
+Андрей Константинов | Свой-чужой (Книга 2). Внедрение (2022) [MP3, Алексей Данков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотрудника уголовного розыска Валерия Штукина внедряют в структуру бывшего криминального авторитета, а ныне крупного бизнесмена Юнгерова. Тот, в свою очередь, направляет на работу в милицию Егора Якушева, парня, которого воспитал, как сына. С этого момента судьбы двух молодых людей начинают стягиваться в тугой узел, развязать который практически невозможно…
+Для Штукина (   Читать дальше...   )Жанр: ДетективПродолжительность: : 08:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73BD4FD3A3C36D2C4E2E966E1DE763A7569FBD67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564586   (499589) от 19.07.2022
+
+O.A.K. (Oscillazioni Alchemico Kreative) - Lucid Dreaming and the Spectre of Nikola Tesla (2022) [MP3|320 Kbps] <RPI, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything is Light
+02. Oscillation Alkemy Kreativity
+03. Learn to Run in Your Dreams
+04. The Comet and the Dreamer(   Читать дальше...   )Жанр: RPI, Progressive RockПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE31F163DE232A6F890985CDE650F76D809A7459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564658   (499588) от 19.07.2022
+
+Microsoft Windows 10.0.19043.1826, Version 21H1 (Updated July 2022) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 May 2021 Update (под кодовым названием "21H1") является одиннадцатым крупным обновлением Windows 10 в качестве накопительного обновления для обновления за октябрь 2020 года и имеет номер сборки 10.0.19043.
+
+Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.1826.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0014FBA3C4A4CE168E18B7ED69A9BFED2AC853D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564649   (499587) от 19.07.2022
+
+Opera 89.0.4447.51 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22009B0C1354BB73BDE74EC4CCC1B538F15CFAD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556465   (499586) от 19.07.2022
+
+Magia Record: Mahou Shoujo Madoka Magica Gaiden Final Season - Asaki Yume no Akatsuki | Записи о магии [ТВ-3] [2022, TV, 4 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение истории.
+
+Девочки-волшебницы сражаются в безвестной войне ради исполнения своих заветных желаний. Но Ироха Тамаки позабыла, что она загадала… — О чём же я просила, когда стала волшебницей?.. — задаётся она вопросом. В её жизни словно зияет огромная дыра. Она утратила нечто важное, дорогое… Но что? День за днём Ироха сражается, понятия не имея, зачем. (   Читать дальше...   )Производство: студия Shaft / シャフトЖанр: приключенияРежиссер: Анай ЁсукэПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 4 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F9891AF6697764C9D490E8A3E2E354878953C01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564496   (499585) от 19.07.2022
+
+Roger Waters - It's A Miracle (2022) Compilation [MP3|320 Kbps] <Progresive Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apparently They Were Travelling Abroad  (03:12)
+ 02. It's A Miracle  (08:31)
+ 03. Me Or Him  (05:24)
+ 04. Picture That  (06:48)(   Читать дальше...   )Жанр: Progresive RockПродолжительность: 01:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FA94A66000849170D669847EF0CF999D07415A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564602   (499584) от 19.07.2022
+
+JRiver Media Center 29.0.74 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499584.jpg" />
+</div>
+
+
+###  Подробнее
+
+JRiver Media Center - мультимедийный центр. Воспроизводит практически все популярные аудио- и видеоформаты, в том числе MP3, аудио-CD и DVD, способен преобразовывать CD-аудиотреки в WAV и MP3, переписывать на жесткий диск виниловые диски и кассеты, а также создавать аудио-CD, причем для выполнения этих задач программа содержит множество настраиваемых параметров. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD9BFF4ED38376CCE76E664206A8700BDCE864D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564646   (499583) от 19.07.2022
+
+Мой волк / Mystere / Vicky and Her Mystery (2021) BDRip [H.264/1080p-LQ]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восьмилетняя Виктория переезжает с отцом из города в горы. Однажды на прогулке они знакомятся с пастухом, и он дарит девочке щенка по кличке Секрет, который становится ей лучшим другом. Лишь позже семья понимает, что из этого ласкового комочка шерсти вырастет опасный хищник. Но дружба не знает границ.Производство: Франция / Radar Films, Solar Entertainment, GaumontЖанр: семейный, приключенияРежиссер: Дени ИмберАктеры: Венсан Эльбаз, Шанна Кейль, Мари Жиллен, Эрик Элмоснино, Чеки Карио, Эрик Савен, Ромен Ланкри, Венсан Деньяр, Эцио Саттер, Monique BarbaratПеревод: Дублированный (KION)Субтитры: ОтсутствуютПродолжительность: 01:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE872295984EBF6142B469B75965748DD3D5B45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564630   (499582) от 19.07.2022
+
+Kaijin Kaihatsubu no Kuroitsu-san | Miss Kuroitsu from the Monster Development Department | Госпожа Куроицу из отдела создания монстров [2022, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Куроицу, девушка с необычными увлечениями, работает на тайное общество «Агастья». Её задача — создавать разнообразных монстров, чудовищ и мутантов, чтобы однажды «Агастья» захватило мир. Правда, первым делом надо одолеть назойливого героя Блейдера. Начальник Куроицу — профессор Садамаки. Вдвоём они придумывают концепты и претворяют в жизнь жутчайшие порождения человеческой (   Читать дальше...   )Производство: студия QuadЖанр: комедия, повседневностьРежиссер: Сайто ХисасиПеревод: CrunchyrollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BE45BAED9D98576AC61A455AD8672D511F4C935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525427   (499581) от 19.07.2022
+
+Gekijouban Fate/Grand Order: Shinsei Entaku Ryouiki Camelot Zenpen - Paladin; Agateram | Судьба: Великий приказ (фильм второй) [2021, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499581.jpg" />
+</div>
+
+
+###  Подробнее
+
+1273 год от Рождества Христова, Иерусалим. Странствующий рыцарь Бедивер достигает исхода своего пути... но вместо Святой земли его встречает огромная пустыня, по которой бродят обездоленные. Три силы сошлись в войне за огромную пустошь. С одной стороны рыцари Круглого стола, что стремятся защитить Святой город и своего короля Льва. С другой — «король-солнце» Осимандий, (   Читать дальше...   )Производство: студия Production I.G / プロダクション・アイジーЖанр: приключения, фэнтезиРежиссер: Арай КадзутоПеревод: WakanimЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 100 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:204222219A0DFE8547D0BBCB2CFCDEA50CB836FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

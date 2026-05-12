@@ -1,22 +1,22 @@
-###  Публикация: 1756898   (39362) от 24.10.2024
+###  Публикация: 1755232   (40375) от 14.10.2024
 
-Гораций 62 / Horace 62 (1962) BDRip [H.264] [VO]
+А.Л. Крещанов и др. | Новоград-Волынский укрепленный район: 1932-1941 (2017) [PDF]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Научная и техническая литература
+>>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40375.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Старинная вражда между корсиканскими родами Фабиани и Колонна становится проблемой для парижского землячества островитян. Его неформальный глава Наполеон требует либо прекратить вражду, либо решить проблему раз и навсегда в честном поединке. Старейшины кланов принимают решение, что по три представителя Фабиани и Колонна должны сойтись в смертельной схватке. Однако (   Читать дальше...   )Производство: Франция, Италия / David Film, Franco London FilmsЖанр: драма, криминалРежиссер: Андре ВерсиниАктеры: Шарль Азнавур, Раймон Пеллегрен, Джованна Ралли, Жан-Луи Трентиньян, Этьен Бьерри, Даниэль Годе, Нерио Бернарди, Франсуа Дарбон, Луис ЛалэйннПеревод: любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские (Финекапа), английские, французские SDHПродолжительность: 01:34:06
+Полевые исследования Новоград-Волынского укрепрайона, начатые нами в 2002 году и продолжавшиеся на протяжении 11 лет, позволили нам собрать уникальный пласт исторического материала. Обследовано, описано, сфотографировано и нанесено на карты около 200 сооружений УРа. Восстановлено более 50 схем и чертежей, собраны документальные свидетельства и воспоминания очевидцев (   Читать дальше...   )Жанр: Военная историяИздательство: ВолыньФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:32B1B59A322F652184C4C063981916D7A5285250
+magnet:?xt=urn:btih:F4A92B3EBB0ECD3928A45B0C5FE8DEA3BB0DEC37
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +24,656 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756885   (39361) от 24.10.2024
+###  Публикация: 1755329   (40374) от 14.10.2024
 
-Mad Alice Productions - Latin Electro Swing (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing>
+Advanced Renamer 4.04 + Portable (x64) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Advanced Renamer - довольно популярная программа для массового переименования, а также систематизации файлов в операционной системе Windows. В новых версиях данной утилиты была реализована поддержка новых тегов при работе с разными форматами файлов, например мультимедиа, были переработаны методы отвечающие за образование имен файлов.
+Advanced Renamer хоть и бесплатная (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F7BA00F2FE682C712CDBC6E4028E03A61571F69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755260   (40373) от 14.10.2024
+
+Яблоки / Mila / Apples (2020) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40373.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Афинах разгорается необычная эпидемия - люди внезапно теряют память. Жертвой становится и Арис. Его находят на остановке автобуса без документов. В реабилитационном центре Арис узнаёт, что восстановить память невозможно. Взамен ему предлагают программу по созданию новой личности...Производство: Греция, Польша, Австралия, Словения, Boo Productions, Lava Films, Greek Film Centre (GFC)Жанр: драмаРежиссер: Христос НикуАктеры: Арис Серветалис, София Йорговассили, Анна Калаициду, Аргирис Бакирцис, Костас Ласкос, Кимон Фиоретос, Костас Ксикоминос, Константинос Папатеодору, Электра СарриПеревод: профессиональный многоголосыйЯзык озвучки: русский, греческийСубтитры: русские (Кинопоиск; CinemaCoon), английскиеПродолжительность: 01:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FB0EFB322A86A7DBF9090F6508A85F9E28970FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580496   (40372) от 14.10.2024
+
+Death Angel - Studio Albums (11 releases) (1987-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Death Angel — филиппино-американская трэш-метал-группа из города Конкорд, штат Калифорния, образованная в 1982 году.1987 - The Ultra-Violence
+1988 - Frolic Through The Park
+1990 - Act III
+2004 - The Art Of DyingЖанр: Thrash MetalПродолжительность: 08:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D1738461AB73FF03163965EB876B1CA5658BE31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755267   (40371) от 14.10.2024
+
+Indian Spirit - Fire Dance (2024) Compilation [MP3|320 Kbps] <Native American, New Age, World>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ani Kuni (Radio Edit) [03:39]
+02. Circle Of Fire [05:03]
+03. Music Comes From The Heart [05:15]
+04. The Return of the Great Spirit [04:53](   Читать дальше...   )Жанр: Native American, New Age, WorldПродолжительность: 04:27:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FF98420F82D6BC535A32BE57623E6944CD08E5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755123   (40370) от 14.10.2024
+
+Andrea Bignasca - Stranger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Song (3:58)
+02. Stranger (4:00)
+03. Together Whatever (4:43)
+04. Only Love (4:14)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA99BE29E0C72D9822755009398009DD22AE693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755129   (40369) от 14.10.2024
+
+Gonzalo Araya - Floripa´s Mood (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Harmonica>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CHAMPAGNE AND REFFER (4:46)
+02. COME ON IN MY KITCHEN (4:37)
+03. T-BONE SHUFFLE (5:00)
+04. BABY WHAT YOU WANT ME TO DO (5:14)(   Читать дальше...   )Жанр: Blues, HarmonicaПродолжительность: 00:28:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B04514EFEAA8F286596065A659B81543E7051DE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755128   (40368) от 14.10.2024
+
+Courtnay & The Unholy Reverie - Mercy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vulture, Vulture! (5:01)
+02. Mercy (5:00)
+03. Graves (3:16)
+04. Lost at Sea (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC79D8DE8F7F1EAA969A451EBBBBC4B6F7788EDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755131   (40367) от 14.10.2024
+
+Ilario Ferrari Trio - Above the Clouds (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earthrise (4:09)
+02. Morning Samba (4:49)
+03. Walking On The Yellow Line (6:20)
+04. Beyond The Horizon (4:05)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:716AE1503B026DAA6106AD246BB97AF16357FDC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755225   (40366) от 14.10.2024
+
+Schizophrenic Demon - Jazietto (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fast Heartbeats (2:10)
+02. A Fast Lane Melody (2:11)
+03. A Fast-Paced Love Affair (2:09)
+04. Chasing the Breeze (2:10)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1551988CB3B34739CE3F829F22241C82B2780CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755231   (40365) от 14.10.2024
+
+The Headhunters - The Stunt Man (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Stunt Man (5:59)
+02. Attitude Of Gratitude (5:42)
+03. Embraceable You (7:05)
+04. ESP (4:06)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69BEE3B3AA876F89C78CFB72489BCA7E9ADC191F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755218   (40364) от 14.10.2024
+
+Samy Thiebault - In Waves (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armelle CIPPE - In Waves (5:25)
+02. Devenirs (4:15)
+03. Armelle CIPPE - Rituals (4:31)
+04. Horizons (5:33)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBDE85CA5BC0130E1C774FBEEFEE514454EE1BA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755124   (40363) от 14.10.2024
+
+Blues Factory - III (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unhappy Girl (5:52)
+02. Rolling Man (4:29)
+03. Time To Make Mistake (5:33)
+04. Mountain Man (5:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18EB0BD40047B7DA0138DBCC39A7E66B445DC7A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755138   (40362) от 14.10.2024
+
+Myles Kennedy - The Art Of Letting Go (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Art Of Letting Go (4:37)
+02. Say What You Will (3:34)
+03. Mr. Downside (4:17)
+04. Miss You When You're Gone (4:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB2EEBEF24698820F9BBEA721F39CB5375B192B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755166   (40361) от 14.10.2024
+
+Robespierre - Rainy Wednesday (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears (3:52)
+02. It Could've Been (4:26)
+03. Shot (3:16)
+04. Summernights (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09837FF68837C8546751A48509A8BF30E3FF224C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755077   (40360) от 14.10.2024
+
+Своя игра (13.10.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40360.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2024 году программа "Своя игра" отмечает 30-летие. Турнир, начавшийся 14 сентября, называется "Продолжение следует" и продолжает первый турнир года "Возвращение к истокам". Победитель игры отправляется за центральный стол и остаётся там, пока не проиграет или сам не решит покинуть турнир. Чем больше игр проведёт участник, тем больше (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4711CD4EF5915F5C96D2CA0FBFF6B3B0FD418462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755293   (40359) от 14.10.2024
+
+Kozoria - The Source (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40359.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pandora's Box
+2. Demonize Them
+3. Leviathan
+4. Division(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB07C3F0257D2CC5D8EC59D2B51333BDC54F94D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755133   (40358) от 14.10.2024
+
+Jeanette Berger - Do Your Thing (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Long Will I Wait ? (5:29)
+02. Do Your Thing (Full Lenght) (3:51)
+03. Everybody Knows (3:40)
+04. Keep Me Burning (6:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E5261C5AA689A2A8F4B1840B09D6951F8C83CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755241   (40357) от 14.10.2024
+
+Cruachan - Studio Albums (9 releases) (1995-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Celtic Folk/Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cruachan — ирландская группа, играющая в стиле фолк-метал. Cruachan смешивают кельтскую музыку, историю и мифологию с блэк-металом, влияние которого на творчество группы со временем уменьшается.1995 - Tuatha Na Gael
+2000 - The Middle Kingdom
+2002 - Folk-Lore
+2004 - PaganЖанр: Celtic Folk/Black MetalПродолжительность: 08:19:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:173BDC202A5DE1D15C1786156ED818C689174950
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755132   (40356) от 14.10.2024
+
+Jasmin Bayer - Poetic License (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz, Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Golden Eye (7:11)
+02. Together (4:36)
+03. Poetic License (4:59)
+04. Rise Like A Phoenix (7:07)(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 01:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C792AE9449F4A13C2E7C9D54291CCDDF7CB5063C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755101   (40355) от 14.10.2024
+
+Ромен Роллан | Жизнь Микеланджело (2009) [MP3, Вадим Яковлев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Тайны истории в романах, повестях и документах.
+Ромен Роллан (1866–1944) – французский романист и драматург, автор таких великих произведений, как «Жан Кристооф» и «Очарованная душа», Ромен Роллан был удостоен в 1916 году Нобелевской премии «За возвышенный идеализм его произведений, и также за подлинную симпатию и любовь, с которой писатель создает различные (   Читать дальше...   )Жанр: Зарубежная литература, классика, биография, мемуарыПеревод: Валентина КуреллаИздательство: Вира-М (аудио)Продолжительность: 05:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F449BC1FA62F640B383F7D4A4733DF6ABC09487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755122   (40354) от 14.10.2024
+
+Hamish Anderson - ELECTRIC (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You’re Mine (3:46)
+02. Late In The Evening (5:09)
+03. Stir Crazy (4:22)
+04. So Alive (3:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2C8E46CBE9C3107B59A377878384BA795C063B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755247   (40353) от 14.10.2024
+
+Владимир Набоков | Пнин (2023) [MP3, Иван Букчин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Набоковский корпус.
+Владимир Владимирович Набоков (1899–1977) – русский и американский писатель, поэт, переводчик, литературовед.
+Роман-антитеза к бытующему представлению о «безнравственности» и «бездушии» Набокова, которое преследовало писателя после выхода «Лолиты».
+«Пнин» (1957), четвертый англоязычный роман Владимира Набокова, посвящен жизненным перипетиям (   Читать дальше...   )Жанр: Русская литература, классика, романПеревод: Вера Набокова, Геннадий БарабтарлоИздательство: ООО «Издательство АСТ», CorpusПродолжительность: 07:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B8492260BCF279CD5F757FE1AD9F244A0163B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755272   (40352) от 14.10.2024
+
+Joe Pass - A Sign Of The Times (1966) 2010, EMI Music [FLAC|Lossless|tracks + .cue] <Bop, Mainstream jazz, Guitar Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40352.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dance With Me (3:07)
-02. Summer (2:48)
-03. Día de Los Muertos (2:58)
-04. Maria de Guadalupe (3:21)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:23:24
+01. A Sign of the Times [2:15]
+02. The Phoenix Love Theme (Senza Fine) [2:53]
+03. Nowhere Man [2:41]
+04. Dindi [2:21](   Читать дальше...   )Жанр: Bop, Mainstream jazz, Guitar JazzПродолжительность: 00:28:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1171CD4F8E784F34FAEBB90BE177D6C0B661549B
+magnet:?xt=urn:btih:D9DE3C85EE7F020A47C065C145510882FA99F023
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,209 +681,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756992   (39360) от 24.10.2024
+###  Публикация: 1755263   (40351) от 14.10.2024
 
-Журнал | Садовод и огородник №19 (534) (октябрь 2024) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39360.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Садовод и огородник» — журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей, всех желающих добиться максимального урожая с минимальными затратами. Журнал знакомит своих читателей с современными технологиями и народным опытом выращивания овощных, плодовых, ягодных и лекарственных культур, разнообразием садовых (   Читать дальше...   )Жанр: Сад, огородИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A67512E3DFCEE1B7C5153B0D9C7F19B6D5C581F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555047   (39359) от 24.10.2024
-
-Sarah Vaughan - The Many Moods Of Sarah Vaughan (1961) 1998, Ember Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Me or Leave Me [2:58]
-02. Don't Worry About Me [2:49]
-03. September Song [2:56]
-04. I'm Through with Love [2:43](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:28:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4611E7048B170DFB2FC0EBB5AD6DA58E858A27BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756911   (39358) от 24.10.2024
-
-Гораций 62 / Horace 62 (1962) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старинная вражда между корсиканскими родами Фабиани и Колонна становится проблемой для парижского землячества островитян. Его неформальный глава Наполеон требует либо прекратить вражду, либо решить проблему раз и навсегда в честном поединке. Старейшины кланов принимают решение, что по три представителя Фабиани и Колонна должны сойтись в смертельной схватке. Однако (   Читать дальше...   )Производство: Франция, Италия / David Film, Franco London FilmsЖанр: драма, криминалРежиссер: Андре ВерсиниАктеры: Шарль Азнавур, Раймон Пеллегрен, Джованна Ралли, Жан-Луи Трентиньян, Этьен Бьерри, Даниэль Годе, Нерио Бернарди, Франсуа Дарбон, Луис ЛалэйннПеревод: любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские (Финекапа), английские, французские SDHПродолжительность: 01:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ECE1E6A1F4CBE858845D057EEA5704C923FB9E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757004   (39357) от 24.10.2024
-
-PhotoRoom v5.5.2 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение автоматически вырезает объекты и людей на ваших фотографиях. Всего одним нажатием вы сможете убрать фон и создать красивое изображение для презентации вашего продукта или модели. Выберите фон белого или любого другого цвета. Отрегулируйте освещение, добавьте текст, логотип или стикеры, создайте коллаж или воспользуйтесь одним из наших **многочисленных (   Читать дальше...   )Тип издания: ProРелиз состоялся: 24.10.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283C98A8472D76E2DB44F535C49EC0AA49568BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554684   (39356) от 24.10.2024
-
-Sarah Vaughan - The Singles Sessions (1990) Capitol [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serenata [2:42]
-02. My Dear Little Sweetheart [2:45]
-03. The Green Leaves of Summer [2:58]
-04. Them There Eyes [2:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F92085DB7B22DD6A8B6B34EBB4C4F9B0BFB226B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554466   (39355) от 24.10.2024
-
-Sarah Vaughan - In The Land Of Hi-Fi (1955) 2001, Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Over the Rainbow [3:30]
-02. Soon [2:37]
-03. Cherokee [2:32]
-04. I'll Never Smile Again [2:36](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A2B0288C61CB6C19626DB06AA429D63B4B2FB5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554093   (39354) от 24.10.2024
-
-Sarah Vaughan - Live in Berlin (1969) 2016, Jazzline [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just One of Those Things [3:00]
-02. Fly Me to the Moon [4:46]
-03. Announcement Sarah Vaughan [1:32]
-04. Love Finds a Way [3:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66DDEDD06F7B9C962326EA7366541CE64E5427E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756991   (39353) от 24.10.2024
-
-Журнал | Народный доктор №20 (666) (октябрь 2024) [PDF]
+Журнал | Народный доктор №19 (665) (октябрь 2024) [PDF]
 
 >>Журналы
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40351.jpg" />
 </div>
 
 
@@ -265,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C02AB8DE348FC41AC884E16731FC8C2AA4067E81
+magnet:?xt=urn:btih:6D7A5086196C7004CB2B51234BD4A19D9D6E5282
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -273,422 +707,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554831   (39352) от 24.10.2024
+###  Публикация: 1755165   (40350) от 14.10.2024
 
-Sarah Vaughan - The Definitive Sarah Vaughan (1954 - 1967) 2002, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dedicated to You [2:48]
-02. My Funny Valentine [3:01]
-03. Shulie a Bop [2:42]
-04. Lover Man [3:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D8DACCA5F8257553847983A8370DED489A73E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756987   (39351) от 24.10.2024
-
-The Smoothies - Autumn Nights in Paris (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul, Funk>
+Paul Heaton - The Mighty Several (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40350.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Autumn in Paris (4:00)
-02. An American in Paris (3:25)
-03. Autumn Lost in Paris (3:43)
-04. Autumn Wedding in Paris (4:33)(   Читать дальше...   )Жанр: Soul, FunkПродолжительность: 01:02:45
+01. Rianne Downey - National Treasure (3:18)
+02. Rianne Downey - Quicksand (3:01)
+03. After The Sugar Rush (4:27)
+04. Fish ‘N’ Chip Supper (3:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9798FD96B6CE40A3EBA374EEDFDE447DB93FA0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756850   (39350) от 24.10.2024
-
-XYplorer 26.50.0200 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39350.jpg" />
-</div>
-
-
-###  Подробнее
-
-XYplorer – удобный многовкладочный файловый менеджер, ориентированный на пользователей, которые хотят найти достойную замену стандартному проводнику Windows. Внешне напоминает стандартный проводник, но обладает большей функциональностью и множеством дополнительных возможностей для удобной работы с файлами. Особенностью XYPlorer является возможность открытия каждого (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE2AB9909B85AECB11C072774D66F480BE9DA4FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756932   (39349) от 24.10.2024
-
-Мороз Иванович (1981) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жила-была бабушка и было у нее две внучки: одна работящая, а другая - лентяйка, всё на печи лежала. Но однажды бабушка попросила лентяйку Малашу достать воды из колодца, но у нее не получалось и ведерко упало в колодец. Сестрица Дуняша решила ей помочь и они вдвоем прыгнули в колодец за ведерком. Там они попали к дому Мороза Ивановича. Он попросил сестриц у него (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, короткометражкаРежиссер: Иван АксенчукАктеры: Вероника Васильева, Клара Румянова, Ольга Громова, Вячеслав НевинныйСубтитры: отсутствуютПродолжительность: 00:09:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2114A33EAE236F19E4762885B9F7C85AF951B8D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756994   (39348) от 24.10.2024
-
-Журнал | Садовод и огородник №20 (535) (октябрь 2024) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39348.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Садовод и огородник» — журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей, всех желающих добиться максимального урожая с минимальными затратами. Журнал знакомит своих читателей с современными технологиями и народным опытом выращивания овощных, плодовых, ягодных и лекарственных культур, разнообразием садовых (   Читать дальше...   )Жанр: Сад, огородИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD8722F6F2DC22D26F20F8647881E99948651BAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756793   (39347) от 25.10.2024
-
-Будущее рядом: топ технологических трендов на 2025 год по версии Gartner
-
->>След.
->>Новости
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Искусственный интеллект, гибридные вычисления и постквантовая криптография — вот те новинки, которые будут менять правила игры в 2025 году. Эксперты Gartner снова составили свой список из 10 стратегических трендов, которые стоит учитывать всем, кто хочет оставаться в авангарде. Но это не обязательная программа, считает, а скорее карта возможностей и рисков, которые (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754387   (39346) от 25.10.2024
-
-Крик. Сезон призраков / Haunt Season (2024) WEB-DLRip [звук с TS] [AD]
-
->>Горячие новинки
->>Экранки с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Убийца в маске убивает участников шоу ужасов, посвященного Хэллоуину.Производство: США / First Fright, Happy Dance Productions (II)Жанр: ужасы, триллер, комедияРежиссер: Джейк ДжарвиАктеры: Брент Бентли, Крэйг Бензин, Ана Драгович, Сара Элизабет, Нико Галлатин, Ричард Грост, Адам Хинкл, Терри Холт, Сэмюэл Джеймс Ховард, Джанет ДжурадоПеревод: Дублированный (Кипарис) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:22:16Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FAAC72339832A177700AE973C946EC79FB243C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757088   (39345) от 25.10.2024
-
-Американский пирог / American Pie (1999) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision, 10-bit] [Unrated Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четверо приятелей-старшеклассников выясняют, что никто из них ещё не имел сексуального опыта, и решают, что с девственностью надо обязательно расстаться до поступления в колледж. На носу выпускной бал, и у друзей осталось совсем мало времени, чтобы выполнить задуманное.Производство: США / Summit Entertainment, Universal Pictures, Zide-Perry Productions, 88 FilmsЖанр: комедияРежиссер: Пол Вайц, Крис ВайцАктеры: Джейсон Биггз, Крис Клейн, Томас Иэн Николас, Эдди Кэй Томас, Мена Сувари, Тара Рид, Шеннон Элизабет, Элисон Хэннигэн, Шонн Уильям Скотт, Юджин ЛевиПеревод: Дублированный, профессиональный (многоголосый, закадровый), авторский (одноголосый, закадровый)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (full, forced), украинские (full, forced), английские (SDH)Продолжительность: 01:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A92E14177FC8B87FCB99A3FBE844874E2E321165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757105   (39344) от 25.10.2024
-
-Камеди Клаб / Комеди Клаб / Comedy Club (2024.10.25) SATRip
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39344.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Гарик Харламов, Тимур Батрутдинов, Александр Ревва, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Марина Кравец и др.Субтитры: ОтсутствуютПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B644BAAEDF1B5417C62342F1531BC00BBF5CD65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757087   (39343) от 25.10.2024
-
-JetBrains PyCharm Professional 2024.2.4 (x64-arm64) Repack by Sitego [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39343.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetBrains PyCharm Professional – это мощная и многофункциональная интегрированная среда разработки, предназначенная для работы с языком программирования Python. Она разработана компанией JetBrains, которая также создала такие продукты, как IntelliJ IDEA, RubyMine и WebStorm. PyCharm включает в себя все необходимые инструменты для быстрой и эффективной разработки (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48D0901484427830FE50191C4D003227E7D1B581
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757034   (39342) от 25.10.2024
-
-Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) Scene Rune
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stargate: Timekeepers — тактическая игра, в которой вы возглавляете команду специалистов в увлекательной кампании с оригинальным сюжетом во вселенной «Звездных врат: SG-1». Проведите новообразованный отряд тайком в тыл врага, воспользуйтесь уникальными умениями своих персонажей, разработайте идеальный план и расправьтесь с гоа’улдами.Тип издания: SceneРазработчик: Slitherine Ltd.Жанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7B2987D3A6DDB999812FAB4F7D3124D8E82FA5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755690   (39341) от 25.10.2024
-
-Робот-полицейский: Основные директивы (Робокоп возвращается) / RoboCop: Prime Directives (2001) DVDRip [H.264/1080p] (сезон 1, серии 1-4 из 4) [Hand made upscale AI]
-
->>Зарубежные сериалы
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Убитый бандитами офицер Мёрфи стал частью уникального эксперимента корпорации ОСР по созданию первого в истории робота-полицейского, несокрушимого и грозного защитника закона. Когда робокоп появился на улицах Дельта-Сити, люди вздохнули с облегчением: теперь их покой охранял могучий сверхчеловек с железными нервами и металлическими руками.
-Шли годы. Доспехи робокопа (   Читать дальше...   )Производство: Канада / Robocop Productions Ltd.Жанр: фантастика, боевик, криминалРежиссер: Джулиан ГрантАктеры: Пейдж Флетчер, Морис Дин Винт, Мария дель Мар, Энтони Лемке, Кевин Джубинвилл, Дэвид Фрайзер, Роуг Джонстон, Миф, Тед Лудзик, Джеймс ПёрселлПеревод: Многоголосый профессиональный (ТК "ТВЦ")Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: ~ 01:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F8D78DE52888E8B7D70045DD2F446C92553D5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753974   (39340) от 25.10.2024
-
-Rogue Waters (2024) [Ru/Multi] (1.0.2.3161) Repack Wanterlude
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rogue Waters - это тактическая пошаговая игра в духе «рогалика», действие которой происходит в пиратском мире, стонущем под бременем страшного проклятия. Собери шайку из самых отъявленных мерзавцев в округе и преврати их в кровожадных пиратов. Подружись с легендарными тварями из морских баек и призывай их на помощь в бою.Прокладывай себе путь сквозь изменчивый игровой (   Читать дальше...   )Тип издания: RepackРазработчик: Ice Code GamesЖанр: Экшены, Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDA355E7D19E57014B4DA05DAFAE022AF03A7BB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754386   (39339) от 25.10.2024
-
-Крик. Сезон призраков / Haunt Season (2024) WEB-DLRip [H.264/1080p] [звук с TS] [AD]
-
->>Горячие новинки
->>Экранки с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Убийца в маске убивает участников шоу ужасов, посвященного Хэллоуину.Производство: США / First Fright, Happy Dance Productions (II)Жанр: ужасы, триллер, комедияРежиссер: Джейк ДжарвиАктеры: Брент Бентли, Крэйг Бензин, Ана Драгович, Сара Элизабет, Нико Галлатин, Ричард Грост, Адам Хинкл, Терри Холт, Сэмюэл Джеймс Ховард, Джанет ДжурадоПеревод: Дублированный (Кипарис) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:22:16Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D8668E8E60484B1C12AE26F64D43DF487F5B50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751990   (39338) от 25.10.2024
-
-Enotria: The Last Song (2024) [Ru/Multi] (1.005.26813) Repack Wanterlude
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватывающая игра в стиле Souls, разворачивающаяся в солнечной стране, вдохновленной итальянским фольклором и полной опасностей. Мир охвачен Кановаччо - безумной вечной пьесой, которая держит мир в неестественном стазисе. Вы, существо без маски, единственный свободный от навязанной роли и хозяин своей судьбы. Победите могущественных Авторов, создавших пьесу, и выведите (   Читать дальше...   )Тип издания: RepackРазработчик: Jyamma GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, Итальянский, ЯпонскийЯзык субтитров: Русский, Английский, Итальянский, Японский и другиеЯзык интерфейса: Русский, Английский, Итальянский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:504B5E65F080C2EEAE237EECF1462C80936334B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757058   (39337) от 25.10.2024
-
-Майя из Штормскери / Myrskyluodon Maija / Stormskerry Maja (2024) WEBRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма разворачивается на Аландском архипелаге, рассказывая историю храброй девушки Майи, которая вместе со своим мужем Янне сталкивается с жизненными трудностями на отдаленном острове в 19 веке.Производство: Финляндия / Solar FilmsЖанр: драмаРежиссер: Тийна ЛюмиАктеры: Аманда Янссон, Linus Troedsson, Йонна Ярнефелт, Тобиаш Зиллиакус, Amanda Kilpeläinen Arvidsson, Десмонд Иствуд, Тони Дойл, Жан Эрик Берглунд, Andrea Björkholm, Ylva Hagmark-CooperПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: Русский, ШведскийСубтитры: Английские, Финские, ШведскиеПродолжительность: 02:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:405F159E13E17E5910619BB14DFD74DAE726959E
+magnet:?xt=urn:btih:94923EF1D0786755AEDD73DAFC43E08182AF71F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

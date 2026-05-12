@@ -1,3 +1,148 @@
+###  Публикация: 1305638   (556132) от 01.06.2019
+
+Kacey Musgraves - Golden Hour (2018) [FLAC|Lossless|tracks] <Country, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Slow Burn  (4:06)
+02 - Lonely Weekend  (3:45)
+03 - Butterflies  (3:39)
+04 - Oh, What A World  (4:00)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812B037988A89D19AFA02A7ABD57B7914D535A4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305873   (556087) от 01.06.2019
+
+Yulia Monastyrenko - 140 Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 140 Piano
+02 The Soul of My Youth
+03 Way to Myself
+04 Back to Spain(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:762CBFABE617176DC99673E9E06C1CA71F504586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305972   (555904) от 02.06.2019
+
+VA - Latina Fever (2019) 4CD [MP3|320 Kbps] <Latin>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555904.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Sebastian Yatra - Por Perro
+02. Kaïzer Panda - Hum (Radio Edit)(   Читать дальше...   )Жанр: LatinПродолжительность: 03:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB4891E11A8C0C34E7E8D611DF159151F61A1F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305951   (555896) от 02.06.2019
+
+VA - Инструментальные хиты кино (2004) [FLAC|Lossless|image + .cue]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Е. Крылатов - Талисман ( к/ф Конец императора тайги )
+02. В. Лебедев - Берег моря ( к/ф Вперед, Гардемарины! )
+03. А. Петров - Дождь ( к/ф Служебный роман )
+04. Е. Крылатов - Приказано взять живым ( к/ф Приказано взять живым )(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B367D71D012EC4885799916F86339A5E9847FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306342   (555681) от 04.06.2019
+
+Spencer Lewis - Riffs on a Broad Reach (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock, Instrumental>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High over Bethel (03:03)
+02. Interstellar (01:56)
+03. Reaching (04:40)
+04. High over Gilead (02:08)(   Читать дальше...   )Жанр: Folk Rock, InstrumentalПродолжительность: 00:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75471BD1D186F6DCB70A62728D35FA6063966C05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306590   (555502) от 05.06.2019
 
 Hildur Guðnadóttir (Hildur Gudnadottir) - Chernobyl (Music From The Original TV Series) (2019) [FLAC|Lossless|WEB-24Bit|tracks] <Dark Ambient, Experimental, Contemporary, Soundtrack>
@@ -600,151 +745,6 @@ Justin Moore - Kinda Don't Care (2016) Deluxe Version [MP3|320 Kbps] <Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D64F614DFFD052D6D14ED70677E84009E6560687
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046289   (551851) от 27.08.2016
-
-Nick Murray & Roger Shah - Singularity (2016) [MP3|320 Kbps] <Soundtrack, Classic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Murray, Juliet Lyons & Roger Shah – Miracle of Life
-02. Nick Murray, Roger Shah & Tori Letzler – Future Fighter
-03. Nick Murray & Roger Shah – Enter the Heroes
-04. Nick Murray & Roger Shah – Singularity(   Читать дальше...   )Жанр: Soundtrack, ClassicПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04205CA385B145EEAA41109D6F36ED973A08B33C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046461   (551850) от 27.08.2016
-
-Florida Georgia Line - Dig Your Roots (2016)[MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551850.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Smooth
-2. Dig Your Roots
-3. Life Is a Honeymoon (Feat. Ziggy Marley)
-4. H.O.L.Y.(   Читать дальше...   )Жанр: CountryПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD88A5BD4398DEF34FDB254AF247FBAA3F6A54DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046163   (551799) от 27.08.2016
-
-VA - Rock of Ages (2012) [FLAC|Lossless|tracks + .cue] <Rock, Stage & Screen>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Cruise - Paradise City (3:43)
-02. Julianne Hough, Diego Boneta, Russell Brand & Alec Baldwin - Sister Christian/Just Like Paradise/Nothin' But A Good Time (5:42)
-03. Diego Boneta, Alec Baldwin, Russell Brand & Julianne Hough - Juke Box Hero/I Love Rock 'N' Roll (2:23)
-04. Catherine Zeta-Jones - Hit Me With Your Best Shot (2:29)(   Читать дальше...   )Жанр: Rock, Stage & ScreenПродолжительность: 01:02:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9AFC552A96D280503DA512518BC180CD5E7B781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046390   (551663) от 27.08.2016
-
-Kyle Dixon & Michael Stein - Stranger Things / Очень странные дела, Vol. 1 (A Netflix Original Series Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger Things (01:08)
-02. Kids (02:39)
-03. Nancy and Barb (01:06)
-04. This Isn’t You (02:24)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58F930AA31953797CE0AA5DB6D20B282BA17FCDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237572   (551481) от 24.07.2018
-
-Malin Andersson - Follow (2018) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Deep Water (3:52)
-02 - Follow (3:26)
-03 - Giving It Away (3:37)
-04 - Those Eyes (3:38)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7DBAD90D421B489B683CB3D775304A1B5D1E8E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

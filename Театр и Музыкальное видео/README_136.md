@@ -1,3 +1,134 @@
+###  Публикация: 447890   (74637) от 07.02.2012
+
+Van Canto - Live at Wacken (2008) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74637.jpg" />
+</div>
+
+
+###  Подробнее
+
+У группы ударник и пять вокалистов, которые с помощью голоса заменяют почти все нужные музыкальные инструменты.
+Группа имеет кавер-версии других исполнителей, среди которых Metallica («Battery», «Master of Puppets»), Iron Maiden («Fear Of the Dark»), Blind Guardian («Bard’s Song — In the Forest»), Nightwish («Wishmaster»), Deep Purple («Stormbringer»), Manowar («Kings (   Читать дальше...   )01. Pathfinder (Live At Wacken 2008) (Bonus DVD)
+02. Kings Of Metal (Live At Wacken 2008) (Bonus DVD)
+03. Rain (Live At Wacken 2008) (Bonus DVD)
+04. The Bard´s Song (Live At Wacken 2008) (Bonus DVD)(   Читать дальше...   )Жанр: Концерт, A Capella MetalПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D4A2193FE1115C7F92BE06C97C4D5D2FA9E8BE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447242   (74540) от 06.02.2012
+
+Лучшие Онлайн Клипы 2011 / The Best Online Clips 2011 (2012) DVD9
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Форум онлайн видеоклипов подытожив прошедший год и решил совместно со студией видео монтажа, M.O.Y.D. Studio (http://moydstudio.com.ua), создать DVD под название “The Best Online Clips 2011”.  Для этого было отобрано 35 клипов из рейтинга просмотра в онлайн.Skrillex - First Of The Year
+Dominator  - After Video
+LMFAO - Sexy and I Know It
+Rihanna - Man Down
+Coldplay – Paradise
+Pitbull - Rain Over Me ft. Marc Anthony
+LMFAO - Party Rock Anthem ft. Lauren Bennett
+Beyoncé - Love On Top
+SEREBRO - Мама Люба
+Jennifer Lopez - On The Floor ft. Pitbull(   Читать дальше...   )Жанр: POPФормат: AC-3Продолжительность: 02:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0FB0A490FE94F80FE32E0B0BDD2C111F030E64D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447937   (74518) от 06.02.2012
+
+The Rolling Stones: Let's Spend the Night Together (1981/2011) [1080p] Blu-ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74518.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Under My Thumb - (Tempe, Arizona, 13 December 1981 (outdoor stadium show))
+2. Let's Spend the Night Together - (Tempe, 13 December 1981)
+3. Shattered - (Tempe, 13 December 1981)
+4. Neighbours - (Tempe, 13 December 1981)(   Читать дальше...   )Жанр: rockРежиссер: Хэл ЭшбиАктеры: Мик Джаггер, Кит Ричардс, Чарли Уоттс, Билл Уаймен, Ронни Вуд, Йен Стюарт, Ian McLagan, Эрни Уоттс, Бобби Кис, Джерри ХоллПродолжительность: 01:30:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447318   (74337) от 05.02.2012
+
+Foreigner - Rockin' at the Ryman (2011) [1080i] Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт 16 марта 2010 года в Ryman Theatre, в Нашвилле, США. Прозвучали как композиции из нового альбома, так и всеми любимые хиты группы.…
+
+Filmed on the 16th March 2010, ROCKIN' AT THE RYMAN finds 80s pop sensation Foreigner back doing what they do best; rocking out loud. Blu-Ray versions of the live concert in the famous Rayman Theatre, be sure to stay updated for the new Foreigner experience about to take place! Recorded with the highest equipment to capture the rocking that actually took place, this concert included the full-set for ultimate listening and viewing pleasure. This new announcement is certainly a dream come true for any fan or new listener, including all of the hits from their album “Can’t Slow Down” like “Double Vision”, “Cold As Ice” to “Jukebox Hero”, “Hot Blooded” and “Urgent”. This is something you really have to see for yourself, and with the new DVD/Blu-ray disc quality, you can experience it as if you were there.01. Double Vision
+02. Head Games
+03. Cold As Ice
+04. In Pieces
+05. Blue Morning, Blue Day
+06. Waiting For A Girl Like You
+07. When It Comes To Love
+08. Dirty White Boy
+09. Starrider
+10. Feels Like The First Time(   Читать дальше...   )Жанр: RockВ ролях: Mick Jones, Kelly Hansen, Jeff Pilson, Tom Gimbel, Michael Bluestein, Jason BonhamПродолжительность: 01:46:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 445817   (73607) от 02.02.2012
 
 Юбилейный вечер Олега Газманова (2012) IPTVRip
@@ -606,118 +737,6 @@ Scooter - Jumping all over the world - Live in Berlin (2008) DVDRip [H.264/1080p
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:353DC684206E2F57977147C6FF96B7F641AC7A83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789770   (67931) от 12.04.2025
-
-Paul Van Dyk - Live at Green Valley (2010) HDTVRip [H.265/2160p] [hand made upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись диджейского сета Пола Ван Дайка, который он представил в ночном клубе «Green Valley» 14 ноября 2010 года (Бразилия). Запись ТВ трансляции была взята с Австрийского ТВ канала «ServusTV».01. PvD ft. Vega 4 - Time of our lives (UK club mix)
-02. Mike Shiver vs. Fandy - Sique (Ronski speed rmx)
-03. Tritonal - Sky nights (David Forbes rmx)
-04. John O'Callaghan ft. Sarah Howells - Find yourself (Heatbeat rmx)(   Читать дальше...   )Производство: Бразилия / Red Bull Media HouseЖанр: Trance, Progressive TranceСубтитры: Русские, английские (hardsub)Продолжительность: 02:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0691C6310B7B0566C19D8997AC429F288765423C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792647   (67638) от 20.04.2025
-
-Scooter - Live in Dnepropetrovsk (1999) VHSRip [H.264/1080p-LQ] [hand made upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт группы, который состоялся на стадионе «Метеор» в Днепропетровске. Именно с него начался гастрольный тур Scooter по Украине в 1999 году.01. Keyser soze / Watch out
-02. Faster Harder Scooter
-03. I'm raving
-04. The age of love(   Читать дальше...   )Производство: УкраинаЖанр: Techno, Happy HardcoreРежиссер: Jens TheleУчастники: H.P. Baxxter, Rick J. Jordan, Axel CoonПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330AA1F0E74DFDFF4F1756863BB3DBFA69EB77A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797513   (66816) от 16.05.2025
-
-МузЛофт-Дети / МузLoft. Любава Соляная (2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любава Соляная. Про финансовую грамотность и дуэт с Лазаревым.
-Если вас удивляет или веселит фамилия этой талантливой девочки, то обязательно смотрите выпуск, она всё про неё расскажет. А ещё споет такой разнообразный набор песен, что понравится абсолютно каждому.Производство: Россия | Y-GenerationУчастники: Любава СолянаяПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E277C684F542AC7C898C5C655FA5C95A7D40CE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797512   (66810) от 16.05.2025
-
-МузЛофт-подкаст / МузLoft. Dabro (2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dabro. Первый конфликт в истории Музлофт.
-Таких жарких споров и дебатов в истории нашей программы ещё не было. Может именно вы рассудите кто прав в споре наших музыкантов и братьев из Казани.Производство: Россия | Y-GenerationУчастники: DabroПродолжительность: 00:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E833B7B793304E3693DC943BA2DD3945ED9DE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

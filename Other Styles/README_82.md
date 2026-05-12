@@ -1,3 +1,119 @@
+###  Публикация: 1229858   (622704) от 08.06.2018
+
+Сергей Гримальский - West (2003) [MP3|320 Kbps] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ветер времени (3:52)
+02. Колыбельная (3:35)
+03. Цветные сны (5:53)
+04. Золотой ангел (5:11)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21D28A06DAC6C2C675C6CBD6CDD13C96699F804A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035935   (622654) от 19.07.2016
+
+California Guitar Trio - Masterworks (2012) [MP3|213~253 Kbps (V0)] <Instrumental, Acoustic, Classical>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Passacaglia    05:43
+02.  Adagio Sostenuto, Moonlight Sonata    02:59
+03.  Presto Agitato, Moonlight Sonata    04:38
+04.  Adagio Opus 11    04:05(   Читать дальше...   )Жанр: Instrumental, Acoustic, ClassicalПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CBDA4D5159DC1A5C68D46E69213D6C738793843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295229   (622496) от 11.04.2019
+
+Our Native Daughters - Songs of Our Native Daughters (2019) [FLAC|Lossless|tracks + .cue] <Folk, Blues, Americana>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Myself (3:54)
+02. Moon Meets the Sun (4:07)
+03. Barbados (5:52)
+04. Quasheba, Quasheba (4:42)(   Читать дальше...   )Жанр: Folk, Blues, AmericanaПродолжительность: 00:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88820EF7A32FA65D9FB890001317E82F3CC3A77C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295042   (622376) от 11.04.2019
+
+VA - Country Forever (2019) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622376.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01.Dolly Parton - 9 To 5
+02.Tammy Wynette - Stand By Your Man(   Читать дальше...   )Жанр: CountryПродолжительность: 03:29:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6498A6B484BF91B21D37774F304F15EF14520BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 219679   (621686) от 20.07.2010
 
 Namaste - True Crystals (2009) [MP3|256 kbps]<New age, Meditative>
@@ -641,122 +757,6 @@ Bill Justis - More Instrumental Hits By Bill Justis (1965) [MP3|320 кб/с]<Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57F543AE8B3CAF6FB17A2ADC0339CA6C339FA1CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145791   (617747) от 27.06.2017
-
-Steve Jablonsky - Transformers: The Last Knight / Трансформеры: Последний рыцарь (Music from the Motion Picture) (2017) [FLAC|Lossless|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacrifice (06:47)
-02. The Coming of Cybertron (04:59)
-03. Merlin's Staff (05:49)
-04. No-Go Zone (03:29)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B1CDB51E3DEDFA29E6B16E0C7285E3A0FD535FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911374   (617680) от 22.06.2015
-
-VA - The 50 Best Instrumental Rock Songs Ever (2014) 2CD [MP3|192 кб/с]<Instrumental Rock, Oldies>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617680.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Santo & Johnny - Sleepwalk 02:23
-02. Dick Dale & His Del-Tones - Misirlou 02:16
-03. Booker T. & The M.G.'s - Green Onions 02:50(   Читать дальше...   )Жанр: Instrumental Rock, OldiesПродолжительность: 01:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3034732DC552D4FB82A46ACC86DC924DE68D7936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911221   (617516) от 22.06.2015
-
-Leo Rojas - Das Beste - My Serenade To Mother Earth (2015) [FLAC|Lossless]<Panflute, New Age, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Silverstar
-02. Chica
-03. Amigos
-04. Brothers(   Читать дальше...   )Жанр: Panflute, New Age, FolkПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F0A6F06132FD59381CC8372670A1C676BE56E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230194   (617387) от 11.06.2018
-
-Chris Remo - Firewatch Original Score (2016) [MP3|320 Kbps] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617387.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Prologue (3:35)
-2 - Stay in Your Tower and Watch (1:55)
-3 - Something's Wrong (0:56)
-4 - Beartooth Point (1:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28621A61B534525D7914220B5AE65F45A721B76
 ```
 
 https://mybot314.ru/tekegram_catalog/

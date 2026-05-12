@@ -1,3 +1,32 @@
+###  Публикация: 1390227   (783409) от 14.06.2020
+
+VA - Beatport Vocal House: Sound Pack #100 (2020) [MP3|320 Kbps] <Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783409.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hiddn - Too Good
+002. Moguai - Everybodys Got
+003. Acuna Boyz - 6 Inch Heels
+004. Akcent - Stay With Me(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 09:31:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7310BDA3368C93FBA97B35F577973CC6E4287F99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390130   (783383) от 14.06.2020
 
 VA - Record Super Chart 640 (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - Music Infection: Dance Culture 90's (Compiled by electro75) (2018) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F735EA1EFBAF75D6276F9A669028B15BBA4380FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207704   (780431) от 19.02.2018
-
-VA - Empire Records - Night Wave (2018) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hess Is More - Yes Boss (Mr. Gun X Isabelle Remix)
-02. Bo & Serhat Durmus feat. Ecem Telli - Elimi Tut
-03. Nando Fortunato feat. Sephora - You're Not Alone (Radio Edit)
-04. Katodik & Maria Estrella - Million Miles (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91766F32E85D0B813B9CB7A657EAE002509786CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

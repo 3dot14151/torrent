@@ -1,3 +1,31 @@
+###  Публикация: 936518   (494445) от 12.09.2015
+
+LiveLiqueur - 2 альбома (2011) Touhou Vocal, Instrumental /Doujin/ [FLAC|tracks] <J-Rock, Electronic>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2011.12.30 (LiCD-02) Sister's (C81)
+2011.12.30 (LiCD-03) Akai Hana Chiru Made (C81)Тип издания: DoujinЖанр: J-Rock, ElectronicФормат: Touhou Vocal, InstrumentalПродолжительность: 00:01:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9FD0573BE9C4D30DB2BE8BD5DC784656C48B53A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936510   (494384) от 12.09.2015
 
 Liset - 2 альбома (2009-2010) Touhou Vocal /Doujin/ [FLAC|tracks] <J-Pop>
@@ -722,35 +750,6 @@ C.H.S. | Cutie & Headshaking Sounds - 26 альбомов (2005-2015) Touhou Voc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3B9253C6415A1956B88162AE8E78CC19C36965A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938066   (483744) от 17.09.2015
-
-Kraster - 26 альбомов (2008-2013) Touhou Vocal /Doujin/ [FLAC|tracks] <J-Pop, J-Rock>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2012.08.11 the sign of IV (C82)
-2012.12.30 Kraster — Majo to Ringo to Samayou Kimi to (C83)
-2013.05.26 (KRII-0001) Ne;on×KEROchan☆ (Reitaisai 10)Тип издания: DoujinЖанр: J-Pop, J-RockФормат: Touhou VocalПродолжительность: 00:15:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AB5E42D5857757269D60776F804C2A7A62793A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1273001   (139596) от 30.12.2018
+
+Tykwer/Klimek/Heil - Run Lola Run (Original Motion Picture Soundtrack) (1999) TVT Soundtrax [FLAC|Lossless|tracks+.cue] <Breakbeat, Trance, House, Tribal, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Franka Potente - Believe (04:55)
+ 02. Tykwer/Klimek/Heil - Introduction (05:44)
+ 03. Tykwer/Klimek/Heil feat. Franka Potente - Running One (05:32)
+ 04. Tykwer/Klimek/Heil - Supermarket (04:40)(   Читать дальше...   )Жанр: Breakbeat, Trance, House, Tribal, SoundtrackПродолжительность: 01:17:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:631CF91264E6C40D0E263F6F6078C34EDBD87EA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 740506   (139550) от 31.12.2013
+
+David Arkenstone, Kathleen Fisher - Celtic Sanctuary (2006) [FLAC|Lossless]<New Age, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celtic Sanctuary (4:41)
+02. May It Be (3:35)
+03. He Moved Through the Fair (4:53)
+04. Sleepsong (4:54)(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 01:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C0B89ACD1A57932B9EF230A829E30717F0E7C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 740314   (139535) от 31.12.2013
+
+Firedance (David Arkenstone) - Spirit of the Drum (2008) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening (80 bpm) (12:34)
+02. Heartbeat of the World (95 bpm) (11:07)
+03. Rhythm Journey (110 bpm) (9:55)
+04. Shaman's Dream (125 bpm) (14:24)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F2D09E006FA67FEC743E178327FAE1AE5CB8325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436138   (138721) от 30.12.2020
+
+Deep Forest - Deep Symphonic (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Forest (Symphonic Version)
+02. Cafe Europa (Symphonic Version)
+03. Night Bird (Symphonic Version)
+04. Bulgarian Melody (Symphonic Version)(   Читать дальше...   )Жанр: Ambient, Downtempo, New AgeПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CC1A651966C38850B7FBAE358B7B71B05BD24C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195824   (138290) от 31.12.2017
+
+Krishna Das - Trust In The Heart (2017) [MP3|320 Kbps] <Meditative, Mantras, Ethnic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138290.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Guru Puja (5:03)
+2. Sundhara Chalisa (17:48)
+3. Namoh (10:24)
+4. Devi Chant (10:14)(   Читать дальше...   )Жанр: Meditative, Mantras, EthnicПродолжительность: 01:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ACA517BA436E103D2EE13B04432A8E49FBFFC7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195762   (138081) от 31.12.2017
 
 Gregorian - Holy Chants (2017) [FLAC|Lossless|tracks + .cue] <New Age, Electronic, Pop Rock>
@@ -660,163 +805,6 @@ Wychazel - A Brighter Dawn (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:457F339230B8E500DCDDB5189BA16F3DA453ADB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681768   (132348) от 04.12.2023
-
-Wychazel - The Temple of Hathor (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dendera (11:05)
-02. Pillars of Eternity (9:28)
-03. Of Lapis and Gold (11:36)
-04. Hieroglyphs and Mysteries (10:00)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D105DD6AF02AC95796DE260F103CC6366D0583A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682058   (132055) от 05.12.2023
-
-Kitaro - Toyo's Camera (2009) [FLAC|Lossless|tracks + .cue] <Score, New Age>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Planet
-02. Estrella
-03. Fairy of Water
-04. The Field(   Читать дальше...   )Жанр: Score, New AgeПродолжительность: 01:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:523B88FD73EB8E988AFE0B878D9D8818D050C599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595456   (131948) от 29.12.2012
-
-Globus - Epicon (2006) [APE|Lossless]<New Age, Epic Music>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Preliator
-02 - Mighty Rivers Run
-03 - Prelude (On Earth As In Heaven)
-04 - Spiritus Khayyam
-05 - La Coronacion
-06 - Europa
-07 - Diem Ex Dei
-08 - Orchard of Mines
-09 - Crusaders of the Light
-10 - Madre Terra(   Читать дальше...   )Жанр: New Age, Epic MusicПродолжительность: 01:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB572E4C948D53646BA995D80048E476B5E7A913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682245   (131718) от 06.12.2023
-
-Deep Forest - Burning (2023) [MP3|320 Kbps] <New Age, Electro>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Did That [08:54]
-02. Burning Sun [06:10]
-03. Deep Fakear [05:48]
-04. Travelling With Sam [05:25](   Читать дальше...   )Жанр: New Age, ElectroПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A68FB7B88E5B13268D8F48B0C25C4BEA3A18FC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596652   (130836) от 31.12.2012
-
-VA - 80's Club Classics Repress (2003) 2CD [FLAC|Lossless]<Hip Hop, Electro, Soul, Funk/Soul, Disco>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gwen Guthrie - Ain't Nothin' Goin' On But The Rent [03:27]
-02. Donald Byrd - Love Has Come Around [03:38]
-03. Shanon - Let The Music Play [03:32]
-04. Kleer - Get Tough [03:19]
-05. Chaka Khan - I Feel For You [05:45]
-06. Earth, Wind & Fire - Let's Groove [03:30]
-07. Sister Sledge - Thinking Of You [03:42]
-08. Patrice Rushen - Forget Me Nots [04:06]
-09. Bohannon - Let's Start II Dance Again (Part II) [05:13]
-10. Levert - Casanova [03:58](   Читать дальше...   )Жанр: Hip Hop, Electro, Soul, Funk/Soul, DiscoПродолжительность: 01:17:56
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 496296   (252822) от 14.05.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (14.05.12)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B50B058EE5D224F0EE82D7965186B005FDF7CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 496528   (252821) от 14.05.2012
 
 [Wallpapers] Ford
@@ -694,32 +720,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08AE554A4D59AA8C6C985E27CDF2F80DA14E0F55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268280   (227746) от 10.12.2018
-
-Обои - Ultra HD 3840x2160 Wallpaper Pack 358 [JPG, PNG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227746.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка обоев на различную тематикуФормат: JPG, PNGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365E77BB3C8A3DFD04D24CCF79A628CC01B166E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

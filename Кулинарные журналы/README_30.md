@@ -1,3 +1,81 @@
+###  Публикация: 1037178   (615592) от 23.07.2016
+
+Журнал | Библиотека журнала Моя любимая дача №13 (2016) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал публикует рецепты заготовок из популярного дачниками овоща - огурцов.Жанр: Кулинария, консервирование, домашние заготовкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D7BE10559C41D8731458715BBA274D70ABD73CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037209   (615590) от 23.07.2016
+
+Журнал | Библиотека журнала Моя любимая дача №18 (2016) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал публикует рецепты заготовок из ягод.Жанр: Кулинария, консервирование, домашние заготовкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A47037A0E14E0534BE20176F3B1B8799FEB9B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037118   (615472) от 23.07.2016
+
+Подшивка журнала | Кухня. Лучшие рецепты [43 журнала] (2003-2012) [PDF, DJVU]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие и разнообразные рецепты от читателей журнала Кухня.Жанр: КулинарияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A504D1737BAE1013A2889BABD85F76FE246FD027
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911854   (614467) от 24.06.2015
 
 Журнал | Кушать подано №5 (93) (май 2015) [PDF]
@@ -589,87 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:214DEC05B73C58F5800559C37F36B925B33688EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297274   (604819) от 21.04.2019
-
-Журнал | Bahar tazeliği / Весенняя свежесть (2019) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Baharin ahengi
-Bu günlerde kipir kipir bir bahar kendini müjdeliyor! Yeniden uyanan toprak, tomurcuklanan ağaçlar renk renk çiçekler mavileşen gökyüzü gülümseyen bulutlar. çeşit çeişt kokular ve keşfedilmey bekleyen yepyeni tatlar ile bahar mevsimi bir kez daha kapimizi çaliyor. (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDA08458A3DC25C882DE7CAEDA0BECBFC78CDFF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297270   (604755) от 21.04.2019
-
-Журнал | Pratik ve lezzetli. Nefis köfteler / Практично и ароматно. Вкусные фрикадельки (апрель 2019) [PDF] [Tr]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Köfteler mutfağımızın en çok aranan ve tercih  edilen tariflerindendir. Köfte için her yörenin kendine has tarifleri vardir, Birbirinden lezzeti  çeşit çeşit köfteleri sizin için denedik , en beğendiğimiz tam 30 tarifi bu kitapta birlestirdik. Afiyet olsun
-
-Фрикадельки являются наиболее (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23F72D088440E1585A8B7DCB1E896B8D80F1E2AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148684   (603442) от 07.07.2017
-
-Журнал | Еда №15 (77) (2017) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603442.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Про котлеты можно сказать то же, что про Пушкина: наше все. Одно из главных семейств в русской кулинарной таксономии. Для этого номера мы позвали к нам Андрея Махова сделать лучшие пожарские котлеты. Узнали у шефов, как правильно жарить котлеты из мяса, рыбы и овощей. Сняли, как делают разные котлетные виды. И собрали много хороших рецептов.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07E6A2E8EDF172E6451EB8A643CAFB24A9FD90C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1013051   (777576) от 04.05.2016
+
+Francis Goya - Musica Espectacular (2016) [FLAC|Lossless|WEB-DL|tracks] <Easy-Listening, Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Say You Say Me (4:03)
+02. The Lady In Red (4:06)
+03. Against All Odds (3:20)
+04. Nothing's Gonna Change My Love For You (4:05)(   Читать дальше...   )Жанр: Easy Listening, Instrumental, GuitarПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17997FDAAD78532303D119F521BB8F6F7443AA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211273   (777564) от 07.03.2018
+
+Maximus & Felix - 2 Albums (1993, 1996) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Praeludium (The Time Of The Time) (3:28)
+02. 11:11 Rendezvous (4:07)
+03. Desert (4:25)
+04. Cosmic Love (3:59)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD0C657E6F476B99086ED6B1F42B5373F34A3A58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211296   (777561) от 07.03.2018
+
+Maximus & Felix - 2 Albums (1993, 1996) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Praeludium (The Time Of The Time) (3:28)
+02. 11:11 Rendezvous (4:07)
+03. Desert (4:25)
+04. Cosmic Love (3:59)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9784BC796258A449E547D0CCBD587322980357D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211419   (777558) от 07.03.2018
+
+Michael Brant DeMaria - Ama (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ama
+ 02. Night Voyage
+ 03. Stella Maris
+ 04. Lost(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8526D5239AD6A4AD1C94C8AFD69CDA121E40B15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013586   (777541) от 04.05.2016
 
 Morcheeba - Beats & B-Sides (1996) [FLAC|Lossless|tracks + .cue] <Инструментальная музыка, Коллекция, Обработка>
@@ -627,122 +743,6 @@ Brian Crain - Piano and Night (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C38DC252E66C4C8BCDCFA5C15C91D0DF6B663D8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014691   (776071) от 08.05.2016
-
-Zhou Zifeng - Hotel California (1999) [MP3|320 кб/с] <Guitar, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Cry For Me, Argentina 4:46
-02. Yesterday 5:37
-03. Hotel California 6:23
-04. My Heart Will Go On 4:38(   Читать дальше...   )Жанр: Guitar, InstrumentalПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E9B6A022C545626D44FEABDD86C421148B8B75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212250   (776058) от 11.03.2018
-
-Greg Butler - Whispering Yiruma (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Present (4:08)
- 02. Falling (3:37)
- 03. Spring Waltz (2:47)
- 04. Maybe (3:48)(   Читать дальше...   )Жанр: New Age, Piano, Classical, RomanticПродолжительность: 01:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:520F9F2C0B847C9A4ECCBEF14DA7DDD4BE8A22D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212313   (775791) от 12.03.2018
-
-John Camacho - Morning Calm (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joyful Moment
-02. Silent Water
-03. Blowing Wind
-04. Sunshine On You(   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12B3CA52A755D04A87F892961F1F6BC521A82E03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015053   (775763) от 09.05.2016
-
-The Nexion-Project - Voices Of The Ascension (2011) [MP3|320 кб/с] <New Age, Enigmatic, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dawn    02:15
-02. Passing Time    02:08
-03. The Second World    03:09
-04. Fly Away    03:14(   Читать дальше...   )Жанр: New Age, Enigmatic, WorldПродолжительность: 00:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3873207E47D494DC66DBEE1CFEAC6E619848C24F
 ```
 
 https://mybot314.ru/tekegram_catalog/

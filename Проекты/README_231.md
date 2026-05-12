@@ -1,3 +1,55 @@
+###  Публикация: 940036   (470802) от 23.09.2015
+
+Проекты - VideoHive -  Dynamic Glitch [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания динамичного текстового превью. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02E074BCDCB6650AEFEA1D58E6B89F28916EC22E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940168   (470801) от 23.09.2015
+
+Проекты - VideoHive - Glam TV [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fashion Package. Пакет включает в себя Promo (англ. Рекламный) - 4 версии, слайд-шоу - 5 версий, нижняя треть - 3 версии, логотип переход - 3 версии.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CA9B5AEFB5073F99A239D94094B7C1E4FE869D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320410   (470792) от 18.08.2019
 
 Проекты - VideoHive - Isometric Flat World - 23044315 [AEP]
@@ -633,58 +685,6 @@ RevoStock - Graffiti Alley - 129221 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D27350A90F159795C1F8438DDDC5E7F058017F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320585   (468633) от 19.08.2019
-
-Проекты - VideoHive - UI FUTURE PACK V1.5/ Monthly FREE HUD Update/ Call-Outs/ Transitions/ Glitch/ Interface - 9296416 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет инфографики. Версия - 1.5Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B03550583E3667B8C8051B5E0E9EA6B73812DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 824407   (468593) от 23.09.2014
-
-VideoHive - Old Photo Album - 2578350 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старый фотоальбом.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85DB6B791AA4FDC7C6EC9A3EC9CE78BF7001DA3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

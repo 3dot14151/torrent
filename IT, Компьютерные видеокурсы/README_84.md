@@ -1,3 +1,29 @@
+###  Публикация: 1615142   (206533) от 24.02.2023
+
+Udemy, Catalin Stefan | Complete FastAPI masterclass from scratch (2022) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный мастер-класс FastAPI с нуля 2022 — это учебный курс по микрофреймворку FastAPI, опубликованный Академией Udemy. FastAPI — это мощная веб-инфраструктура на основе языка программирования Python, которую можно использовать для проектирования и разработки расширенных API RESTful. С момента первоначального запуска проекта FastAPI прошло не так много времени, и (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 21:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C452129FF1AAC2C84DAB10756533D6D104AD9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615214   (206437) от 25.02.2023
 
 Udemy, Ashutosh Pawar | Django 4 Masterclass 2022: From Development To Deployment (2022) WEB-DL [EN / EN Sub]
@@ -676,35 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:572985A62F88231D848A93B41B1ED813967B8CD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606696   (203652) от 23.01.2023
-
-e-Business | Webflow intensive 2.0 (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержание курса:
-Курс Webflow intensive 2.0 состоит из 6 блоков.
-1. Основы webflow (7 пунктов)
-• Создаём свой первый сайт на webflow. Как избежать большинства проблем и ошибок вёрстки(   Читать дальше...   )Жанр: СайтостроениеЯзык озвучки: РусскийПродолжительность: 10:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD31C231B863DD516C944917F9EB9E5792B0BC97
 ```
 
 https://mybot314.ru/tekegram_catalog/

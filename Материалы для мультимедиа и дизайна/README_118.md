@@ -1,3 +1,107 @@
+###  Публикация: 1016539   (770117) от 14.05.2016
+
+Экшены - GraphicRiver - Watercolor & Pencil Photoshop Action - 7619365 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот экшен быстро превращает ваши фотографии в акварельный рисунок.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30BA42C2CE626802C6788200F38ABB98B9C44EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016643   (770115) от 14.05.2016
+
+Экшены - GraphicRiver - Oblivion Photoshop Action - 11784709 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DC39F3FFB2FB83D11B59C7E0E93B535BBDE0F28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016598   (770110) от 14.05.2016
+
+Экшены - GraphicRiver - Portrait Magic Photoshop Action [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Магический портрет - превосходный экшен для Вашего творчества.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD445DDB744C6B52DCE9C05146BFE30DEE92514F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016402   (770037) от 14.05.2016
+
+Экшены - DeviantArt - Beauty Retouching Kit v2.0 (Photoshop Actions) [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный экшен поможет вам профессионально отретушировать фотоснимок.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA06781D6D8E8AA49693036A5FCE40DC725DFB42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016446   (770008) от 14.05.2016
 
 3D модели - CGAxis Vol. 15 - Exotic plants [V-Ray|*.max]
@@ -589,116 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2AECCD866F0902F82BF24DE8BA4C07A7A80AF70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278281   (768262) от 26.01.2019
-
-3D модели - 3ddd - Free Chair - Стулья 2019 [Corona|V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей с сайта 3ddd/3dsky.
-Количество моделей: 40шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD40C69B75F5D3782FF69283700F0FF77042B950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278270   (768223) от 26.01.2019
-
-3D модели - 3ddd - Сборник 3D-моделей 3 [Corona|V-Ray|*.max, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей с сайта 3ddd/3dsky.
-Количество моделей: 21 шт.Формат: Corona|V-Ray|*.max, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C6DD6EEF5756C185038E983CBF4A7747016ADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213471   (768177) от 17.03.2018
-
-Векторный клипарт - Happy Easter holiday with egg and flower #3 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Пасхи с яйцом и цветами
-9 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CBB239C48DD6405364AC805F38FF7FA2601CCE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213469   (768171) от 17.03.2018
-
-Векторный клипарт - Happy Easter holiday with egg and flower #2 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Пасхи с яйцом и цветами
-9 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EFA943D51407F50BAAB120295F21011887D9FB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1868182   (1067330) от 
+###  Публикация: 1868182   (1067330) от 29.04.2026
 
 NVIDIA GeForce Desktop Studio 596.36 WHQL + DCH [Multi/Ru]
 

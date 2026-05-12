@@ -1,3 +1,38 @@
+###  Публикация: 416506   (316984) от 01.12.2011
+
+Turtles - 2 albums (2003-2004) [FLAC|Lossless]<Korean,hip hop>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turtles Free 3-1
+02. 얼마나
+03. 이제부터
+04. 빙고
+05. 왜 말 안했니
+06. 고맙습니다
+07. Turtles Free 3-2
+08. 아지와 양이
+09. 내가 너라면
+10. 그렇지 않아(   Читать дальше...   )2003-2004Жанр: Korean,hip hopПродолжительность: 00:35:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 583342   (315479) от 01.12.2012
 
 Acousphere - 2 albums (2010, 2011) [MP3|160-320 кб/с]<Instrumental, New age, Acoustic guitar>
@@ -715,39 +750,6 @@ Far in the distance — Mingled Burst !!! (2010) /Doujin/ [FLAC|Lossless] <J-Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8F20020260D78EF83AF3AA9CF4B82615A43CEE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 850931   (275183) от 17.12.2014
-
-MiddleIsland - 17 альбомов (2006-2014) /Doujin/ [FLAC|Lossless] <J-Rock, Gothic Rock, Electronic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2006.12.31 (MICD-0002) Anthem - Anata e (C71)
-2007.08.17 (MICD-0003) Genjitsu Shoumei (C72)
-2007.10.08 (MICD-0004) Genjitsu Hitei (M3-20)
-…
-2011.05.01 (MICD-0011) Tryst End (M3-27)
-2012.04.30 (MICD-0105) Gensou Achromatic (M3-29)
-2014.04.27 (MICD-0201) Closed Space (M3-33)Тип издания: DoujinЖанр: J-Rock, Gothic Rock, ElectronicПродолжительность: 00:06:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57BA96F322259722945D95413C636C68770DFC7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

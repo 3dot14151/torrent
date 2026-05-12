@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1869520   (1068328) от 07.05.2026
+
+Frontmusic - Deep Chill Lounge (2026) [MP3|320 Kbps] <Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whispered Echoes Of Sunset (5:00)
+02. Ibiza Chilling Music (3:29)
+03. Better Days In Ibiza (4:13)
+04. 24 Hours Of Bossa (3:21)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:26:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:601181BED292901BABD9CFBC11EC411D45ED4234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869080   (1067852) от 03.05.2026
+
+VA - Balearic Guitar Nights, Vol. 1 (2026) [MP3|320 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Sol, Karmaloft - Let's Be Friends (Acoustic Version) (2:15)
+02. Stefano Sandrini - Beach Guitars (2:49)
+03. Hernand Rodriguez - Você Não Está Mais Comigo (2:58)
+04. Weber & Weber - Generations (5:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8DA3A66FE9FB72655AE152FB573858955AF7677
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868083   (1067398) от 
 
 VA - Electronic Lullaby, Vol. 1 (2026) [MP3|320 Kbps] <Chillout, Balearic, Downtempo, Electronic>
@@ -688,64 +746,6 @@ VA - Balearic Chill out Edition, Vol. 1 - 4 (2023) [MP3|320 Kbps] <Chillout, Bal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9843BCBEDE21650C0715D9AC9B57F7B6D9B98EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660748   (189253) от 13.09.2023
-
-VA - Bar Lounge Classics - Session 2023 (2023) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pandura - Window [02:07]
-02. W-berg - Violet Dreams [04:59]
-03. Ace Of Duty - Beyond Any Doubt [05:49]
-04. M.deppe - Be Free [03:24](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:09:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DC0C48272A259912E358536D73AC83E1A9D1449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667113   (177352) от 07.10.2023
-
-VA - The Orient Collective - Collection (2023) 8 Relise [MP3|320 Kbps] <Electronic, Lounge, World, Ethnic>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ali Termos - La Serenissima (MI.LA Remix) [05:55]
-02. Wadd - Back [06:20]
-03. Marga Sol - Mirage [06:14]
-04. Yassine H - Pyramid Vibes [05:39](   Читать дальше...   )Жанр: Electronic, Lounge, World, EthnicПродолжительность: 09:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F619A6313234779EABFD2EAF97D67A10F98998D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1002204   (848681) от 31.03.2016
+
+Elina Garanca - Aria Cantilena (2007) [FLAC|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chapi - Al pensar (Las hijas del Zebedeo)  4:56
+02.  Massenet - Werther ... Werther ...qui m'aurait dit (Werther)  7:15
+03.  Offenbach - C'est  l'amour, l'amour vainqueur! (Les Contes d'Hoffmann)  3:50
+04.  Rossini - Nacqui all'affanno (La Cenerentola)  7:35(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:745596E62A72E57EBF1E935D801C2CF55B9F314D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002208   (848680) от 31.03.2016
+
+Elina Garanca - Mozart - Opera & Concert Arias (2005) [FLAC|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chi sa, chi sa, quai sia - KV 582  3:23
+02.  La Clemenza di Tito, KV 621: 1. Akt, Nr. 2 - Deh, se piacer mi vuoi  5:59
+03.  Basta, vincesti... Ah, non lasciarmi, no - KV 486a  6:30
+04.  La finta giardiniera, KV 196: 3. Akt - Va pure ad altri  3:37(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB65A6EAA79C2A4AF0A5CDF3B47F1F3CBB93ADE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002315   (848608) от 31.03.2016
 
 Elina Garanca - Meditation (2014) [FLAC|Lossless|image + .cue] <Classical, Opera>
@@ -684,64 +742,6 @@ Symphony no. 8 in G major, op. 88
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3F7103D323DA04A51C4B898BEF9EEE83AB7ECFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004293   (837927) от 06.04.2016
-
-Harriet Krijgh - Elegy (2015) [FLAC|Lossless|tracks] <Classical>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Le carnaval des animaux: No. 13, Le cygne
-02. Klid, Op. 68 No. 5, B. 182
-03. From Jewish Life: I. Prayer (Arr. for Cello & Orchestra)
-04. Kol Nidrei, Op. 47(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AE36F885DFF6164131085627C77D92091F536F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004457   (837839) от 06.04.2016
-
-Dvorak / Дворжак - Violin Concerto, Cello Concerto (Ricci, Nelsova, Susskind) (2007) [FLAC|Lossless|tracks] <Classical, Concerto>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Violin Concerto in A minor, op. 53
-01. (1) Allegro ma non troppo - Adagio ma non troppo
-02. (2) Finale. Allegro giocoso
-(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23CEA3CD51CC2ADF607F7C49599C35D92DDEAD4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

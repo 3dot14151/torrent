@@ -1,3 +1,32 @@
+###  Публикация: 1152359   (567109) от 22.07.2017
+
+Digitalo - Say Yes (2016) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girl from Russia (Extended Version)
+02. Digitalo (Extended Version)
+03. Love Me Endlessly (Extended Version)
+04. Say Yes! (Extended Version)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 01:17:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C72244F43DF9D75579EDC4A4F6B1A08D071EAFB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304176   (567104) от 24.05.2019
 
 Linda Jo Rizzo - Greatest Hits & Remixes (2019) 2CD [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
@@ -724,32 +753,6 @@ A-ha - 25 (The Very Best of A-ha) 2CD (2010) [FLAC|Lossless]<Pop>
 08. The Sun Never Shone That Day (Radio Edit)
 09. Velvet
 10. Forever Not Yours(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 372360   (521156) от 07.08.2011
-
-Sabrina - All of Me (1988) [APE|Lossless]<Italo dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Italo danceПродолжительность: 00:37:53
 
 ## Скачать торент
 ```bash

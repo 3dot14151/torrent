@@ -1,5 +1,150 @@
 https://t.me/izofen
-###  Публикация: 1868214   (1067291) от 
+###  Публикация: 1869453   (1068238) от 06.05.2026
+
+Vera Lynn - The World Of Vera Lynn Vol. 2 (1970) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068238.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Drifting And Dreaming
+A2 If You Love Me
+A3 Dream
+A4 When I Grow Too Old To Dream(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C3D46A68F1CEC0FA021051B3AD18F8B03EE33CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869435   (1068237) от 06.05.2026
+
+Vera Lynn - The Vera Lynn Collection (1961) 2 Records Set [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068237.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Yours
+A2 You'll Never Know
+A3 Fools Rush In
+A4 (I Love You) For Sentimental Reasons(   Читать дальше...   )Жанр: PopПродолжительность: 01:25:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4405EF5B78A090311FCF763E340ABC434F1A609E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869469   (1068232) от 06.05.2026
+
+Vera Lynn - Haar 26 mooiste songs / Wereldsuccessen (1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068232.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 We'll Meet Again
+A2 Close Your Eyes
+A3 Morgen (One More Sunrise)
+A4 I'll Always Love You(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48551AB59536865BD300664F8B5BE3EB0F5B4D93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869144   (1067802) от 04.05.2026
+
+Gordon And Sheila Macrae - Our Love Story (1960) [FLAC|Lossless|image + .cue] <Pop, Musical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067802.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Gordon MacRae & Sheila Macrae - Our Love Story
+A2 Gordon MacRae - I Met A Girl
+A3 Sheila Macrae - A Wonderful Guy
+A4 Gordon MacRae & Sheila Macrae - Love Is A Simple Thing(   Читать дальше...   )Жанр: Pop, MusicalПродолжительность: 00:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D46AA3809C8B418BDAFC6287AC06F9F71A273F72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869157   (1067801) от 04.05.2026
+
+All That Remains - Studio Albums (10 releases) (2002-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067801.jpg" />
+</div>
+
+
+###  Подробнее
+
+All That Remains - американская металкор-группа из Спрингфилда, штат Массачусетс, образованная в 1998 году.2002 - Behind Silence And Solitude
+2004 - This Darkened Heart
+2006 - The Fall of Ideals
+2008 - Overcome(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 07:12:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA11BD9E2041FA85C3E1AE2D117D1A1C4CE9546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868214   (1067291) от 29.04.2026
 
 Udo Dirkschneider (U.D.O.; Dirkschneider & The Old Gang) - Studio Albums (23 releases) (1987-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
 
@@ -594,151 +739,6 @@ Anthemon - французская метал-группа, основанная 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EABFC7A71D69FB6E0CE4DD688655C8125DF030CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863974   (1063058) от 07.04.2026
-
-Doomed - Studio Albums (6 releases) (2012-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Doomed - немецкая метал-группа из Цвиккау, Саксония. Основана в 2011 году.2012 - In My Own Abyss
-2012 - The Ancient Path
-2014 - Our Ruin Silhouettes
-2015 - Wrath MonolithЖанр: Death/Doom MetalПродолжительность: 05:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:075395DEA3D5AFFEEA30D3E4FA8455A180D433E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861790   (1062842) от 27.03.2026
-
-Ram-Zet - Studio Albums (6 releases) (2000-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Avant-garde Black/Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ram-Zet — метал-группа, образованная в Хамаре, Норвегия, в 1998 году.2000 - Pure Therapy
-2002 - Escape
-2005 - Intra
-2009 - NeutralizedЖанр: Avant-garde Black/Gothic MetalПродолжительность: 05:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A95A21B2EECA0323C004D8EAE61EA5B43C0D10C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861574   (1062841) от 27.03.2026
-
-Harry Secombe With Myrna Rose - Sings The Songs Of Ivor Novello (1967) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Stage & Screen, Romantic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062841.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Glamorous Night
-A2 I Can Give You The Starlight
-A3 My Dearest Dear
-A4 We'll Gather Lilacs(   Читать дальше...   )Жанр: Pop, Stage & Screen, RomanticПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D25151811B6EB0FEBE45C913480E510121B286E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861306   (1062562) от 25.03.2026
-
-The Melachrino Strings And Orchestra - Moods In Music: Music For Relaxation (1952) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop, Classical, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062562.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Berceuse De Jocelyn (Godard)
-A2 Autumn Leaves (Kosma)
-A3 While We Were Young (Wilder, Palitz, Engvick)
-A4 Star Dust (Carmichael, Parish)(   Читать дальше...   )Жанр: Pop, Classical, Easy ListeningПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AF6F8F5DC0DB5FFD9B5BA1B354595AD1D2DD1BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861317   (1062561) от 25.03.2026
-
-Samael - Studio Albums (13 releases) (1991-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Black Metal, Electronic/Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Samael — швейцарская метал-группа, образованная в Сьоне в 1987 году.1991 - Worship Him
-1992 - Blood Ritual
-1994 - Ceremony of Opposites
-1995 - Rebellion (EP)Жанр: Black Metal, Electronic/Industrial MetalПродолжительность: 11:01:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C328119F4D64421615CC302566D60D9E257C05FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

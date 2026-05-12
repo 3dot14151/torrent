@@ -1,3 +1,32 @@
+###  Публикация: 1400408   (719016) от 05.08.2020
+
+VA - Italo Disco 80 Legends, Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Den Harrow - A Taste of Love (Radio Version) (3:17)
+02. Iudy - The Island of the Sun (Turutu?-Tutu) (Radio Version) (2:51)
+03. Ram Band - Silent Smiles (Radio Version) (3:44)
+04. Time With George Aaron - Don't Stop (Radio Version) (3:42)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CF0853893DD547936BB135AA63970E461FE472D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400405   (718849) от 05.08.2020
 
 VA - Italo Disco 80 Legends, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
@@ -721,35 +750,6 @@ The Three Degrees - Greatest Hits (1998) [FLAC|Lossless|image + .cue] <Disco, So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1A44A42E2C91A06CFA0AB1B5EEF788BA501E79D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539709   (657142) от 26.03.2022
-
-VA - Turbo Disco - Лучшие Хиты Дискотек (2001) [FLAC|Lossless|tracks + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eruption - One Way Ticket
-02. A La Carte - Doctor, Doctor (Help Me Please)
-03. Bad Boys Blue - Kiss You All Over, Baby
-04. Grant Miller - Wings Of Love(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:16:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:594C4E23183E8383C140C080F71861D54FA5CAE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

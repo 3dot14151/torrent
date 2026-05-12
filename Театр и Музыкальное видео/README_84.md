@@ -1,3 +1,116 @@
+###  Публикация: 941453   (461682) от 27.09.2015
+
+Rammstein - In Amerika (Disc 1) (2015)  BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rammstein  выпустили DVD «In Amerika». С триумфом вернулись в США 12 ноября 2010 года, выступив перед толпой в 18.000 человек на сцене Madison Square Garden в Нью-Йорке. Спустя пятилетие, 25 сентября этого года концерт под названием «Live From Madison Square Garden» получит официальный релиз на 2DVD и 2Blu-ray стараниями лейбла Island/UMe. Соединив зажигательное выступление (   Читать дальше...   )01. Rammlied
+02. B*********
+03. Waidmanns Heil
+04. Keine Lust(   Читать дальше...   )Жанр: Industrial Metal, NDHПродолжительность: 01:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FAC759358A754463653F3C68399EFB1FD6AE65B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246532   (461419) от 11.09.2018
+
+Квартирник на НТВ у Маргулиса. Сергей Воронов и группа CrossroadZ (09.08.2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461419.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гости к ведущему Евгению Маргулису пришел Сергей Воронов и группа Crossroadz. За 25 лет существования они много экспериментировали со стилем, а выход за рамки блюзовой структуры помог группе найти неповторимое звучание и преданных слушателей всех возрастов. Музыкант рассказал, почему раньше не исполнял блюз на русском языке, и вспомнил, как попал в музыкальный (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCE470D9D2439384CD6F59BB9D02BC18451EE8A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 703143   (461351) от 25.09.2013
+
+Beat Club - Progressive Times - Vol7. 1971-72 (2009) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Purple - Highway Star
+02. Curved Air - Back Street Luv
+03. Canned Heat - Big City
+04. Deep Purple - No, No, No(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAE55149788FE0D04E75C285B380754338948578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 703774   (461254) от 25.09.2013
+
+Beat Club - Progressive Times - Vol8. 1972 (2009) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Livin' Blues - Livin' Blues Boogie
+02. Nazareth - Morning Dew
+03. Atomic Rooster - Break Through
+04. Guru Guru - Oxymoron(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E41BC1703639272C2EA8432A6C724A804B70D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 549841   (460735) от 21.09.2012
 
 Shanell - Touch Me Daddy (2012) [H.264/1080p] WEBRip
@@ -591,139 +704,6 @@ ATB - Could You Believe (2010) [1080p / 1080i] HDTVRip (Trance)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF885A3CD5FB8E4C75993E8697CA519642B67925
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 388766   (455837) от 18.09.2011
-
-Foreigner - Rockin' At The Ryman (2010) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живой концерт ветеранов рока Foreigner 16 марта 2010 в Ryman Theatre - Nashville, USA01. Double Vision
- 02. Head Games
- 03. Cold As Ice
- 04. In Pieces(   Читать дальше...   )Жанр: Концерт, Melodic RockПродолжительность: 01:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:819A84CAD8434560A606EC3E24431EF66B8C310B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 388947   (455669) от 18.09.2011
-
-Группа Нэнси - Дым сигарет с ментолом - 15 лет (2008) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юбилейный сборник группы Нэнси01. Дым сигарет с ментолом (Live exclusive show)
-02. Чистый лист (Видеоклип)
-03. Отель (Видеоклип)
-04. Свадьба знатная (Live exclusive show)
-05. Светлана (Live exclusive show)
-06. Туман-туман (Live exclusive show)
-07. Горько плакала ива (Видеоклип)
-08. Дым сигарет с ментолом (Видеоклип)
-09. Ты далеко (Видеоклип)
-10. Деловой человек (Live exclusive show)Жанр: Музыкальное видеоПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C1D66BB6CF300486423EBBD6E365C7B88FE6A48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942224   (455158) от 30.09.2015
-
-Rammstein - In Amerika (2015) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rammstein выпустили DVD «In Amerika». С триумфом вернулись в США 12 ноября 2010 года, выступив перед толпой в 18 000 человек на сцене Madison Square Garden в Нью-Йорке. Спустя пятилетие, 25 сентября этого года концерт под названием «Live From Madison Square Garden» получит официальный релиз на DVD и Blu-ray стараниями лейбла Island Records и Universal Music Enterprises. (   Читать дальше...   )01. Rammlied
-02. B********
-03. Waidmanns Heil
-04. Keine Lust(   Читать дальше...   )Производство: Германия | Island Records, Universal Music EnterprisesЖанр: Industrial Metal, Hard Rock, NDHРежиссер: Ханнес РоссачерПродолжительность: 01:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D12E512B86569337603EDFCECBCEF857AC589F54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550793   (455017) от 23.09.2012
-
-Слэйд / Slade The Complete Video Collection (1971-1982) (2008) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455017.jpg" />
-</div>
-
-
-###  Подробнее
-
-На данной видео коллекции  Slade - редкие видео выступлений группы в телевизионных передачах 70-х годов:
-  - Beat-Club
-  - Musikladen
-  - Disco
-  - Top Of The Pops
-(в хорошем качестве VH1)Slade 71-82
-
-1. Get Down And Get With It (promo) (1971)
-2. Coz I Luv You (Top Of The Pops, 1971)
-3. Hear Me Calling (Beat-Club, 28.11.71)
-4. Look Wot You Dun (promo) (1972)
-5. Mama Weer All Crazee Now (Disco, 09.12.72)
-6. Gudbye T’Jane (TOPPOP, 1972)
-7. Bangin’ Man (Disco, 26.10.74)
-8. Far Far Away (Disco, 01.02.75)(   Читать дальше...   )Жанр: Hard Rock, Glam Rock, Classic RockПеревод: ОтсутствуетПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B39CC89DA6E7313C75344D858BC74FF972EA27
 ```
 
 https://mybot314.ru/tekegram_catalog/

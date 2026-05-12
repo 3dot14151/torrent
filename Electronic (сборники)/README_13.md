@@ -1,3 +1,32 @@
+###  Публикация: 1487073   (1004153) от 03.08.2021
+
+VA - Tropical Jungle Club (2021) [MP3|320 Kbps] <Drum & Bass, Jungle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004153.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dynamite MC - It's Just What Lovers Do
+002. Amplify - Omg
+003. Brusten - In Motion
+004. Fushara - The Rave(   Читать дальше...   )Жанр: Drum & Bass, JungleПродолжительность: 08:08:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A640BD378EEB20A04796AE0857B45763D819375B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487074   (1004136) от 03.08.2021
 
 VA - Trance Energy: Emotional Electro Mix (2CD) (2021) [MP3|320 Kbps] <Trance, Progressive, Uplifting>
@@ -716,35 +745,6 @@ VA - Beatport Deep House: Sound Pack #329 (2021) [MP3|320 Kbps] <Deep House, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFBEFE92CCE98A975E4513E25267AA081C75C07E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488398   (1002069) от 11.08.2021
-
-VA - Dream Synthetic: The Relax Electronic Mix (2021) [MP3|320 Kbps] <Synthetic, Chill Electronic, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002069.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Patrick Cowley - Moving Bodies I
-002. Handshaking - Countryside Mailbox
-003. Mmyylo - Inurhead
-004. Mike Rish - In The Woods(   Читать дальше...   )Жанр: Synthetic, Chill Electronic, SynthwaveПродолжительность: 11:07:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A132BBB07B69CECE93E85DEFBEFB5F031CD2304
 ```
 
 https://mybot314.ru/tekegram_catalog/

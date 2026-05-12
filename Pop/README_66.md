@@ -1,3 +1,319 @@
+###  Публикация: 1000935   (855638) от 27.03.2016
+
+Awa Ly - Five and a Feather (2016) [MP3|256 кб/с] <Pop, R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Storyteller
+02. Let You Down
+03. Let Me Love You
+04. Help You Out(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB40447750D854D2258CF2A62E923C49AF89F05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110176   (855554) от 01.03.2017
+
+VA - High Life - 20 Original Top Hits (1977) LP [MP3|320 Kbps] <Electronic, Pop, Pop-Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Belle Epoque - Black Is Black (5:12)
+02. The Rubettes - Ooh-La-La (3:38)
+03. Jean Michel Jarre - Oxygene IV (3:34)
+04. Baccara - Yes Sir, I Can Boogie (4:35)(   Читать дальше...   )Жанр: Electronic, Pop, Pop-Rock, DiscoПродолжительность: 01:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98373E85988692B44A08B0C5816C846D54F4F9CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 647709   (854882) от 24.04.2013
+
+Анне Вески - Позади крутой поворот. Лучшее (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Позади крутой поворот
+02. Синий иней
+03. Продлись, счастье
+04. Самба с Марадоной(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D34FAE90F308718BF6BB512D6D6B22DE0316EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 876004   (853944) от 08.03.2015
+
+Ёлка - #Небы (2015) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нарисуй мне небо
+02. Хочу
+03. Тело офигело
+04. Одна(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B152EDE8B19FE5E2E58D54772FB8570F8CA1DBBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001333   (853915) от 28.03.2016
+
+Maryla Rodowicz - Wsiasc Do Pociagu (1978) Reissue, 2013 [MP3|320 кб/с] <Jazz, Vocal, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remedium    05:45
+02. Byłam sama, jestem sama    03:55
+03. Gasnie koral    03:10
+04. Gaj    03:15(   Читать дальше...   )Жанр: Jazz, Vocal, PopПродолжительность: 00:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0819FCE5FDFDD0A60A6A9C31706104B1E7244654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110483   (853811) от 02.03.2017
+
+VA - Clubbers Culture Electronic Disco Lovers (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abel Moreno – Dark Muse  05:24
+02. Drizzt – Alien Landscape  05:22
+03. Boy Funktastic – Kanos  05:59
+04. Incuebation – Little Lion  08:26(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F71C825E51B692E070FDA70C44BD61A91B6B80F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001011   (853789) от 28.03.2016
+
+Gino Soccio - 4 Albums, 1 Compilations (1979-1984) [MP3|320 кб/с] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1979. Outline
+1980. S-Beat
+1981. Closer(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 03:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DAD71CD24641937B09847B2D363A767FCE3BA9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001390   (853703) от 28.03.2016
+
+VA - Давид Тухманов - Вечная весна: Избранные песни (2001) [FLAC|Lossless|image + .cue] <Ретро, Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853703.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Наши любимые - ВИА "Песняры"
+2. Вечная весна - Валерий Ободзинский
+3. Соловьиная роща - Лев Лещенко
+4. Чистые пруды - Игорь Тальков(   Читать дальше...   )Жанр: Ретро, PopПродолжительность: 01:04:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A5D0F2FFDA49B244BBC859ABD83DECBA079920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110472   (853685) от 02.03.2017
+
+Tokio Hotel - Dream Machine (2017) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something New
+02. Boy Don't Cry
+03. Easy
+04. What If(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2687E615736FE6183F8BC6F9EDA023C8F56F2DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110298   (853677) от 02.03.2017
+
+VA - Disco Fox 80 Vol.7 (The Original Maxi-Singles Collection) (2016) [MP3|320 Kbps] <Euro-Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  T. Ark - Under Cover Lover (12'' Version)  6:13
+02.  Bad Boys Blue - Hungry For Love (12'' Version)  5:57
+03.  Mike Mareen - Dancing In The Dark (Galactica Remix)  7:09
+04.  The Twins - Time Will Tell (Dance Mix)  6:50(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:393EBAE5576856B6CBC05E6D830197DBDC6DAE9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109797   (853594) от 02.03.2017
+
+Артём Пивоваров - Дискография (2013-2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 02:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7BEE1E04B786353D594BB88C6A13B1155B8553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377207   (853567) от 21.04.2020
 
 Marc Almond - Chaos and a Dancing Star (2020) [FLAC|Lossless|tracks + .cue] <Synthpop, Indie Pop>
@@ -426,333 +742,6 @@ VA - Горячие хиты весны (2013) [FLAC|Lossless]<Рор,Dance,>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 876929   (850719) от 10.03.2015
-
-VA - Pure... movies (2010) Box Set, 4CD [FLAC|Lossless]<Pop, Rock, Saundtrack>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотел зарелизить этот бокссет к вручению Оскаров, даже рип сделал, но замотался-закрутился и вот только сейчас руки дошли.
-Sony Music в очередном своем сборнике собрала треки к фильмам с 1961 по 2009 годы. Получилась подборка с очень даже неплохой ретроспективой, в которой уже подзабытые сюжеты фильмов сочетаются с раскрученными мелодиями.
-Мне уже приходилось писать, (   Читать дальше...   )CD1:
-01. Ray Parker Jr. - Ghostbusters  (4:01)
-02. Billy Ocean - When the Going Gets Tough, the Tough Get Going  (4:10)
-03. Survivor - Eye of the Tiger  (3:49)(   Читать дальше...   )Жанр: Pop, Rock, SaundtrackПродолжительность: 04:16:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF25B4E6929A19D40692FEF8C5BF26523A58E39D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001748   (850263) от 30.03.2016
-
-Munich Machine - 3 Albums (1977-1979) [MP3|320 кб/с] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из основоположников стиля "диско" Джорджио Мородер (Giorgio Moroder, настоящее имя Hansjoerg Moroder) родился в Италии,в городе Ортисеи, 26 апреля 1940 года. В роду у него было много известных и талантливых людей, среди которых были скульпторы, художники, писатели, поэтому никто не сомневался в наличии у Джорджио таланта. В период 1976-77 годов Мородер (   Читать дальше...   )Список альбомов:
-1977. Munich Machine
-1978. A Whiter Shade Of Pale
-1979. Body Shine(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7F088BE3D82964DD9EA0829EEB2A993B4701B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110875   (850248) от 04.03.2017
-
-Tokio Hotel - Dream Machine (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something New (5:22)
- 02. Boy Don't Cry (3:33)
- 03. Easy (4:25)
- 04. What If (3:32)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47969E33E5B4F553CD9D46526371368992C6F1DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110984   (850181) от 04.03.2017
-
-VA - Hit Music 2017 Vol 1 (2017) [MP3|320 Kbps] <Pop, Hip Hop,  Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd Feat. Daft Punk – I Feel It Coming 04:26
-02. Bruno Mars – 24K Magic 03:45
-03. Shakira Feat. Maluma – Chantaje 03:13
-04. Jax Jones & Raye – You Don’t Know Me 03:32(   Читать дальше...   )Жанр: Pop, Hip Hop,  RockПродолжительность: 01:20:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3731D0A4682D4E819A7793DA526BF515FD5C3058
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377929   (850170) от 23.04.2020
-
-Sixtine - Sweet Sixteen (2014) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Alternative Pop, Disco, Dancefloor>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:35)
- 02. The Love Disease (5:12)
- 03. Private Inter-Com (4:04)
- 04. Raincheck (4:29)(   Читать дальше...   )Жанр: Electronic, Alternative Pop, Disco, DancefloorПродолжительность: 00:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09F434E40D20262CB236A2EB0A167F8C718475C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378022   (850001) от 23.04.2020
-
-Banoffee - Look at Us Now Dad (2020) [FLAC|Lossless|Web-DL|tracks] <Indie Pop, Alternative Rock, Trip Hop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tennis Fan (2:50)
-02. I Lied (Interlude) (0:35)
-03. Fuckwit (3:45)
-04. One Night Stand (3:10)(   Читать дальше...   )Производство: CascineЖанр: Indie Pop, Alternative Rock, Trip HopПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50DB6D2786E3F9ADE48E18C5D5A1E547D466A43C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 191925   (849867) от 13.04.2010
-
-VideoKids - The Invasion Of The Spacepeckers (1995) [MP3|320 kbps]<Pop, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Do the rap [3:37]
-02 - Cartoney tunes [4:24]
-03 - La bamba [4:13]
-04 - I'm a rock and roll pecker [2:30]
-05 - Communication outer space [3:10]
-06 - Woodpeckers from space [5:59]
-07 - Give me that banana [4:07]
-08 - Do you like surfing [3:24]
-09 - Sky rider [3:15]
-10 - Woodpeckers from space'94 (Club Mix Long) [5:18]Жанр: Pop, Italo-Disco
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110867   (849787) от 04.03.2017
-
-Ed Sheeran - Divide (2017) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Eraser (3:48)
-02.  Castle On The Hill (4:21)
-03.  Dive (3:58)
-04.  Shape Of You (3:54)(   Читать дальше...   )Производство: Asylum Records, Atlantic – 0190295859008Жанр: PopПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED16100CA8A52FDE69556D8388C8A5C30F392C14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499348   (849647) от 01.10.2021
-
-Robert Ponger - Robert Ponger (1979) Reissue LP, 2021, Edition Hawara [MP3|320 Kbps] <Electronic, Disco, Funk, Soul-Jazz, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Train (4:24)
-02. Johnny's Discothek (3:58)
-03. Nights In The City (4:33)
-04. In The Middle Of The Night (4:44)(   Читать дальше...   )Жанр: Electronic, Disco, Funk, Soul-Jazz, Synth-popПродолжительность: 00:49:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5DCC8924365201CCE343186C349E5D333BA88F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002467   (848994) от 31.03.2016
-
-Lexi Strate - Waves (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diamond Eyes
-02. Out Of My Head
-03. Tattoo
-04. Miss Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A144A4B30714CFC7063142DE7091C2591DF4A3A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002091   (848990) от 31.03.2016
-
-Krystal Meyers - Make Some Noise (2008) [MP3|320 кб/с] <Electro, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make Some Noise (03:14)
-02. Love It Away (03:40)
-03. Shine (03:34)
-04. S.O.S. (03:17)(   Читать дальше...   )Жанр: Electro, Pop RockПродолжительность: 00:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38F5F9343A9CE202B6A97FE17991862387290A6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

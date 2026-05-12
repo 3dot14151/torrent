@@ -1,48 +1,22 @@
-###  Публикация: 1643197   (234124) от 30.06.2023
+###  Публикация: 1551287   (235135) от 15.05.2022
 
-FX Player Pro 3.6.3 Mod by Mixroot [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234124.jpg" />
-</div>
-
-
-###  Подробнее
-
-FX Player Pro - универсальный медиаплеер который станет весьма полезным на любом мобильном устройстве. Поддержка огромного количества форматов аудио и видео (MKV, RM, ACC PLUS, FLAC и прочие), определение субтитров, высокое качество выведения на экран, а так же удобное управление (возможность настройки действий, жестов и так далее присутствует в полном объёме) понравится (   Читать дальше...   )Тип издания: ProРелиз состоялся: 29.06.2023Разработчик: FIPE LabsПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:593E3632B6D9CBD91FE3530CEB9E55ED225232E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633700   (234123) от 16.05.2023
-
-PDFCreator 5.1.1 [Multi/Ru]
+MiniTool Partition Wizard Pro 12.6 (акция Comss) [Multi]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235135.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PDFCreator –  бесплатная программа для конвертирования документов в формат PDF. Принцип работы программы простой – берете документ, который хотите конвертировать, посылаете его на печать в виртуальный принтер, созданный PDFCreator, а потом сохраняете его в выбранном Вами формате. Данный инструмент позволит сохранять документы в таких форматах - PDFs: JPG, BMP, TIFF, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+MiniTool Partition Wizard - менеджер для работы с разделами жесткого диска. С его помощью можно изменять размер раздела, создавать новый раздел на жестком диске, удалять и форматировать уже существующие разделы. Позволяет работать не только с отдельными жесткими дисками, но и дисками, объединенными в RAID-массивы.Язык интерфейса: Английский и другие (русского нет)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F44DD4218A13B5A68D579D6D6CC2093CF92CC08E
+magnet:?xt=urn:btih:2FBAD87C022473DF2A13E74654260DA881AAAF25
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622875   (234122) от 30.03.2023
+###  Публикация: 1632743   (235134) от 11.05.2023
 
-Raptor King - Omnivoracious (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Technical Death, Thrash Metal>
+Артур Кларк | Паразит (2023) [MP3, Puffin Сafe]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235134.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Vortex Passenger [00:03:47]
-02. Omnivoracious [00:04:21]
-03. Gambit [00:03:09]
-04. Crocstorm [00:03:51](   Читать дальше...   )Жанр: Modern Metal, Technical Death, Thrash MetalПродолжительность: 00:42:46
+"Конноли всегда любил шумные компании и неоднократно обжигался на супружеских изменах, не извлекая из этого уроков. Вдруг обрубив все контакты со внешним миром он вернулся на остров его детства. Виной всему некий паразит, поселившийся в его сознании и питающийся эмоциями. Подозревая, что друга мучает чувство вины, создающее причудливые самооправдания, за ним (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 00:32:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA2D3E33BD1D38A606E00CBB6C6C2012FCB5AD3B
+magnet:?xt=urn:btih:2F8CAB4AB06DD955011E3D5B6D8A7B8F65717DD4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,168 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640575   (234121) от 18.06.2023
+###  Публикация: 1536440   (235133) от 12.03.2022
 
-Pro Microphone: Audio Recorder 1.4.13 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Студия звукозаписи и записи музыки. Для начинающих певцов или тех, кто хочет, чтобы их услышали - Pro Microphone. Сделайте свой голос громче. Пойте и сохраните все свои треки, выберите разные микрофоны под свое настроение. Профессиональный студийный микрофон всегда на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 09.05.023Разработчик: © 2021 Music Paradise, LLCПоддерживаемая ОС: macOS 10.13.2+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F39B3B689616A881B724169DDF29364CB0E8151A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577747   (234120) от 20.09.2022
-
-Чайки (2022) WEBRip [H.264/720p] (сезон 1, серии 1-16 из 16)
-
->>Отечественные сериалы
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234120.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Чайка» — название женской волейбольной команды из Калининграда, которую вынужден возглавить тренер Максим Тополь — человек резкий, со сложным, неуступчивым характером. Он намерен вывести команду в чемпионы страны. На пути к победе ему придется не только разбираться в себе и непростых отношениях с дочерью-подростком, но и решать проблемы своих подопечных. У каждой (   Читать дальше...   )Производство: Россия | «Марс Медиа Энтертейнмент»Жанр: мелодрама, спортРежиссер: Антон СиверсАктеры: Михаил Пореченков, Александра Богданова, Равшана Куркова, Юрий Чурсин
-Юлия Мельникова, Иева Андреевайте, Кирилл Варакса, Марина Гончарова, Юлия Макарова, Мария СтоляроваПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0B2DCBA1FA2EEE2F313CC26CFFFB97C01617983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633674   (234119) от 16.05.2023
-
-VA - Summer Megamix 2023 [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klaas - One Two Step [02:09]
-02. Block & Crown - Masterplan (Original Mix) [04:48]
-03. Steve Modana - Video Games [02:26]
-04. Shaun Baker - Do It All Night [02:29](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A62A5C3B60E8DB0638C1E9FA67837584A48EE0BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278756   (234118) от 20.05.2022
-
-Vangelis - Nocturne (2019) [FLAC|Lossless|WEB-24Bit] <New Age, Classical Crossover>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nocturnal Promenade (05:51)
-02. To the Unknown Man (05:14)
-03. Irina Valentinova – Mythodea - Movement 9 (03:48)
-04. Moonlight Reflections (03:10)(   Читать дальше...   )Жанр: New Age, Classical CrossoverПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53C4FC8B31D27B9F6B7E28049B90CB3C5B49BCE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547332   (234117) от 02.05.2022
-
-Slomatics & Domkraft - Ascend/Descend (2022) Split [MP3|320 Kbps] <Psychedelic Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Domkraft - The Core Will Pull You Home [00:07:56]
-02 Domkraft - The Brush Descends The Length (Stereolab cover) [00:03:39]
-03 Domkraft - And Yet It Moves (Slomatics cover) [00:08:03]
-04 Slomatics - Positive Runes [00:08:02](   Читать дальше...   )Жанр: Psychedelic Sludge MetalПродолжительность: 00:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A300F68D6FF757A2F33FA087BF97DC3AE02CAD30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496562   (234116) от 13.10.2021
-
-VA - Smooth Jazz n Chill 5 (2020) [AAC|~347 Kbps] <Jazz>
+Papik - Papik Presents Cocktail Mina, Vol. 2 (2022) [AAC|~319 Kbps] <Nu Jazz, Soul, Lounge>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235133.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kayla Waters - Full Bloom (4:10)
-02. Nick Colionne - Let's Get Serious (4:07)
-03. Catie Waters - Moonlight (4:18)
-04. Cindy Bradley - Stockholm Summer (4:55)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:04
+01. Papik, Alessandro Pitoni - Se Telefonando (3:27)
+02. Papik, Frankie Lovecchio, Claudia Arvati - Acqua e Sale (4:29)
+03. Papik, Stefy Gamboni - Volami Nel Cuore (3:00)
+04. Papik, Alan Scaffardi - L'Amore Forse (3:52)(   Читать дальше...   )Жанр: Nu Jazz, Soul, LoungeПродолжительность: 01:16:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B926C5D80A031915F9850D2435FCC4100347BA5A
+magnet:?xt=urn:btih:D9B95089B707CA4A1160B27450EB2E223184354B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -248,28 +79,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633637   (234115) от 16.05.2023
+###  Публикация: 1465195   (235132) от 25.04.2021
 
-VA - Summer Pop 100 (2023) [MP3|320 Kbps] <Pop>
+IconFly 3.10.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235132.jpg" />
+</div>
+
+
+###  Подробнее
+
+IconFly позволяет легко создавать иконки в различных форматах для приложений Mac, iPhone, IPad и Apple Watch. Кроме того, IconFly позволяет создавать иконки для Android-приложений, а также веб-иконки и значки. IconFly активно поддерживается и постоянно обновляется.
+IconFly проста в использовании. Просто перетащите изображение в приложение, нажмите кнопку «Создать» (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.04.2021Разработчик: Aperio Lux TeamПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F5D884509A94612ADB06D9C1507D64D3DBBB0ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632630   (235131) от 11.05.2023
+
+VA - The Universal - 90's Easy (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235131.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. The Veronicas - Untouched (4:15)
-002. Kid Rock - All Summer Long (4:57)
-003. Big Mountain - Baby, I Love Your Way (4:09)
-004. Duran Duran - Rio (U.S. Remix) (5:25)(   Читать дальше...   )Жанр: PopПродолжительность: 06:20:33
+01. Blur - The Universal
+02. Seal - Kiss from a Rose
+03. Diddy, Faith Evans, 112 - I'll Be Missing You (feat. Faith Evans & 112)
+04. Duran Duran - Ordinary World(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 03:35:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:406CC4DD3D45253BBD3A2736F362154EE61B8F68
+magnet:?xt=urn:btih:D1DE506E445488F1A9050CD5A3094F1EE00074AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -277,57 +135,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577968   (234114) от 20.09.2022
+###  Публикация: 1642886   (235130) от 29.06.2023
 
-Microsoft Windows 10.0.19043.2006, Version 21H1 (Updated September 2022) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 May 2021 Update (под кодовым названием "21H1") является одиннадцатым крупным обновлением Windows 10 в качестве накопительного обновления для обновления за октябрь 2020 года и имеет номер сборки 10.0.19043.
-
-Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.2006.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C6F559D4E46F0CBA5B68B361EB9386C96828272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623210   (234113) от 31.03.2023
-
-Tilintetgjort - In Death I Shall Arise (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-garde Black Metal>
+Walk With Titans - Olympian Dystopia (2023) [MP3|320 Kbps] <Power Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kvikksolvdrommer 6:59
-02. Sannhetens Soyler 4:50
-03. Mercurial 6:54
-04. Vinter og Host 4:21(   Читать дальше...   )Жанр: Avant-garde Black MetalПродолжительность: 00:46:42
+01. Herakles
+02. Edge Of Time
+03. Gods Of The Pantheon
+04. As Titans Fall(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA15A55D14A6817A9CA065E2BDAA4DB7B8F5FAD1
+magnet:?xt=urn:btih:45823E6FFBE49E4659EADFA054FD0AEFC211D4A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -335,83 +164,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640533   (234112) от 18.06.2023
+###  Публикация: 1620251   (235129) от 19.03.2023
 
-Bill Heid - Dealin' Wid It (2022) Savant [FLAC|Lossless|tracks + .cue] <Soul-Jazz, Post-Bop, Organ Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dealin' Wid It [5:33]
-02. Cho Soup [7:03]
-03. It's a Living [5:34]
-04. Four to One [7:12](   Читать дальше...   )Жанр: Soul-Jazz, Post-Bop, Organ JazzПродолжительность: 01:02:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28DF5B535B22929810C008DD22A64A7E20D4ED82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552424   (234111) от 20.05.2022
-
-Флешбэк / Memory (2022) WEB-DLRip [H.264/1080p-LQ] [Звук TS] [AD]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алекс Льюис, профессиональный киллер с репутацией, в какой-то момент пошел против ветра, и теперь вынужден отбиваться и от ФБР, и от криминального босса. Все потому, что убийца отказался нарушить свой внутренний кодекс.Производство: США / Arthur Sarkissian Productions, Black Bear PicturesЖанр: Боевик, триллерРежиссер: Мартин КэмпбеллАктеры: Лиам Нисон, Гай Пирс, Тадж Атвал, Арольд Торрес, Рэй Фиарон, Моника Беллуччи, Миа Санчес, Даниэль Де Бург, Натали Андерсон, Ребекка КалдерПеревод: Дублированный (Звук TS)Язык озвучки: РусскийСубтитры: Английский (хардсаб)Продолжительность: 01:53:12Реклама: Присутствует баннер!
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547464   (234110) от 02.05.2022
-
-Sideless - Choose the Way (2022) [MP3|320 Kbps] <Heavy Progressive Rock>
+Convoy - Some Gave All for Rock n Roll (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Strange Illusion [00:07:10]
-02 - Chains [00:05:10]
-03 - Without a Soul [00:05:13]
-04 - Away [00:05:12](   Читать дальше...   )Жанр: Heavy Progressive RockПродолжительность: 00:54:25
+01 - Nuthn Left
+02 - Let It Roll
+03 - Almost Lost My Mind
+04 - Hero(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F6F33D9F016E5D95820CF1E82945DEC906979D2
+magnet:?xt=urn:btih:5F2FC2A68BA0105537CF65C555C89A29539DF8E7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -419,131 +193,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633677   (234109) от 16.05.2023
+###  Публикация: 1465185   (235128) от 25.04.2021
 
-Bulk Image Downloader 6.24.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bulk Image Downloader (BID) - это программа для загрузки изображений с сайтов, которые представлены на странице в виде миниатюр, уменьшенные изображения из галереи, минуя все всплывающие окна и рекламу. Также она может извлекать изображения из сохраненных HTML-страниц или текстовых файлов, содержащих ссылки и веб-страниц, где ссылки на изображения указаны в виде (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B40257195E4DB5733BC37F193B0D0696BFAF959
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643077   (234108) от 30.06.2023
-
-Смертельная ночь / Dead Night (2017) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заботливая мать теряет рассудок и запускает цепочку событий, которые приведут к трагедии и убийствам.Производство: США, M3 Alliance LimitedЖанр: ужасы, фэнтезиРежиссер: Брэд БарухАктеры: Бриа Грант, Софи Дала, Дэниэл Робак, Барбара Крэмптон, Эй Джей Боуэн, Элиз Вагнер Лутман, Джошуа Хоффман, Джой Османски, Кэй Д’Арси, Скай СолейлПеревод: Многоголосый профессиональный (Киноужас)Язык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: 01:22:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C429FEF4FDD3736B065B46A21565602A6B20B3EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633689   (234107) от 16.05.2023
-
-Maxthon Browser 7.0.2.2000 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Maxthon Browser — многофункциональный браузер со множеством встроенных полезных возможностей. Из наиболее важных особенностей Maxthon Browser следует отметить использование двух движков (Trident и WebKit), качественное отображение HTML5, безопасность серфинга, многоплатформенность и широкое использование облачных технологий.
-Все это позволяет Maxthon Browser быстро (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:562E24303C111FA95B5B1D3B69B52B7B2BECA2EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560441   (234106) от 20.09.2022
-
-RWBY: Hyousetsu Teikoku | RWBY: Ice Queendom | RWBY: Ледяная империя [2022, TV, 12 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в мире, где обитают жуткие монстры, несущие смерть и разрушение, а единственной надеждой человечества являются Охотники и Охотницы. Руби Роуз, Вайсс Шни, Блэйк Белладонна и Ян Сяо Лун — четыре Охотницы в процессе обучения, которым предстоит отправиться в путешествие, ведущее далеко за пределы их школы, Академии Маяк. Каждая из них сильна (   Читать дальше...   )Производство: студия Shaft / シャフトЖанр: приключенияРежиссер: Окада КэндзироПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE25524CB4CA9139E210DB5F41CBA3BA2C670D70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640609   (234105) от 18.06.2023
-
-Professional Recorder & Editor 6.3.6 [Multi/Ru]
+System Toolkit 3.4.0 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235128.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Точность, простота и эффективность — вот три правила, реализованные в нашем профессиональном рекордере. Это приложение предлагает вам только самые необходимые функции, которых вполне достаточно для качественного редактирования. Элегантный интерфейс и мощные эффекты помогут вам открыть новые горизонты звука.
-Просто загрузите аудиофайл, и вы увидите его в виде волны. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.06.2023Разработчик: © 2022 Music TopiaПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
+System Toolkit - приложение «все-в-одном» для мониторинга информации и профилактики, разработанное для macOS.Тип издания: macOS SoftwareРелиз состоялся: 25.04.2021Разработчик: Sascha SimonПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Упрощенный Китайский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00B48654C116104BCF62313C53C5E9ED80892EF5
+magnet:?xt=urn:btih:7806831EEB1720D27734F9E85509FECF8B415894
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -551,28 +219,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496558   (234104) от 13.10.2021
+###  Публикация: 1632714   (235127) от 11.05.2023
 
-VA - Smooth Jazz n Chill 3 (2018) [AAC|~310 Kbps] <Jazz>
+Light Image Resizer 6.1.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235127.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tim Bowman - Soul Dream (5:03)
-02. Cindy Bradley - You Don't Know What Love Is (7:00)
-03. Oli Silk - Seasons Change (4:02)
-04. Julian Vaughn - All to Myself (4:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:37
+Light Image Resizer - программа для изменения размеров цифровых картинок и изображений в различных графических форматах (на данный момент поддерживается работа с файлами JPEG, GIF, BMP, TIFF, CR2, NEF и т.д.). Также в утилите имеются возможности для компрессии файлов, конвертирования из одного формата в другой, экспорта, наложения и управления картинками. Light Image (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC4FA69C3DE9EA5D66E4F6F6305DD16515808458
+magnet:?xt=urn:btih:D204247850308970C757CDFB88B480E608FBB54C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -580,25 +245,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550748   (234103) от 20.05.2022
+###  Публикация: 1632738   (235126) от 11.05.2023
 
-Тихоокеанский рубеж: Тёмная зона / Pacific Rim: The Black (2022) WEBRip (сезон 2, серии 1-7 из 7) NewStation
+Музыка сердца / Music of the Heart (1999) HDRip [МVO]
 
->>Мультфильмы
->>Зарубежные Мультсериалы
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235126.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Давным-давно из морских пучин восстали гигантские чудовища, но встретили сопротивление егерей — специально разработанных роботов. Время прошло. Теперь монстры наводнили Австралию, и жителям всего континента приходится эвакуироваться. Два подростка — брат с сестрой Тейлор и Хейли — остались, чтобы найти пропавших родителей. Они обнаруживают старого егеря и учатся (   Читать дальше...   )Производство: США, Австралия / Legendary PicturesЖанр: мультфильм, фантастика, боевикРежиссер: Хироки Хаяси, Джэ Хонг КимАктеры: Гидеон Адлон, Кэлам Уорси, Эрика Линдбек, Виктория Грэйс, Энди МакФи, Александра МакДональд, Джейсон Спайсэк, Леонардо Нам, Камрин ДжонсПеревод: Многоголосый профессиональный (NewStation)Субтитры: отсутствуютПродолжительность: ~00:28:00 серия
+После того, как муж бросил ее с двумя детьми, казалось, мир рухнул. Подобно многим женщинам, Роберта пожертвовала своей карьерой ради мужа. Но теперь после расставания она поклялась жить по собственным правилам, не разрешая никому вмешиваться в свою жизнь.
+С новой надеждой она переехала в один из самых неспокойных районов Америки — Восточный Гарлем, где смогла найти (   Читать дальше...   )Производство: США / Craven-Maddalena Films, Miramax FilmsЖанр: драма, музыкаРежиссер: Уэс КрэйвенАктеры: Мэрил Стрип, Айдан Куинн, Анджела Бассетт, Глория Эстефан, Джейн Ливз, Киран Калкин, Джей О. Сэндерс, Клорис Личмен, Генри Динхофер, Майкл АнгараноПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:03:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:59743503B07EFDB693C06F9C062802E7E371FB3E
+magnet:?xt=urn:btih:B6039068670E783BE57DADFC110B18D35343EC99
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -606,28 +272,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623230   (234102) от 31.03.2023
+###  Публикация: 1638529   (235125) от 08.06.2023
 
-Jake Stack & The Unincorporated - Heavy Is the Head (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Singer-songwriter>
+FastScripts 3.2.6 [En]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235125.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Hope They Bled
-02. Heavy Is the Head
-03. In My Head
-04. Letters(   Читать дальше...   )Жанр: Rock, Singer-songwriterПродолжительность: 00:53:46
+FastScripts - Утилита для быстрого запуска AppleScript-ов и шелл-скриптов в любом приложении. Если нажать на значок FastScripts в строке меню, раскроется список скриптов, для запуска которых нужен всего один клик.
+Помимо этого каждому скрипту можно назначить сочетание клавиш для запуска. При работе с определенным приложением, все доступные для него скрипты будут (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.06.2023Разработчик: © 2023 Red Sweater Software, LLC.Поддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB738BF5993F96DC797BB4B406C7448ECAF1BF99
+magnet:?xt=urn:btih:25EE2B33C2AFF1B5CA7FC49838F3949E9F161FE9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,28 +299,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548266   (234101) от 02.05.2022
+###  Публикация: 1551247   (235124) от 15.05.2022
 
-Satan's Host - This Legacy Will Never Die (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Heavy, Power Metal>
+Бэтмен / The Batman (2022) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235124.jpg" />
+</div>
+
+
+###  Подробнее
+
+После двух лет поисков правосудия на улицах Готэма для своих сограждан Бэтмен становится олицетворением беспощадного возмездия. Когда в городе происходит серия жестоких нападений на представителей элиты, улики приводят Брюса Уэйна в самые темные закоулки преступного мира, где он встречает Женщину-Кошку, Пингвина, Кармайна Фальконе и Загадочника. Теперь под прицелом (   Читать дальше...   )Производство: США / 6th & Idaho Productions, DC Comics, DC Entertainment, Warner Bros. PicturesЖанр: Боевик, драма, криминал, детективРежиссер: Мэтт РивзАктеры: Роберт Паттинсон, Зои Кравиц, Пол Дано, Джеффри Райт, Джон Туртурро, Питер Сарсгаард, Барри Кеоган, Джейми Лосон, Энди Серкис, Колин ФарреллПеревод: Многоголосый, закадровый (HDRezka Studio, Jaskier, TVShows)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (forced, 2 х full), Украинские (forced, full), Английские (full, SDH)Продолжительность: 02:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6772D33C38A05C749107A3E60E3F7DAC66341BD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642005   (235123) от 25.06.2023
+
+Журнал | Elektronika Praktyczna №6 (2023) [PDF][Pl]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elektronika Praktyczna (Практическая электроника) - журнал для радиолюбителей и профессионалов на польском языке. В каждом номере описания практических конструкций для радиолюбителей различной тематики: аудиотехника, измерительные приборы, бытовая электроника и другое. Приводится полное описание проектов, со схемами и печатными платами. На более чем 100 страницах: (   Читать дальше...   )Жанр: ЭлектроникаЯзык: ПольскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20694E3F15FE2F940C661F618D481BF14B3A73FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536604   (235122) от 12.03.2022
+
+Nicky Romero & Tim van Werd & Timmo Hendriks - Protocol Radio 500 (2022-03-10) [MP3|320 Kbps] <Progressive House, House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicky Romero & Almero - So Much Love
+02. Nicky Romero & Low Blow - Higher
+03. Tommy Trash & Wax Motif - HEX
+04. ID - ID w/Whitney Houston - It's Not Right But It's Okay (Acappella)(   Читать дальше...   )Жанр: Progressive House, HouseПродолжительность: 01:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F984734EAF19BD414570F1FA2BFBF471879B6CA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620203   (235121) от 19.03.2023
+
+Darknet - trashworld (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Deadmans Walk (6:32)
-02. Minuet ~ Vampyre En Amor (5:36)
-03. From the Dark (6:02)
-04. Malediction (6:34)(   Читать дальше...   )Жанр: Blackened Heavy, Power MetalПродолжительность: 01:05:50
+01. Scanner (3:43)
+02. Gen: Throwaway (2:47)
+03. Ctrl.Alt.Del (feat. Hollow) (3:43)
+04. Idgaf (3:40)(   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 00:31:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:056E52923F2F1BF91517D0DC938EF73F56B9B556
+magnet:?xt=urn:btih:2E31184A5FB9CCB2023A114F989FF8B4AAB277D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,25 +409,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633618   (234100) от 16.05.2023
+###  Публикация: 1641765   (235120) от 25.06.2023
 
-RTG. Путешествие на Соловецкие острова (2012) HDTV [H.264/1080i] (серии 1-2 из 2)
+Peso Pluma - Genesis (Génesis) (2023) [FLAC|Lossless|WEB-DL|tracks] <Regional Mexican>
 
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>Other Styles
+>>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Соловецкие острова в Белом море, на севере России. Столетия и тысячелетия назад на самых простых судах, на лодках люди совершали опасное путешествие, чтобы достичь этих островов, которые считались священными. Они и сегодня, как магнит, притягивают путешественников. Посреди моря град обетованный: монастырь и крепость, древние артефакты и современные музеи, уединенные (   Читать дальше...   )Производство: Россия, RTG Production StudiosЖанр: документальный, история, путешествияРежиссер: Игорь СоколовЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 2x ~00:45:00
+01. ROSA PASTEL [00:03:24]
+02. LUNA [00:02:43]
+03. 77 [00:03:35]
+04. RUBICON [00:03:58](   Читать дальше...   )Жанр: Regional MexicanПродолжительность: 00:45:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7093C03F2E54924F2BF211241167BADAC4E11B9F
+magnet:?xt=urn:btih:B8AAC90B402128D0441ED6E3FB3DBDB613724A00
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -690,25 +438,269 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577884   (234099) от 20.09.2022
+###  Публикация: 1551440   (235119) от 15.05.2022
 
-Шазам! / Shazam! (2019) BDRip [H.264/1080p-LQ]
+The Animation Box, Yuri Lementy | Cartoon Mechanics Masterclass (2020) PCRec [RU]
 
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235119.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В каждом из нас живет супергерой, нужна лишь толика магии, чтобы он проявил себя. Билли Бэтсон должен прокричать всего лишь одно слово — ШАЗАМ! — чтобы из сообразительного четырнадцатилетнего мальчишки превратиться во вполне себе взрослого супергероя Шазама, а все благодаря древнему волшебнику. В душе он остается ребенком, пусть и во взрослом могучем теле, поэтому (   Читать дальше...   )Производство: США, Канада / 7 Bucks Productions, DC Comics, DC EntertainmentЖанр: фэнтези, боевик, комедияРежиссер: Дэвид Ф. СандбергАктеры: Закари Ливай, Эшер Энджел, Мишель Борт, Джимон Хонсу, Грэйс Фултон, Марк Стронг, Джек Дилан Грейзер, Марта МилансПеревод: ДублированныйСубтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 02:11:43
+В этом мастер-классе вы увидите весь процесс создания шота с мультяшной механикой тела в Autodesk Maya, от планирования до полировки. Более 20 часов детальных видеолекций, объясняющих блокинг, добавление брейкдаунов, сплайнинг и т. д.
+Рекомендуемый уровень: средний / продвинутый, вы должны уверенно работать в Maya и хотя бы на базовом уровне понимать принципы анимации.Производство: The Animation BoxЖанр: Анимация персонажейЯзык озвучки: Русский (отдельным файлом)Продолжительность: 22:43:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6625B16FC213ABA61EE79E3388B4931A4C296720
+magnet:?xt=urn:btih:3DFE0F1E1AF26465919208F15DC7A071BF54B77C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642866   (235118) от 29.06.2023
+
+Process Monitor 3.95 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа Process Monitor является усовершенствованным инструментом отслеживания для Windows, который в режиме реального времени отображает активность файловой системы, реестра, а также процессов и потоков. В этой программе сочетаются возможности двух ранее выпущенных программ от Sysinternals: Filemon и Regmon, а также огромный ряд улучшений, включая расширенную (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB1B87F2C13933F6CDFE71B15F6D52C11AFBACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632638   (235117) от 11.05.2023
+
+Youtube Downloader HD 5.2 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Youtube Downloader HD - бесплатная и предельно простая в использовании программа для скачивания видео с YouTube и сохранения его на компьютере с возможностью конвертирования в формат AVI или MP4 (совместим с IPod, iPhone). Достаточно вставить ссылку на нужный файл в окошко программы и указать папку для сохранения видео, после чего вы получите интересующий вас AVI (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20EB1BC3B1DFA840D9366CB7A1F9AB4E36E38BA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632725   (235116) от 11.05.2023
+
+Тяжёлые времена / Hard Times (1975) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время депрессии 1930-х годов крепкий и выносливый боксёр по имени Чейни, чтобы свести концы с концами, решает зарабатывать нелегальными уличными боями. С этой целью он приезжает в Новый Орлеан. Здесь при помощи мелкого дельца Спида, взявшего на себя руководство бойцовской карьерой Чейни, он начинает участвовать в подпольных боях, заведя вскоре отношения с привлекательной (   Читать дальше...   )Производство: США, Columbia Pictures Corporation, Claridge ProductionsЖанр: драма, криминал, спортРежиссер: Уолтер ХиллАктеры: Чарльз Бронсон, Джеймс Коберн, Джилл Айрленд, Стразер Мартин, Маргарет Блай, Майкл МакГуайр, Феличе Орланди, Эдвард Уолш, Брюс Гловер, Роберт Тессье, Фрэнк МакРей, Ник ДимитриПеревод: профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51B2098E0AD662456E15298DDF94905DCAC82C03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576654   (235115) от 15.09.2022
+
+JUG Ru Group | DotNext 2022 Spring. Конференция для .NET‑разработчиков (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235115.jpg" />
+</div>
+
+
+###  Подробнее
+
+DotNext 2022 Spring — конференция для .NET-разработчиков. Спикеры со всего мира. Несколько десятков докладов о развитии .NET, архитектуре, перформансе и многом другом.
+DotNext — это площадка, где раз в полгода .NET-разработчики собираются, чтобы:обменяться свежими знаниями и идеями;
+поделиться решениями нетривиальных задач;
+обсудить, что нового в индустрии и на что (   Читать дальше...   )Производство: JUG Ru GroupЖанр: КонференцияЯзык озвучки: РусскийПродолжительность: 36:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC62D6A2C2C17B2E08FDE2634EB36BC974CD2BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465176   (235114) от 25.04.2021
+
+Underking - At Hell's Gate (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadow I've Become
+02. Embrace the Arcane
+03. World in Flames
+04. Oblivion(   Читать дальше...   )Жанр: Metalcore, Heavy MetalПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8093572C84327C52D94308CF4E4DB703898D77E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620211   (235113) от 19.03.2023
+
+Aftermath - No Time To Waste (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Time To Waste [00:03:41]
+02. Original Instructions [00:02:53]
+03. Transform & Disrupt [00:03:00]
+04. Up Is Down [00:04:30](   Читать дальше...   )Жанр: Progressive Thrash MetalПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E55AF32A824C466509B57C55D816BABDC079EEF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632721   (235112) от 11.05.2023
+
+Brave Browser 1.51.114 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brave - защищённый веб-браузер на базе Chromium, построенный на принципах блокировки раздражающих объявлений и предотвращения мониторинга активности со стороны навязчивых рекламных трекеров. Насладитесь более быстрым и приятным сёрфингом в Интернете без раздражающих рекламных модулей и навязчивых трекеров, используя привлекательный и интуитивный браузер Brave.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D6CEB37513737BEA8C4663304F1F0AC7FDF0B13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536636   (235111) от 12.03.2022
+
+Iridient Developer 3.6.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Iridient Developer - мощное приложение для обработки и преобразования изображений RAW, разработанное и оптимизированное специально для macOS. Приложение предоставляет фотографам полный контроль над своими цифровыми изображениями и обеспечивает гибкую, быструю и удобную пакетную обработку. Все операции по редактированию изображений полностью не разрушают и никогда (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.03.2022Разработчик: © 2022 Iridient Digital, Inc.Поддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B35E3B57E0C54F67E179ABC9EFF40FBE04E13A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638509   (235110) от 08.06.2023
+
+Возвращение любви / Winning Back His Love (1910) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замужней даме кажется, что спустя годы совместной жизни, муж охладел к ней и вот-вот предаст их любовь. Увы, её опасения имеют под собой основания. Что же делать несчастной? Использовать свои женские приемчики.  Которые они использовали и тысячу лет назад, и сто лет назад и ныне и присно... Один из этих приемчиков - это не самой ревновать, страдая, а разбудить в мужчине (   Читать дальше...   )Производство: США, Biograph CompanyЖанр: драма, короткометражный, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Уилфред Лукас, Стефани Лонгфеллоу, Вивиан Прескотт, Эдвин Аугуст, Альфред Пегит, Джини Макферсон, Дороти Бернард, Verner Clarges, Чарльз Крэйг, Дональд КриспПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:13:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D32FBD33749D1755870522DC5F0B04A27FB47B0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

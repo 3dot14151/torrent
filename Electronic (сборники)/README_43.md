@@ -1,3 +1,32 @@
+###  Публикация: 1003233   (840311) от 05.04.2016
+
+VA - Deep Love Session (Mixed By Mark Bonk) (2016) [MP3|320 кб/с] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Birdy - Keeping Your Head Up (Don Diablo Remix) 04:29
+02 R3hab & Quintino - Freak (Extended Vocal Mix) 03:18
+03 Junior J - Keep It Comin' (Extended Mix) 04:52
+04 Yolanda Be Cool & DCUP - From Me To You (Original Mix) 04:07(   Читать дальше...   )Жанр: HouseПродолжительность: 00:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:905D955E0579DCDD4FE437004015DF513BE32B92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003825   (840305) от 05.04.2016
 
 VA - Lobby Bar Lounge Vol.2: 20 Midnight Lounge Tunes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -716,35 +745,6 @@ VA - Symptoms Of The Reality: Freestyle Synthpop (2020) [MP3|320 Kbps] <Synthpop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93A1E5B2ABB561987F2AFD7D34AAB621D280FE90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379962   (836107) от 01.05.2020
-
-VA - Beatport Trance: Electro Sound Pack #74 (2020) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836107.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Realm F vs Rankey - Nairobi
-002. Gadboa - How Long
-003. Estiva - Katana (Extended Mix)
-004. Ailand - Eclipse (Original Mix)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 09:55:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BB31AC347106048219E0BB4F02C5B282EDCA00E
 ```
 
 https://mybot314.ru/tekegram_catalog/

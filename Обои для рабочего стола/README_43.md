@@ -1,3 +1,29 @@
+###  Публикация: 1239510   (538962) от 05.08.2018
+
+Обои - Сборник разнообразных обоев 3840x2160 #137 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка картинок на различную тематику.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70F4B4397F12E8BD598828044FB7A13A9C3ABD38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239504   (538960) от 05.08.2018
 
 Обои - Ultra HD 3840x2160 Wallpaper Pack 324 [JPG]
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0F4CF052CE7D63DD95B63CF73C3D8FC06D25C4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312884   (529106) от 06.07.2019
-
-Обои - Desktop Wallpapers Full HD. Part (467) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF7D7A7A3A27233E52E3A7CB17FC12E161FBBDD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 983450   (943612) от 06.02.2016
+
+Dire Straits - Dire Straits (1978) Phonogram [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Down To The Waterline
+02 - Water Of Love
+03 - Setting Me Up
+04 - Six Blade Knife(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AB81131B695136D0A311CD203087858A122DDC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091572   (942728) от 09.01.2017
+
+Supertramp - The Very Best Of (1992) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goodbye Stranger (5:48)
+02. The Logical Song (4:10)
+03. Bloody Well Right (4:33)
+04. Breakfast In America (2:42)(   Читать дальше...   )Производство: Ладъ - LD 238016Жанр: Progressive RockПродолжительность: 00:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:765744893737E078A9B71E1425439F59545B8026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091487   (942626) от 09.01.2017
+
+VA - RETROспектива, часть VII: Эстрадные оркестры VII (1935-1958) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Концерт. анс. п.у. Е. М. Пинке - Шуточная полька (танец)
+02. Концерт. анс. п.у. Е. М. Пинке - Воспоминание (вальс)
+03. Концерт. анс. п.у. Ф. Криша - Вальс-чечетка (танец)
+04. Концерт. анс. п.у. Ф. Криша - Ручеек (полька)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAC92B358757DC74DAA57697AF19AE67F1EC7578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 149832   (941990) от 28.02.2020
+
+Bee Gees - Size Isn't Everything (1993) [FLAC|24Bit/96kHz] <pop-rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paying The Price Of Love (4:13)
+02. Kiss Of Life (4:15)
+03. How To Fall In Love, Pt.1 (5:58)
+04. Omega Man (3:57)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA23A69194F656517C72AC23134A407C7EEB865
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983980   (941862) от 07.02.2016
 
 Владимир Кузьмин - ...пока не пришел понедельник... (1986) 1989, Мелодия, ТЗГ [FLAC 2.0|96/24|image|Vinyl-Rip]<Rock>
@@ -625,122 +741,6 @@ Mark Knopfler – Shangri-La (2004) [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Fol
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A82E678A012D4DA5609CDC2DE8879C4F9067418A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366026   (925052) от 10.03.2020
-
-Dire Straits - Brothers in Arms (2005) 1985 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Far Away                              [05:13]
-  02. Money For Nothing                        [08:26]
-   03. Walk Of Life                             [04:12]
-   04. Your Latest Trick                        [06:33](   Читать дальше...   )Жанр: rockПродолжительность: 00:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52415CCA8C7849D1914A96FAB9CA11A87CED8CD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095519   (924184) от 21.01.2017
-
-The Alan Parsons Project - Ammonia Avenue (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924184.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Prime Time (5:03)
-A2. Let Me Go Home (3:21)
-A3. One Good Reason (3:37)
-A4. Since The Last Goodbye (4:35)(   Читать дальше...   )Производство: Arista - AL8 8204Жанр: Progressive RockПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:861617EFD97521794ACA0E892739A677A524BC5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489655   (923890) от 17.08.2021
-
-Barbara Mandrell - Greatest Hits (1985) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_923890.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I Was Country When Country Wasn't Cool
-A2 Years
-A3 Wish You Were Here
-A4 The Best Of Strangers(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:32:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5728B2DB8AE19E464FEBE1155BA0BB0E17D482A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095775   (922581) от 22.01.2017
-
-Amon Amarth - Jomsviking (2016) 2xLP [FLAC|192/24|image + .cue|Vinyl-Rip] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922581.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 First Kill
-A2 Wanderer
-A3 On A Sea Of Blood
-B1 One Against All(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:811D3A75EA3E04041C998E0890522424D4E80BB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

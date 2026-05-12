@@ -1,3 +1,29 @@
+###  Публикация: 1798707   (66521) от 26.05.2025
+
+Паттерны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-1 [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с изображением мандалы.Формат: JPEGРазрешение файлов: 3600 x 3600 - 4000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5EF18A3883A020FE45E408F24F7853FF14568FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798733   (66513) от 26.05.2025
 
 Паттерны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-9 [JPEG]
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D39C3F6AE13CB3002711AC416AEC632EB8F9759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804420   (65654) от 29.06.2025
-
-Оверлеи - Envato - Grainy Smoke Overlay - YTXWANU [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65654.jpg" />
-</div>
-
-
-###  Подробнее
-
-10-зернистых оверлеев дыма, идеально подходящие для придания грубого, элегантного оттенка любому изображению или дизайн-проекту!Формат: JPGРазрешение файлов: 4500x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC1BA6BD4407BCBD151E81AE9EF34F23D50A0017
 ```
 
 https://mybot314.ru/tekegram_catalog/

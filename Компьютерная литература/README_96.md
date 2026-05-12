@@ -1,3 +1,240 @@
+###  Публикация: 1831405   (212159) от 28.10.2025
+
+Marcelo Rovai | Edge AI Engineering: Hands-on with the Raspberry Pi (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212159.jpg" />
+</div>
+
+
+###  Подробнее
+
+In the rapidly evolving landscape of technology, the convergence of Artificial Intelligence (AI) and Edge Computing stands as one of the most exciting frontiers. This intersection promises to revolutionize how we interact with the world around us, bringing intelligence and decision-making capabilities directly to the devices we use every day. At the heart of this (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: UNIFEIФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B4795FFDDB9EDE4090EAC25DF9DF7E83D9074D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831020   (212157) от 28.10.2025
+
+Thomas Theis | Getting Started with Python (2024) [EPUB, PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готовы сделать первые шаги в мире программирования? Независимо от того, новичок вы или хотите расширить свой набор инструментов для программирования, этот экспресс-курс по Python поможет вам в кратчайшие сроки начать писать настоящие программы. Следуйте пошаговому руководству, чтобы освоить основные элементы Python: от переменных и циклов до типов данных, функций (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: EPUB, PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:827814A96E2FE855FCCF9B49F1F07064516EA123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831496   (212135) от 28.10.2025
+
+Саймон Монк | Raspberry Pi. Сборник рецептов. Решение программных и аппаратных задач [2 книги] (2023, 2025) [PDF] [RU, EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит более 200 рецептов по работе с микрокомпьютером Raspberry Pi, рассматривающих как программные, так и аппаратные задачи. Показана установка и настройка операционной системы для Raspberry Pi, подключение датчиков и двигателей, способы интеграции Raspberry Pi в систему умного дома и сеть Интернета вещей. Рассмотрен язык Python в контексте программирования (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: М. РайтманЯзык: Русский, английскийИздательство: O’Reilly Media, АЛИСТФормат: PDFКачество: Обработанный скан, Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5DBEBEB9CC2A2B39F1F9E54BA42F6FCFCB8736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565838   (212012) от 25.07.2022
+
+Андреас Антонопулос, Гэвин Вуд | Осваиваем Ethereum. Создание смарт-контрактов и децентрализованных приложений (2021) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ethereum — окно в мир всемирных децентрализованных вычислений. Эта платформа позволяет реализовывать децентрализованные приложения (DApps) и смарт-контракты без центральных точек доступа или контроля, интегрироваться с платежной сетью и работать с открытым блокчейном. В этом практическом пособии Андреас Антонопулос и Гэвин Вуд дают всю информацию, необходимую для (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C7B970DAA0F3DBC427DFE35DC8433C0A172C5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585100   (211857) от 20.10.2022
+
+Dimitrios Xanthidis и др.| Handbook of Computer Programming with Python (2023) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211857.jpg" />
+</div>
+
+
+###  Подробнее
+
+This handbook provides a hands-on experience based on the underlying topics, and assists students and faculty members in developing their algorithmic thought process and programs for given computational problems. It can also be used by professionals who possess the necessary theoretical and computational thinking background but are presently making their transition (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B700030FADCAC6291808DBC0D4C1CDBE9C2A103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639245   (211735) от 12.06.2023
+
+Dr. Nilesh Bhaskarrao Bahadure | Python for Everyone: Learn and polish your coding skills in Python (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это исчерпывающее руководство обеспечит вам прочную основу для изучения фундаментальных концепций программирования на Python. Оно охватывает целый ряд важных тем, включая работу со строками, операторы управления потоком данных, обработку исключений и регулярные выражения. Вы также узнаете об основных функциях и структурах данных, а также изучите использование готовых (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CD78FAD090862F95405B447485A7D8B7BB9025E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586001   (211551) от 24.10.2022
+
+Джон П. Смит | Entity Framework Core в действии (2022) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Entity Framework радикально упрощает доступ к данным в приложениях .NET. Этот простой в использовании инструмент объектно-реляционного отображения (ORM) позволяет писать код базы данных на чистом C#. Он автоматически отображает классы в таблицы базы данных, разрешает запросы со стандартными командами LINQ и даже генерирует SQL-код за вас.
+Данная книга научит вас (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: Д. А. БеликовФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EFD36933CE8E6F3FEB134FFEFF30E5400C30042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567573   (211261) от 03.08.2022
+
+Джереми Уатт и др. | Машинное обучение: основы, алгоритмы и практика применения [+code] (2022) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлены фундаментальные знания и практические инструменты в области машинного обучения, в том числе более 100 углубленных упражнений на языке Python. Дано введение в машинное обучение и математическую оптимизацию, включая методы первого и второго порядков, градиентного спуска и Ньютона. Приведено полное описание обучения с учителем, включая линейную регрессию, (   Читать дальше...   )Жанр: Информационные технологииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3113AB507098C73936980FF3CB8B3BCDB4971715
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587000   (211230) от 28.10.2022
+
+Alex Ellis | Everyday Go (2022) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211230.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Everyday Go" is the fast way to learn tools, techniques and patterns from real tools used in production.
+This book is a compilation of practical examples, lessons and techniques for Go developers. The topics cover the software lifecycle from learning the fundamentals, to software testing, to distribution and monitoring.
+If you feel like you may have seen (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD379FB998E2F09C2E72C64306DB79790D9AF2E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567675   (211153) от 04.08.2022
 
 Рэндал Э. Брайант, Дэвид Р. О'Халларон | Компьютерные системы. Архитектура и программирование [3-е издание] (2022) [PDF]
@@ -445,246 +682,6 @@ Maximilian Schwarzmuller is a bestselling instructor who has helped (   Чит�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:523F05EAEDFDAFCD01716F6D8D6FA1A8C863C7CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576664   (208007) от 15.09.2022
-
-John Canning и др. | Структуры данных и алгоритмы на Python (2023) [EPUB] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208007.jpg" />
-</div>
-
-
-###  Подробнее
-
-This practical introduction to data structures and algorithms can help every programmer who wants to write more efficient software. Building on Robert Lafore’s legendary Java-based guide, this book helps you understand exactly how data structures and algorithms operate. You’ll learn how to efficiently apply them with the enormously popular Python language and scale (   Читать дальше...   )Жанр: ПрограммированиеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:986DFD356BD1747E842C0B30213B3D4681D700E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610735   (207904) от 08.02.2023
-
-Benjamin Evans, Jason Clark, Martijn Verburg | The Well-Grounded Java Developer, Second Edition (2022) [PDF] [Ebook & Video Edition] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207904.jpg" />
-</div>
-
-
-###  Подробнее
-
-This is the video edition of the book from manning, of course compressed (so not 2.5GB but a lot less, around 600mb or so), I have also included the pdf book as well for fun (also in compressed form). The videos' total length are around 20hrs. Source is on github, attached as an extra resource.
-
-Understanding Java from the JVM up gives you a solid foundation to grow (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F75F153F62EB1B8D1FCC4A1AD4500E3906BD4E6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577397   (207764) от 18.09.2022
-
-John M. Blain | Blender 2D Animation: The Complete Guide to the Grease Pencil (2022) [PDF] [EN]
-
->>Компьютерная литература
->>3D графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grease Pencil - это компонент программы 3D-моделирования и анимации Blender.
-Blender - это бесплатный набор инструментов для 3D-компьютерной графики с открытым исходным кодом, используемый для создания анимационных фильмов, визуальных эффектов, 3D-моделей для 3D-печати, моушин графики, интерактивных 3D-приложений, виртуальной реальности и компьютерных игр.
-
-В этой (   Читать дальше...   )Жанр: 2D анимацияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:242B81F3AF120C8A62412037EE9E7EFE3F72C180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576197   (207728) от 18.09.2022
-
-Спарк Флоу | Занимайся хакингом как невидимка (2022) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обучитесь секретным навыкам Спарка Флоу, проникающего в самые отдаленные уголки облачных инфраструктур. Наблюдайте за каждым его шагом, от разведки до проникновения, когда он атакует политическую консалтинговую фирму, собирающую данные избирателей. Цель вымышленная, но уязвимости взяты из реальной жизни. Испытайте вместе с ним всю гамму ощущений настоящего хакера (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:405795801912790E04E0CDF9C19CED154B5F33D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577327   (207724) от 18.09.2022
-
-Стивен Скиена | Алгоритмы. Руководство по разработке. 3-е изд (2022) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга является наиболее полным руководством по разработке эффективных алгоритмов. Первая часть книги содержит практические рекомендации по разработке алгоритмов: приводятся основные понятия, дается анализ алгоритмов, рассматриваются типы структур данных, основные алгоритмы сортировки, операции обхода графов и алгоритмы для работы со взвешенными графами, примеры использования (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A57A4C180F760F65A3166C156BE19EBE43732F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650008   (207596) от 30.07.2023
-
-Эван Амос | The Game Console 2.0: История консолей от Atari до Xbox (2023) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207596.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Game Console 2.0 — это великолепный подарок для гиков и геймеров. В книге собрана уникальная информация о том как менялся мир «приставок» на протяжении пяти десятилетий. Историю взлетов и падений игровой индустрии показана на примере более чем ста игровых консолей. Вы познакомитесь с классическим железом, узнаете, как сейчас играть в полюбившиеся ретро-игры и (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: С.В. ЧерниковИздательство: ПитерФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F358DFB87A93CAE67E237C782F00497B81B172B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611654   (207592) от 12.02.2023
-
-Кейси Риас, Бен Фрай | Знакомство с программированием на языке Processing (2021) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это руководство по языку Processing написано его создателями, Кейси Риасом и Беном Фраем. Книга удобно структурирована и ведет читателя от знакомства с языком и написания первой программы на нем до разработки интерактивной графики.
-Главы книги последовательно раскрывают основные приемы программирования на Processing: определение и рисование простых фигур; хранение, (   Читать дальше...   )Жанр: Программирование, программы, базы данныПеревод: Валерий ЯценковФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22E2345EB59C2BCD24301280789DF53763375261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578578   (207484) от 23.09.2022
-
-Д.Тидвелл и др. | Разработка интерфейсов. Паттерны проектирования. 3-е издание (2022) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спроектировать хороший интерфейс приложения не так просто. Все заказчики хотят, чтобы пользовательский опыт (user experience) был гладким, чтобы пользователь быстро и безболезненно получал то, что ему нужно, на любом устройстве и пользуясь любым каналом взаимодействия. Главная «фишка» книги — паттерны проектирования. Вы научитесь использовать паттерны при разработке (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C5E14BF65A3BB4CCAAABD37283BCFDD1CA2E108
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611678   (207442) от 13.02.2023
-
-Adam Freeman | Pro ASP.NET Core 6: Develop Cloud-Ready Web Applications Using MVC, Blazor, and Razor Pages (2022) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Professional developers will produce leaner applications for the ASP.NET Core platform using the guidance in this best-selling book, now in its 9th edition and updated for ASP.NET Core for .NET 6. It contains detailed explanations of the ASP.NET Core platform and the application frameworks it supports. This cornerstone guide puts ASP.NET Core for .NET 6 into context (   Читать дальше...   )Жанр: Программирование, ASP.NET CoreЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:990DF944E43F22EA65507A6FD52AA78A3154C1E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

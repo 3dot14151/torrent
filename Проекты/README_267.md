@@ -1,3 +1,56 @@
+###  Публикация: 1177040   (364788) от 24.10.2017
+
+Проекты - VideoHive - 3D Photo Slideshow - 16148913 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364788.jpg" />
+</div>
+
+
+###  Подробнее
+
+3D Photo Slideshow - шаблон для After Effects, который поможет легко создать тематическое слайд шоу, демонстрирующее ваши фото или видео, ритмично следующие за музыкальным сопровождением.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9134B05DAE7CCB20841B51E9B0A2A60DF751AE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951085   (364731) от 28.10.2015
+
+Проекты - VideoHive - Happy Birthday Ecard - Inkman - 263184 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для Дня рождения с рисованным человечком.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3390500430C15E0FAF08E278C12503DCC5A2C635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070838   (364174) от 08.11.2016
 
 Проекты - VideoHive - 20 Minimal Titles - 17739449 [AEP]
@@ -623,58 +676,6 @@ Fire Logo Reveal - появление вашего логотипа на фон�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A2AFCD1FDE3547C773B1B53867A645CED13DE3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 836516   (360912) от 01.11.2014
-
-VideoHive - Hand Drawn Wedding Opener - 681908 [AEP]
-
->>Проекты
->>Свадебные и романтические (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект свадебной тематики. Превью - в раздаче.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1913CFB66CE5849D989CD735E5D27C98D8DCAE57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328790   (360661) от 01.10.2019
-
-ProShow Producer - Cooking Channel [PSH]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон презентация "Кулинарного Шоу"... Дерзайте!Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4EFB67953295F5D39B409964A64DA8D88CC058
 ```
 
 https://mybot314.ru/tekegram_catalog/

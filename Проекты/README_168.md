@@ -1,3 +1,55 @@
+###  Публикация: 1032396   (645439) от 07.07.2016
+
+Проекты - VideoHive - Clean Flip Logo - 5988691 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clean Flip Logo - простой, элегантный, чистый показ вашего логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:380A2611B41370AC98856624CB18CE83BABB83A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032342   (645335) от 07.07.2016
+
+Проекты - VideoHive - Magical Particles Vortex Logo Reveal - 5086083 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания демонстрации логотипа. Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02D011C7BDAB4B364402EEB18AD3EC619FD135C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032407   (645257) от 07.07.2016
 
 Проекты - VideoHive - Character Design Animation Toolkit V4 - 8054341 [AEP]
@@ -624,58 +676,6 @@ After Effects проект для трейлера, рекламы или сла
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B8F4A093CC72A8290A7FC505700B828B37A52F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 680450   (641683) от 17.07.2013
-
-Проекты - VideoHive - The Wall Of Love [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания фото галереи. Шаблон хорошо подходит для свадебных, путешествий, воспоминаний или семейных фото.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD492822771D6171CA62F612164CAE4EFAF27FD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 680422   (641673) от 17.07.2013
-
-VideoHive - Adventure Titles - 3894382 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Творческий  шаблон After Effects, позволяющий создать анамированные титры и логотип  с использованием реалистичного песка. Подойдёт для начала фильма о путешествиях, приключениях и т.п.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD8ED44999B37FD684E9A480F149633B60DD7DB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

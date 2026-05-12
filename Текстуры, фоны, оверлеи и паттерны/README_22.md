@@ -1,3 +1,30 @@
+###  Публикация: 1642928   (210172) от 30.06.2023
+
+Текстуры - freeject.net - Glued Paper [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210172.jpg" />
+</div>
+
+
+###  Подробнее
+
+48 текстур бумаги с эффектом клея на стене
+Paper with Texture effect glue on the wall, you can use to create a poster design to make it look more real. You can also use to create mockup designs. Or just simply texture the design to make it look cooler. Glued paper texture created especially for you who like the style of dirty design, street design, hypebeast design, (   Читать дальше...   )Формат: JPG, PNGРазрешение файлов: 3204 x 4484
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA31C5CC6396D833E6365C3AC3C53C3151239DDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571290   (210062) от 21.08.2022
 
 Оверлеи - InkyDeals - 2500+ Photo Overlays Mega Pack [PNG, PSD, PAT, JPG, ATN, ABR, ASL]
@@ -641,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AF4E6FA9DD487C2B3A143D1464CB54F0D9B1791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587477   (192481) от 31.10.2022
-
-Оверлеи - Creative Market - 70 Natural Falling Leaf Overlays - 4106276 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192481.jpg" />
-</div>
-
-
-###  Подробнее
-
-70 натуральных Наложения с падающими листьями от CT.Формат: PNGРазрешение файлов: 5000x5000-7500x5000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D9D895485E6A2F49061724D809A1678DB48D7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

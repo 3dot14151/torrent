@@ -1,3 +1,32 @@
+###  Публикация: 1415134   (378014) от 11.10.2020
+
+[Udemy] Piotr Jura | Изучите Laravel с GraphQL, Vue.js и Tailwind / Master Laravel with GraphQL, Vue.js and Tailwind (2020) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите GraphQL в Laravel и Vue, создав клон Trello с помощью Tailwind CSS!
+Если вы хотите узнать, как создавать SPA с помощью Laravel, Lighthouse, Vue.js, Apollo Client, Tailwind CSS и GraphQL, вы нашли лучшее место.
+В этом курсе вы создадите клон Trello (проект Laravello) и приложение блога, вдохновленное Netlify (проект BlogQL).
+По пути вы узнаете:(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 17:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ECA111D89AFF0C37B52D027942F11719794D62D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415214   (378004) от 11.10.2020
 
 Academind Pro | Vue 3 - Полное руководство (включая Router, Vuex, Composition API) / Vue 3 - The Complete Guide (incl. Router, Vuex, Composition API) (2020) PCRec [En]
@@ -680,35 +709,6 @@ Lynda.com | Bootstrap 3 (2013-2014) [PCRec] [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70E0F03ECA702970C8629B0D05F67D74E15FFA2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416875   (364742) от 17.10.2020
-
-[Udemy] KodeKloud Training и др. | OpenShift для абсолютных новичков - Практический опыт / OpenShift for the Absolute Beginners - Hands-on (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите основы OpenShift, которые вам понадобятся для создания простого кластера OpenShift и приступите к развертыванию и управлению приложением.
-Создайте прочную основу для OpenShift и оркестровки контейнеров с помощью этого руководства для начинающих.
-Развертывайте OpenShift с Minishift;
-Понимайте проекты, пользователей;(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 03:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96268EADC07D7B396493DAE5F79C78FC9E8B3894
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,65 @@
+###  Публикация: 474313   (84954) от 28.03.2012
+
+Iron Maiden: En Vivo! (2012) BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84954.jpg" />
+</div>
+
+
+###  Подробнее
+
+«En Vivo!» — что в переводе с испанского означает «Живьём!» — был записан 10 апреля прошлого года в ходе мирового турне в поддержку 15 лонгплея группы. Масштабное зрелище разворачивалось на забитом неистовыми южноамериканскими фэнами стадионе Estadio Nacional, что в Сантьяго. Басист и основатель Стив Харрис по поводу пополнения концертного каталога Мэйден: «Для меня крайне важно было то, что получилось запечатлеть в Южной Америке, так как реакция поклонников в той части света всегда ошеломляла нас, и я хотел отразить это в процессе съёмок. После длительных дискуссий мы остановили свой выбор на шоу в Сантьяго, осознав, что перфоманс на Estadio Nacional стал лучшим во всём туре, а играть на этой престижной площадке для нас особое событие. По причинами известным нашим почитателям, понадобилось много времени, прежде чем отыграть своё первое шоу в Чили. И однажды, когда оно наконец-таки состоялось, отдача была настолько феноменальной, что нам пришлось возвращаться сюда снова, и снова. И каждый наш приезд лучше предыдущего! (   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EC4D15511F2ADD3DE37A4C8F5842FCAAC972521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473570   (84631) от 26.03.2012
+
+Iron Maiden: En Vivo! (2012) [1080p] Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84631.jpg" />
+</div>
+
+
+###  Подробнее
+
+EN VIVO! was filmed on April 10, 2011, in front of over 50,000 ecstatic fans at the Estadio Nacional, Santiago, during the Round The World In 66 Days leg of The Final Frontier World Tour, and captures a magnificent performance by the band, ardently embraced by the legendary Latino passion and energy of their Chilean fans. With spectacular stage backdrops, dynamic musicianship and a literally jaw-dropping appearance by Eddie, this live show encapsulates to perfection the heart and soul of Iron Maiden 2011.
+Bass player and founding member Steve Harris comments, For The Final Frontier Tour, it was really important to me that we filmed in South America as we re always so overwhelmed by the fans reaction when we go to that part of the world and I wanted to reflect that in the filming. After much consideration, we chose the Santiago show as we felt it was one of our best performances of the entire tour and to play at the prestigious Estadio Nacional was a landmark moment for us. For reasons known to our fans, it took (   Читать дальше...   )1. Satellite 15
+2. The Final Frontier
+3. El Dorado
+4. 2 Minutes To Midnight
+5. The Talisman
+6. Coming Home
+7. Dance Of Death
+8. The Trooper
+9. The Wicker Man
+10. Blood Brothers(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:55:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 473737   (84613) от 26.03.2012
 
 Iron Maiden: En Vivo! (2011/2012) [720p] BDRip
@@ -682,60 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BC5037D8F130EB410953753FB1D00ACF6290A4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776494   (71230) от 01.02.2025
-
-МузЛофт-подкаст / МузLoft. TESTOSTERON (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71230.jpg" />
-</div>
-
-
-###  Подробнее
-
-TESTOSTERON. Кто решает в группе и кто отвечает за базар.
-В гости на музыкальные посиделки заглянули обладатели хита «Это не женщина - это беда», братья и основатели группы Тестостерон. Ребята расскажут о насыщенной жизни как на сцене, так и за ее пределами. А главное, ответят на вопрос: «как делят девушек?».Производство: Россия | Y-GenerationУчастники: TESTOSTERONПродолжительность: 01:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A9BE940D4F2EDF035A44E4176C6251A6F208DA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776472   (71227) от 01.02.2025
-
-МузЛофт / МузLoft. Лео и Akmal' (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лео и Akmal'. Истории про Градского, Пугачеву и The Weeknd.
-Это наш музыкальный эксперимент, который мы сняли в Градский - холл. Сразу два артиста, а это значит в два раза больше песен и историй.Производство: Россия | Y-GenerationУчастники: Лео и Akmal'Продолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB5E1FF653BB8BB659F1F2D8C050B903C178841
 ```
 
 https://mybot314.ru/tekegram_catalog/

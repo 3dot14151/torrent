@@ -1,3 +1,116 @@
+###  Публикация: 1800147   (15963) от 01.06.2025
+
+Rammstein - LIVE: Stadium Tour 2024 (2025) [H.264/1080p] CamRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любительская Multicam-запись выступления Rammstein в последний год гастролей под эгидой их «World Stadium Tour», выпавший на празднование 30-летнего юбилея группы.
+Бо́льшая часть видеоматериалов собрана из двух представлений в Белграде, которые начинались в уже тёмное время суток, в отличие от почти всех концертов тура. Съёмка в ночных декорациях лучше передаёт (   Читать дальше...   )01. Music for the Royal Fireworks
+02. Ramm4 (Stadium Edit)
+03. Links 2-3-4
+04. Keine Lust(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 02:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D2CF6257945025FE1CB3CD7DA01D7F4D3F3146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800203   (15947) от 01.06.2025
+
+Scooter - Live in Moscow (2020) CamRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт состоялся в рамках концертного тура "God save the rave" 14 марта 2020 года в клубе "Adrenaline stadium".01. «God save the rave» tour intro
+02. God save the rave
+03. Bora! Bora! Bora!
+04. One (Always Hardcore)(   Читать дальше...   )Производство: РоссияЖанр: ScooterTechno, Hard Trance, Happy HardcoreРежиссер: Jens TheleУчастники: H.P. Baxxter, Michael Simon, Sebastian SchildeПродолжительность: 01:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFBFC81E614BA3DBA87125630FA9998F2436D55E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800416   (15833) от 02.06.2025
+
+МузЛофт-Дети / МузLoft. Аделия Загребина (2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аделия Загребина. От Уитни Хьюстон до Шуры. Обращение к Егору Криду.
+Всю музыкальную палитру и детскую непосредственность можно услышать и увидеть именно в этом выпуске. Включайте его скорее, чтобы узнать, как победить в шоу «Голос. Дети» и почему кота зовут Егор?Производство: Россия | Y-GenerationУчастники: Аделия ЗагребинаПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E0AF66D69E8BCE554DA0ED23F61A2066ECCD51E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801198   (15233) от 08.06.2025
+
+Epica: Live at The Symphonic Synergy (2024) BDRip [H.265/1080p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Epica: Live at The Symphonic Synergy представляет собой масштабный аудиовизуальный релиз, ставший одним из самых грандиозных выступлений группы в её истории.
+Концерт был записан 20 сентября 2024 года в знаменитом амстердамском зале AFAS Live. Уникальность выступления заключается в том, что оно состоялось при участии полного симфонического оркестра и хора, что создало (   Читать дальше...   )Жанр: Symphonic MetalУчастники: Simone Simons - vocals, Isaac Delahaye - lead guitars, vocals, Mark Jansen - rhythm guitars, vocals, Coen Janssen - keyboards, Rob Van Der Loo - bass, Ariën Van Weesenbeek - drumsПеревод: ОтсутствуетПродолжительность: 02:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:419120D1847BD180703FF7C2DF23F0D290274D28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802358   (14420) от 16.06.2025
 
 Квартирник у Маргулиса. «Больше чем футбол» (15.06.2025) WEBRip [H.264/1080p]
@@ -596,110 +709,6 @@ KiiiKiii - Dancing Alone (2025) WEBRip [H.265/2160p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A10C75BCA635315E48078E3A2BF24B2B40A44CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812882   (7480) от 16.08.2025
-
-Billie - Domino - Butterfly effect (2024) WEBRip [H.265/2160p] [60fps]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: КореяЖанр: JpopПродолжительность: 00:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DE06BC7899447E1E60F0EBFD63B4E2275534711
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812810   (7453) от 16.08.2025
-
-NewJeans - Attention (Performance) (2022) WEBRip [H.265/2160p] [60fps]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: КореяЖанр: KpopПродолжительность: 00:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:851E22A593097DD0B077146B49FCC53CE2391AFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812826   (7434) от 16.08.2025
-
-HeeJin (ARTMS) - Algorithm (2023) WEBRip [H.265/2160p] [60fps]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: КореяЖанр: KpopПродолжительность: 00:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0CC34264F01B59116051E426F3CBB47CFBE05FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812798   (7433) от 16.08.2025
-
-STAYC - I Want It (On the Spot) (2025) WEBRip [H.265/2160p] [60fps]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: КореяЖанр: KpopПродолжительность: 00:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2FDBC0E3CC77839345F53E927EBBBE813FCEF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

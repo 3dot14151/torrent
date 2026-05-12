@@ -1,3 +1,107 @@
+###  Публикация: 1310238   (547564) от 23.06.2019
+
+Экшены - GraphicRiver - Watercolor Illustration Photoshop Action - 23280378 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Watercolor Illustration - Это действие выполнено в чистом акварельном стиле. Действие довольно простое в использовании и, опять же, имеет 2 версии – тяжелую версию и мягкую версию. Действие хорошо сочетается с пейзажами и архитектурой, портретами и натюрмортами.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA73D1CBC85FA503A5EC01449DEF0F384CA1BBE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 694017   (547333) от 28.08.2013
+
+Растровый клипарт - Деньги 3 / Money 3 [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547333.jpg" />
+</div>
+
+
+###  Подробнее
+
+ДеньгиФормат: JPEGРазрешение файлов: 5500х5300-8500х12700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03A85B9E781BCCB1AC444E36BF72E2A69E7A64C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048259   (547314) от 01.09.2016
+
+Экшены - CreativeMarket - Colored Smoked [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Colored Smoked - экшен для Вашего творчества.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EACC39C194369A40A839D19B6925BB2AFFEEB3A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048242   (547302) от 01.09.2016
+
+Экшены - GraphicRiver - Sketch Art Photo Action [ATN, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sketch Art Photo - экшен для Вашего творчества.Формат: ATN, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE459FB7F0BA50DC5FC10CF43BE5AC9F702E3EFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048286   (547280) от 01.09.2016
 
 Экшены - CreativeMarket - Sketch It Actions [ATN, PAT]
@@ -569,110 +673,6 @@ Soft Painting - картина маслом, простой в использо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75FC633BB5778EF73F30ED2BCE7CCB0ABE688766
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238542   (546145) от 30.07.2018
-
-Экшены - GraphicRiver - Concept Mix Photoshop Action - 22263860 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concept Mix - Я с гордостью представляю еще один шедевр в стиле концепт-арта. Штриховка, шероховатая или чистая версия, множество вариаций брызг, красок, все, включая отдельные цвета, находится под контролем для обогащения вашего изображения. (от автора, google translate)Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F81E8335524008639B5939AB6D8452672830BF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049035   (545668) от 03.09.2016
-
-Экшены - GraphicRiver - Smoke Action [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smoke - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E64F4BDC8933B34C79435AFF9C6C224732698006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048984   (545639) от 03.09.2016
-
-Экшены - Heavy Smoke Effect Photoshop Actions [ATN, ASL, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Heavy Smoke Effect - экшен для Вашего творчества.Формат: ATN, ASL, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:412F0B87EE5C3693B9E82D9E06B5250C3DAB368E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 694839   (545476) от 30.08.2013
-
-Векторный клипарт - Дизайн футболок 2 / T-Shirt Design 2 [EPS,AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дизайн футболокФормат: EPS,AI и превью в JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1625A7307A233373DE8FB1D81FD0077BD4AA4427
 ```
 
 https://mybot314.ru/tekegram_catalog/

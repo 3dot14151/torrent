@@ -1,3 +1,57 @@
+###  Публикация: 985511   (933835) от 12.02.2016
+
+Проекты - Inspiration Titles [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания титров.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E28255CC06E22CADD0BCE4E07C6A6D85583CF95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985865   (933827) от 12.02.2016
+
+Проекты - Golden Intro Template [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания вступительных титров.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E27E399546F33A5336C0C01E615EBAAB29743A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985883   (933825) от 12.02.2016
 
 Проекты - VideoHive - Flying cards [AEP]
@@ -631,59 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:644C17A7E0F7506D227830DBB10FA80FF0CB94B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094261   (930282) от 17.01.2017
-
-Проекты - VideoHive - Inspirational Parallax Slideshow - 19219370 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект с эффектом параллакса для создания слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8282B83E5364A6687F52FF9866EFC937550DA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094246   (930279) от 17.01.2017
-
-Проекты - VideoHive - Smooth Slide [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания фото-видео слайдшоу.
-Так же можно использовать в качестве промо-ролика или начального видео.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA438618385162F1D6078E2884961AE7A28375E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1010912   (797580) от 26.04.2016
+
+Проекты - VideoHive - Mirror Titles [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект Зеркало представляет собой уникальный шаблон для создания титров.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:206BCD4BB6E77A8D7C643FD5FFF1EFB0946CDC68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011043   (797579) от 26.04.2016
+
+Проекты - VideoHive - Travelscape [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания стильного современного слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CBEE7B8A5188409E396A730A88F31591B1B0322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010939   (797576) от 26.04.2016
 
 Проекты - VideoHive - Soul Surfer [AEP]
@@ -625,58 +678,6 @@ STAR ProMotion - это профессиональный шаблон для с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DC3F36EA65FCF1B9BE9421243107282DA4D1195
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010713   (796754) от 27.04.2016
-
-Проекты - VideoHive - Minimal / Lower Thirds [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Minimal - Lower Thirds - набор элегантных подложек. Цвет и размер контролируется с помощью выражений. Плагины не требуются. PDF обучение включено.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:888B460A1D27789251C7C6EE1B15821992046419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011224   (796748) от 27.04.2016
-
-Проекты - VideoHive - Wavy Ribbons Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летающие ленты на чистом фоне, с хорошим отражением и цветами. Отлично подходит для корпоративного логотипа, YouTube канала и все виды интро анимации логотипов. Вы можете изменить цвета.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5D0CE7AA4CF21BB270CFD55C0607B6E847B3FC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

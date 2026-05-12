@@ -1,3 +1,56 @@
+###  Публикация: 953043   (350867) от 03.11.2015
+
+Проекты - VideoHive - Love Story Album - 6495916 [AEP]
+
+>>Проекты
+>>Свадебные и романтические (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотоальбом с элементами скрапбукинга.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5995F55FCA51B00FC917900D8ADB5B399696B5C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178411   (350668) от 30.10.2017
+
+Проекты - VideoHive - Spirit Of Travel Slideshow - 20322610 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Spirit Of Travel Slideshow - проект для создания слайдшоу с последовательностью названий.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E648BC0B4E845EBDB6740A9803B1C6D8AF92904F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418038   (350658) от 23.10.2020
 
 Проекты - VideoHive - Wedding Slideshow - 28707064 [AEP]
@@ -622,60 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADE8FADA2C7E93363F938286113E816FB2AF9984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953516   (348677) от 04.11.2015
-
-Проекты - VideoHive - Galactic Tour II [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания интро для видео на космическую тематику.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16AD484E9D40BD0585F3EC7BB1E0E6348A26A6FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953438   (348672) от 04.11.2015
-
-Проекты - VideoHive - Minimal Glass Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для эффектного представления вашего логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7C7EB098F11D2017E920C710135746B1B22CCE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

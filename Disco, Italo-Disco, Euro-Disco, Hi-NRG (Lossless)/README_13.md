@@ -1,3 +1,32 @@
+###  Публикация: 919918   (581765) от 20.07.2015
+
+Bad Boys Blue - You're A Woman 2015 (2015) [FLAC|tracks + .cue]<Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're A Woman (High Tide Remix Radio Edit) [3:16]
+02. You're A Woman (Reloaded Album Version) [3:07]
+03. You're A Woman (High TIde Remix Extended Edit) [7:19]
+04. You're A Woman (Reloaded Extended Mix) [4:51](   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1E2FB1B90D8F9276769185D6917B6425D29C78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 810974   (581548) от 07.08.2014
 
 Saphir - Perfect Combination (2006) Limited Edition [APE|Lossless]<Italo-Disco>
@@ -824,35 +853,6 @@ Joe Yellow - Yellowgraphy (2016) 2CD, Compilation [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E418E763EE17C99779E23F9C6AAA7C687063960
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152359   (567109) от 22.07.2017
-
-Digitalo - Say Yes (2016) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girl from Russia (Extended Version)
-02. Digitalo (Extended Version)
-03. Love Me Endlessly (Extended Version)
-04. Say Yes! (Extended Version)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 01:17:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C72244F43DF9D75579EDC4A4F6B1A08D071EAFB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

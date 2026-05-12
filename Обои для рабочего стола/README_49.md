@@ -1,3 +1,29 @@
+###  Публикация: 933039   (505192) от 02.09.2015
+
+Обои - Пак с обоями на любой вкус 1 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пак с обоями на разные темыФормат: JPGРазрешение файлов: 1600x1200 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:463CCFC1EADCFF959E39E09C1CDAB1ABB1A58270
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933429   (505189) от 02.09.2015
 
 Обои - Mega Wallpapers Pack 13 [JPG]
@@ -641,32 +667,6 @@ Landscapes HD Wallpapers (30.08.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81E9433F432A0F82D15AC96A96EA4882BB214030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317329   (501290) от 31.07.2019
-
-Обои - Desktop Wallpapers Full HD. Part (487) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C415F60F18C11428DBB793CC7EA4638E017CE1CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

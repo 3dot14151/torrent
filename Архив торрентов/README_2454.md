@@ -1,22 +1,22 @@
-###  Публикация: 540225   (504734) от 28.08.2012
+###  Публикация: 540132   (504977) от 28.08.2012
 
-Декоративное панно в стиле Арт Нуво [Графика]
+Nature Wallpapers (26.08.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504977.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Декоративное панно в стиле Арт Нуво
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F95DAB3765ABDD3663FD658B68E7366BB5B9F3B0
+magnet:?xt=urn:btih:E784364A3A52F996F827D56A17285D68D32601B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,197 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 540375   (504730) от 28.08.2012
+###  Публикация: 540131   (504976) от 28.08.2012
 
-Добровольцы поневоле / Stripes (1981) DVDRip [Extended Cut]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон Уингер в один ужасный день потерял работу, лишился машины, расстался со своей квартирой и с любимой девушкой. Как жить дальше? Джон принимает волевое решение пойти добровольцем в армию и уговаривает своего друга Рассела присоединиться к нему. Армия — лучшее место для настоящих мужчин, готовых на все ради своей страны!
-Кроме того, наши герои надеются с помощью (   Читать дальше...   )Жанр: КомедияРежиссер: Айвэн Райтман (Ivan Reitman)Актеры: Билл Мюррей (Bill Murray), Харолд Рэймис (Harold Ramis), Уоррен Оутс (Warren Oates), П. Джей Соулз (P. J. Soles), Шон Янг (Sean Young), Джон Кэнди (John Candy), Джон Ларрокетт (John Larroquette), Джадж Рейнхолд (Judge Reinhold)Перевод: Одноголосый закадровыйСубтитры: нетПродолжительность: 02:02:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F906D84D705E2C1916D750D08CB7647D10E3AD85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539350   (504728) от 28.08.2012
-
-VA - United Destination 2012: Mixed by Dash Berlin (2012) [FLAC|Lossless]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karanda - Titan (Original Mix) (7:05)
- 02. Emma Hewitt - Miss You Paradise (Shogun Remix Radio Edit) (3:29)
- 03. Alex M.O.R.P.H. & Protoculture - Waking Up The Stars (Radio Edit) (3:45)
- 04. Dash Berlin feat. Emma Hewitt - Waiting (W&W Radio Edit) (4:26)
- 05. LTN - Never Let Me Go (Beat Service Radio Edit) (4:04)
- 06. Boom Jinx & Daniel Kandi - Azzura (Juventa vs Willem De Roo Remix) (7:31)
- 07. Steve Brian - Yaya (Estiva Remix) (6:26)
- 08. Dash Berlin feat. Kate Walsh - When You Were Around (Album Version) (5:24)
- 09. Fred Numf & Etienne Overdijk - Endorphin (Johnny Yono Radio Edit) (3:38)
- 10. MaRLo - Megalodon (Radio Edit) (3:27)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:56:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379154   (504715) от 23.08.2011
-
-Desert Dwellers - 3 Albums (2006-2009) [MP3|320 kbps]<Dub, Downtempo, Tribal, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504715.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Pranafestation (6:46)
- 2.Yoga Dub Mystic (8:04)
- 3.Temple Dragons (6:36)
- 4.Crossing The Desert (7:30)
- 5.Tala Odyssey (8:04)
- 6.Point Of Awakening (8:08)
- 7.You Can See Forever (8:08)Жанр: Dub, Downtempo, TribalПродолжительность: 00:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB4EE85516AE90A8C1315D2F009C1C7A35DDD505
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 233177   (504685) от 05.09.2010
-
-Журнал | Playboy [Romania] №9 (September 2010) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Playboy – глянцевый мужской журнал охватывает широчайший тематический спектр: самые красивые женщины мира, пикториалы и эксклюзивные съемки знаменитостей, репортажи о путешествиях, престижные автомобили, мода и стиль жизни.Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540492   (504682) от 28.08.2012
-
-Opera Next 12.50.1577 (x86+x64) [Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Opera – один из самых быстрых и гибких в настройке браузеров. Используя скины, пользовательские панели и другие средства настройки интерфейса, его внешний вид можно изменять до неузнаваемости. Программа позволяет “на лету” отключать и включать графику, а также может похвастаться фирменной технологией масштабирования веб-страниц, благодаря которой пользователи браузера практически никогда не видят горизонтальной прокрутки. Сделайте свою работу в Интернете еще быстрее. Все операции, начиная от загрузки веб-страниц и заканчивая открытием вкладок, оптимизированы для почти мгновенного выполнения. Вы даже можете ускорить просмотр веб-страниц в случае низкой скорости соединения, воспользовавшись Opera Turbo. Более высокий уровень защиты от угроз, связанных с работой в Интернете. Лучшие в отрасли средства обеспечения безопасности, такие как защита от угроз Интернета и панель безопасности, служат для вашей защиты. Работайте с ресурсами Интернета максимально удобно с помощью таких прекрасных функций, как пользовательский (   Читать дальше...   )Название программы: Opera Next 12.50.1577 (x86+x64)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540080   (504681) от 28.08.2012
-
-Крошка Молли / Lovely Molly (2011) [1080p] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504681.jpg" />
-</div>
-
-
-###  Подробнее
-
-После свадьбы Молли Рейнольдс возвращается в свой давно заброшенный фамильный дом, где страшные воспоминания о кошмарах детства начинают просачиваться в ее новую жизнь. Вскоре она начинает погружаться в пучину зла, размывающего границы между психозом и одержимостью демонами...Жанр: Ужасы, Драма, ТриллерРежиссер: Эдуардо СанчесАктеры: Гретчен Лодж, Джонни Льюис, Александра Холден, Филд Бловелт, Кен Арнольд, Тони Эллис, Лоурен Лакис, Кэти Фостер, Дэниэл Росс, Тодд Райан ДжонсПеревод: ДублированныйПродолжительность: 01:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C638524096023D8557F28E049BD7C531DDE4B21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539974   (504679) от 28.08.2012
-
-Работы  Алексея Довгули [Фотография]
+Best HD Wallpapers Pack (26.08.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504976.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Работы Фотографа Алексея Довгули.
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CFF41E32098F0CB2EF8A0CBA5BA15CB81AAC8D0F
+magnet:?xt=urn:btih:0C34F2BED809861F0C2B418516DD414CFF5841D3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -222,51 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 540158   (504678) от 28.08.2012
+###  Публикация: 539343   (504974) от 28.08.2012
 
-Отмеченный смертью / Marked for Death (1990) DVD9
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504678.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти напарника Джон Хэтчер, специальный агент отдела по борьбе с наркотиками, решает подать в отставку. Переехав к своей сестре в Чикаго, Хэтчер намеревается вести тихое и размеренное существование. Но этому не суждено было сбыться. На пути у бывшего полицейского встает ямайская наркомафия во главе со своим жутким главарем по прозвищу Зомби. Хэтчер оказывается втянутым в кровавые разборки.Жанр: Боевик, триллер, драма, криминалРежиссер: Дуайт Х. ЛиттлАктеры: Стивен Сигал, Бейзил Уоллес, Кит Дэвид, Том Райт, Джоанна Пакула, Элизабет Грэйсен, Бетт Форд, Даниэль Харрис, Эл Израэл, Арлен Дин СнайдерПеревод: Многоголосый закадровыйЯзык субтитров: Русский, английский, украинскийПродолжительность: 01:29:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539922   (504677) от 28.08.2012
-
-[Wallpapers] Wallpaper win8
+Nature Wallpapers (25.08.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504974.jpg" />
 </div>
 
 
 ###  Подробнее
 
-оригинальные обои из Windows 8 RTM Build 9200
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3041D5AD1A12508B92FF486D5F2E140817A3E27
+magnet:?xt=urn:btih:2D155C7EE08936AC727C477F8198E92B362D15C9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -274,25 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 539405   (504676) от 28.08.2012
+###  Публикация: 538093   (504973) от 28.08.2012
 
-Работы художника Ramiro Ramirez Cardona [Графика]
+Nature Wallpapers (22.08.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504973.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Работы художника Ramiro Ramirez Cardona
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B422784BEAD6A0252EA9843C593283706D55A9F
+magnet:?xt=urn:btih:B7B6A2D3744E9BECD44D84BE23E9DFF9FC90F0B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -300,105 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 540161   (504672) от 28.08.2012
+###  Публикация: 540140   (504972) от 28.08.2012
 
-Mozilla Firefox 15.0 Final by PortableAppZ [Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Firefox - очень быстро работающий браузер, причем быстрота работы заметна не только во время загрузки веб-страниц, но и при поиске в закладках и истории. Сделан он на основе движка Mozilla и позволяет просматривать все веб-страницы в одном многовкладочном окне, а также обладает множеством других полезных опций, включая способность значительного расширения возможностей подключением плагинов (а выпущено их великое множество).
-
-(   Читать дальше...   )Название программы: Mozilla FirefoxЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539737   (504670) от 28.08.2012
-
-Damnation [Ru/En] (RePack/1.0) 2009 | R.G. Element Arts
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практически любая гражданская война ведет к диктатуре. Не стала исключением и бойня, разразившаяся в благополучной на первый взгляд Америке. Города и поселения лежат в руинах, люди устали от кровопролития. Воспользовавшись удачным моментом, к власти в стране пришла мощная оружейная корпорация. Вновь над разоренной страной пронеслось пламя конфликта. Лишь горстка (   Читать дальше...   )Тип издания: RePackРазработчик: Blue Omega Entertainment и Demiurge StudiosЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E8730A49D1B2FF337F2E47F761423F8267C00EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540384   (504669) от 28.08.2012
-
-Стивен Кинг | Способный ученик [2006] [MP3]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американский подросток. Днём он хороший мальчик из маленького городка, способный ученик, надежда школы. Вечерами этот способный ученик учится убивать. Что автор хотел сказать своей книгой? Может быть, хотел напомнить о зёрнышке тьмы, которое есть в душе у каждого человека. Если это зёрнышко вовремя поливать и хорошенько ухаживать за ним, рано или поздно оно прорастёт. И тогда в душе у когда-то хорошего, в общем-то, человека не останется ничего, кроме тьмы.Жанр: Остросюжетная проза
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0D60188AE13EAB4C59F1E7D4B16DDCC7CB2791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540185   (504666) от 28.08.2012
-
-Photos from Abramyan Karen [Фотография]
+Computer Desktop Wallpapers Collection (27.08.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504972.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Работы фотографа Abramyan Karen.
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:292B3A629781C7AABCEA17267325F325A0D21C28
+magnet:?xt=urn:btih:8F42F96CB269BADE0E7F1BF1F85AFF69E88CB2AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -406,25 +128,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 933795   (504664) от 03.09.2015
+###  Публикация: 539307   (504971) от 28.08.2012
 
-Чемпионат Германии 2015-16. 3-й тур. Обзор тура. Эфир от 30.08.2015 (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Nature Wallpapers (24.08.12) [Wallpapers]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504971.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обзор Чемпионата Германии 2015-2016 года.Телекомпания: Eurosport 2 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:58:11
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0874BB1423B2056BEFD334A027652276D757F54
+magnet:?xt=urn:btih:DD65AE3F44C5D85B54EB92512FF91315212E8BBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -432,25 +154,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 933777   (504663) от 03.09.2015
+###  Публикация: 538119   (504970) от 28.08.2012
 
-Чемпионат Франции 2015-16. 4-й тур. Обзор тура. Эфир от 01.09.2015 (2015) HDRip
+Nature Wallpapers (23.08.12) [Wallpapers]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504970.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обзор Чемпионата Франции 2015-2016 года.Телекомпания: НТВ+ Футбол 1Жанр: Спорт, ТелепередачаПродолжительность: 00:52:26
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E082545688659F752E4CE4F214006E0F25D85D7
+magnet:?xt=urn:btih:F6317D74018C8E607B483A0EF517353F3400C075
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -458,78 +180,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 933770   (504662) от 03.09.2015
+###  Публикация: 539756   (504968) от 28.08.2012
 
-Чемпионат Италии 2015-16. 2-й тур. Обзор тура. Эфир от 01.09.2015 (2015) HDRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор Чемпионата Италии 2015-2016 года.Телекомпания: НТВ+ Футбол 1Жанр: Спорт, ТелепередачаПродолжительность: 00:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:693B5B3AD2115098A09D4FCDFB027BA6E5533E16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933796   (504615) от 03.09.2015
-
-Чемпионат Испании 2015-16. 2-й тур. Обзор тура. Эфир от 01.09.2015 (2015) HDRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор Чемпионата Испании 2015-2016 года.Телекомпания: НТВ+ Футбол 1Жанр: Спорт, ТелепередачаПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D13E11B5B2B7BB8C072B0E1CD9524486B1FCFC1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933609   (504612) от 03.09.2015
-
-Mob Tactics - Neon God / Return Of The Snitch (2015) [MP3|320 кб/с]<Drum & Bass>
+David Salvans - Montseny (1994) [MP3|320 кб/с]<New age, Electronic>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504968.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Neon God (feat. Joell Fender)
-02. Return of the SnitchЖанр: Drum & BassПродолжительность: 00:08:57
+(11:06) 1. Turo de grenys
+(12:22) 2. Fragments
+(14:18) 3. Montseny
+(03:30) 4. Tufts & MusicЖанр: New age, ElectronicПродолжительность: 00:41:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FF7E168A6F663DAB9B56338A4E4BBBF71E8EFA2
+magnet:?xt=urn:btih:E12F216AB9A1573898B07BA9042AB1FFAA4B5949
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -537,28 +209,320 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 933620   (504611) от 03.09.2015
+###  Публикация: 539345   (504967) от 28.08.2012
 
-Impak - The Visitors EP (2015) [MP3|320 кб/с]<Drum & Bass>
+Desktop wallpapers (25.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C9831615A249590CAF589BAD4CE4D7E48EE1F21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538094   (504966) от 28.08.2012
+
+Landscapes HD Wallpapers (22.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79C9E909A8E4CCEA2575D17101B6809CEDF1E5CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539344   (504965) от 28.08.2012
+
+Landscapes HD Wallpapers (25.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AD6107FE8D20E5D4C18F55B685372CA7D5248C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540205   (504938) от 28.08.2012
+
+Nature Wallpapers (28.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE89BBA1D3C4E58D9736EE62965EEC0ADB0A324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538117   (504937) от 28.08.2012
+
+Computer Desktop Wallpapers Collection (23.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F84CC597B44E6771EB7ADC87EEB1FD72FEAB8608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538095   (504936) от 28.08.2012
+
+Nature HD Wallpapers (22.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B3BA976C5FB477EC99DF35B505FBC3AC6790288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539420   (504935) от 28.08.2012
+
+Computer Desktop Wallpapers Collection (26.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DD521BA046219890F629B8F96441FFB87C131F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538096   (504934) от 28.08.2012
+
+Design and interior of the wallpaper (22.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:417F1BA87D2167F10F6C349B940CCB3475B73963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537877   (504933) от 28.08.2012
+
+Nature Wallpapers (21.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75CDCE1EE4BBA024BEDEFFAE074A4EA7F5E59D18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539342   (504932) от 28.08.2012
+
+Best HD Wallpapers Pack (25.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D1D04F50933EFC54FFA611978F49867D882462F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538097   (504931) от 28.08.2012
+
+Design and interior of the wallpaper part.2 (22.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7335708E0E2074971D56A0CF1CB5C87B091CA170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539095   (504930) от 28.08.2012
+
+Neosis - Neosis (2012) [MP3|320 кб/с]<Progressive Math Death, Modern Cyber Metal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504930.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Visitors (Original Mix)
-02. Spiral (Original Mix)
-03. Roars (Original Mix)
-04. Node (Original Mix)Жанр: Drum & BassПродолжительность: 00:22:09
+01. Everlasting Mind Collapse 04:57
+ 02. Unwilling Fate 05:07
+ 03. Worship Mindset 05:08
+ 04. The Deconstruction Of Reality 05:35
+ 05. Neo-Euhemerism 05:10
+ 06. Supremacy Design 05:05
+ 07. Fragmentary Alteration 03:59
+ 08. Chronic Absolutism 03:52
+ 09. The New Paradigm 04:56
+ 10. Cerebral Helix 04:55Жанр: Progressive Math Death / Modern Cyber MetalПродолжительность: 00:48:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DA2C29D602DDBB0ECE4666B7CFC2CFCA422C38F
+magnet:?xt=urn:btih:8F158949D324DBBB7F55BEF50266012ADAC513C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -566,28 +530,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 934022   (504608) от 03.09.2015
+###  Публикация: 538121   (504929) от 28.08.2012
 
-VA - Perfecto Vocals Vol. 1 (2015) [MP3|320 кб/с]<Trance, Progressive House>
+Desktop wallpapers (23.08.12) [Wallpapers]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504929.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Grace - Not Over Yet (Max Graham vs Protoculture Remix) (08:28)
-02. Ce Ce Peniston feat. Joyriders - Finally (Tiger Stripes Remix) (07:22)
-03. Mia Dahli - Need You Now (Kenneth Thomas Remix) (07:45)
-04. Oakenfold feat. Tamra - Sleep (Marcus Schossow Perfecto Mix) (06:45)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 02:16:10
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4AF98D8F97329334BEFF785AFC695C51F63F5F62
+magnet:?xt=urn:btih:D68FA5AB084924AC1F80C4306042C782AC1BBDA8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -595,26 +556,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 933614   (504607) от 03.09.2015
+###  Публикация: 538120   (504928) от 28.08.2012
 
-Loadstar - Native / Once Again (2015) [MP3|320 кб/с]<Drum & Bass>
+Landscapes HD Wallpapers (23.08.12) [Wallpapers]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504928.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Native (Original Mix)
-02. Once Again (Original Mix)Жанр: Drum & BassПродолжительность: 00:08:49
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5AB24C0510BF26CC804191A2C009324FF0057D8
+magnet:?xt=urn:btih:EE4B0E03636AADC0832BB9CDB51031A6AF43F351
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -622,27 +582,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 540044   (504599) от 28.08.2012
+###  Публикация: 540143   (504927) от 28.08.2012
 
-TeamViewer 7.0.14484 Final + Portable [MULTi / Русский]
+Desktop wallpapers (27.08.12) [Wallpapers]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504927.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TeamViewer - программа для удалённого управления компьютером. Главной особенностью является то, что не нужно внешнего IP, нужно лишь 2 ID в системе TeamViewer. Эта программа работает через интернет, вне зависимости в какой ты стране находишься. Кроме доступа к рабочему столу и управления удаленным компьютером, можно передавать файлы, устраивать презентации, помогать настроить компьютер, общаться в чате и т.д.
-
-(   Читать дальше...   )Название программы: TeamViewerЯзык интерфейса: MULTi / Русский
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:4ED4C1F0F47A8A6F0D6483C3AD9668EA4D6F5355
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -650,25 +608,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 540418   (504595) от 28.08.2012
+###  Публикация: 537880   (504926) от 28.08.2012
 
-AIDA64 Extreme Edition & Business Edition 2.60.2100 Final RePack by elchupacabra [RUS/ENG]
+Design and interior of the wallpaper (21.08.12) [Wallpapers]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504926.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AIDA64 (бывший Everest) - утилита является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную проверку отдельных подсистем ПК. Выводит подробные сведения обо всем аппаратном и программном обеспечении, установленном в системе.Название программы: AIDA64 Extreme Edition & Business EditionЯзык интерфейса: RUS/ENG
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:155BF55FDCED36466FCBDAC2B034F05AACD51B9F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -676,25 +634,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 540547   (504592) от 28.08.2012
+###  Публикация: 540203   (504925) от 28.08.2012
 
-Королева проклятых / Queen of the Damned (2002) DVDRip
+Computer Desktop Wallpapers Collection (28.08.12) [Wallpapers]
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504925.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Легендарный вампир Лестат пробудился после долгих лет сна и решил выйти в свет. Теперь он имеет возможность перемещаться среди смертных в образе некой рок-звезды. Его опьяняющая музыка — приманка популярна во всем мире, и в конечном счете, доходит до ушей дремлющей Королевы Акаши в ее склепе во льдах Арктики.Мать всех вампиров, Акаша отдыхала несколько столетий, ожидая подходящее время для того, чтобы подняться и вновь захватить власть по всему миру. Музыка Лестата — открытие, которого она ожидала…Жанр: Ужасы, Фэнтези, МистикаРежиссер: Майкл РаймерАктеры: Стюарт Таунсенд ,Элайя, Маргерит Моро, Пол МакГэнн, Венсен Перес, Лина УлинПеревод: ДублированныйПродолжительность: 01:39:27
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDF4C897FC76A99FECB7203180585E3419FC806E
+magnet:?xt=urn:btih:6C43F34F801A4601601F6E54622B41DED9BA86EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539310   (504924) от 28.08.2012
+
+Design and interior of the wallpaper (24.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3757C63D632CFBEB0078DDDE6EFA61BAF4CD2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

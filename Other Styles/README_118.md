@@ -1,3 +1,154 @@
+###  Публикация: 1169976   (400314) от 30.09.2017
+
+Jean-Michel Jarre - Original Album Classics 5CD (2017) Remastered [MP3|320 Kbps] <Ambient, New-Age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Magnetic Fields, Pt. 1  17:59
+02.  Magnetic Fields, Pt. 2  3:59
+03.  Magnetic Fields, Pt. 3  4:11
+04.  Magnetic Fields, Pt. 4  6:25(   Читать дальше...   )Жанр: Ambient, New-Age, ElectronicПродолжительность: 03:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78663E68EB41F7DC3F6FBBAB0CD53E83D819281E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170506   (399533) от 01.10.2017
+
+Brian Crain - Sienna (2003) [FLAC|Lossless|tracks + .cue] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song For Sienna (4:09)
+ 02. Lavender Hills (3:09)
+ 03. Crimson Sky (4:59)
+ 04. The Secret Letter (3:07)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC7A0C2AB82F8EE713A236C386EB1BF916FF0F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170590   (399481) от 01.10.2017
+
+Johannes Linstead - Azul (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Azul
+02 - Cha Cha Chu
+03 - Be My Girl
+04 - Lazy Sunday(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F52CFC4CDD10CBFE06F669D30FFDD1EF8F479F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170586   (399290) от 01.10.2017
+
+VA - Pulp Fiction (Collector's Edition) (2002) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Tim Roth - Pumpkin and Hunny Bunny-Misirlou
+02 - Samuel L. Jackson - Royale With Cheese
+03 - Kool & the Gang - Jungle Boogie
+04 - Al Green - Let's Stay Together(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:53:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB9959A39861F54476716C15316D79A9E967A289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566310   (399015) от 27.10.2012
+
+Oystein Sevag - 2 albums (2010, 2012) [MP3|320 кб/с]<New age, Jazz>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399015.jpg" />
+</div>
+
+
+###  Подробнее
+
+(5:48) 01. Landing
+(4:11) 02. Urban Nocturne
+(3:51) 03. Gentle
+(3:27) 04. Song from another Place
+(6:00) 05. A Butterfly's Dream
+(2:37) 06. Time Shadows
+(5:13) 07. A Sparkling Point of View
+(3:06) 08. Lights After Dark
+(1:32) 09. Call
+(7:31) 10. Contact(   Читать дальше...   )Жанр: New age, JazzПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66CED23C0DA85C9D9304A21602F4ABE183548EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170584   (398628) от 02.10.2017
 
 VA - Men in Black (1997) [MP3|320 Kbps] <Soundtrack>
@@ -618,162 +769,6 @@ Kristofer Maddigan - Cuphead - Original Soundtrack (2017) [MP3|320 Kbps] <Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:340C29F5700769848F3D079CC5F558A91FD55DCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 149390   (391971) от 05.11.2009
-
-Merlin's Magic - Just Harmony - The Very Best Of Merlin's Magic (2009) [MP3|320 kbps]<New age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_391971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 My Guardian Angel 07:31
-02 Just Harmony 06:52
-03 Heart of Love 05:07
-04 Light Touch 06:50
-05 Space of Peace 07:01
-06 Deep in My Soul 08:27
-07 Heavenly Spheres 07:51
-08 Heaven and Earth 04:47
-09 Sun Salutation 10:53Жанр: New age, MeditativeПродолжительность: 00:56:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569447   (391533) от 03.11.2012
-
-Neil Davidge - Halo 4. Original Soundtrack (Special Digital Edition) (2012) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391533.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Awakening (05:40)
-2. Belly Of The Beast (02:38)
-3. Requiem (02:15)
-4. Legacy (02:29)
-5. Faithless (05:02)
-6. Haven (05:44)
-7. Nemesis (03:31)
-8. Ascendancy (04:19)
-9. Solace (04:45)
-10. To Galaxy (04;57)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FC5F1F9FC0B9ECC98877D3C7FE8673749AB969C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173031   (391239) от 10.10.2017
-
-Medwyn Goodall - Medicine Woman 6: Synchronicity (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391239.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Synchronicity (8:08)
-2.  Second Chances (9:02)
-3.  Making Magic (7:58)
-4.  The Beginning of All Beginnings (6:52)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A215E550E28A8705BA61CC04B4FAD4B590C91F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172627   (391230) от 10.10.2017
-
-Meldis - Грани Миров (2013) [FLAC|Lossless|image + .cue] <Folk, Celtic Harp>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cad e sin don te sin (3:00)
-02. Amazing Blues (2:32)
-03. Coming Around (4:13)
-04. Trotto (1:26)(   Читать дальше...   )Жанр: Folk, Celtic HarpПродолжительность: 00:32:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E758BC1859767CBA097215E4D2ACC8C9A63107A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172482   (391153) от 10.10.2017
-
-VA - Latino Hits Power (2017) [MP3|320 Kbps] <Latin Music, Reggaeton>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alvaro (Los Principales) – Pa Fiesta 00:04:22
-02. Pi Lawton – SMS Salvaje 00:04:14
-03. Los 3 Gatos – Vamos a Jamarnos 00:03:30
-04. Dany – No Te Enganches 00:03:38(   Читать дальше...   )Жанр: Latin Music, ReggaetonПродолжительность: 01:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836B667543288A1A2C2D0A96D90BACB1504B2AEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

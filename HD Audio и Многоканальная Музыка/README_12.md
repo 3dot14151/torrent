@@ -1,3 +1,121 @@
+###  Публикация: 1492379   (903857) от 29.08.2021
+
+George Harrison – All Things Must Pass (50th Anniversary) (2021) [DTS-ES Discrete 6.1 CD-DA|44.1/16|image+.cue|BD-Audio] <Pop/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 I’d Have You Anytime
+02 My Sweet Lord
+03 Wah-Wah
+04 Isn’t It A Pity (Version One)(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 01:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:140202108F00581B0D1C17E151680A56454483AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099256   (903056) от 02.02.2017
+
+Simply Red - Stars (1991) [FLAC 2.0|192/24|tracks+.cue|Vinyl-Rip] <Funk, Soul, Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903056.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Something Got Me Started 4:01
+A2 Stars 4:07
+A3 Thrill Me 5:03
+A4 Your Mirror 3:59(   Читать дальше...   )Жанр: Funk, Soul, Pop, RockПродолжительность: 00:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B86B57DC8AB150CB300F0A12D89EC9B9739167C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 867152   (902749) от 08.02.2015
+
+Оркестр Олега Лундстрема - Серенада солнечной долины (1976) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. В хорошем настроении - Разаф, Гарланд  3:30
+2. Лунная серенада - Г. Миллер  2:42
+3. Дорога на Чаттанугу - Гордон, Уоррен  2:42
+4. Я знаю, почему - Уоррен  1:58(   Читать дальше...   )Жанр: JazzПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9C3BFB4F9B7C3FD7367A8F77C080FDBF9482366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 867384   (902586) от 08.02.2015
+
+AC/DC - Let There Be Rock (1977) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Go Down  5:14
+2. Dog Eat Dog  3:30
+3. Let There Be Rock  6:06
+4. Crapsody In Blue  4:22(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4402E00C2965C9DE3615437D75E4B3D42CC85956
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 867143   (902548) от 08.02.2015
 
 Джеймс Ласт - Счастливый летний вечер (1980) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Easy Listening>
@@ -633,129 +751,6 @@ A3 The Wake 3:45(   Читать дальше...   )Жанр: PopПродолж�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84A8B87831341F03980378CAD74954B95B1EEC13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105409   (874934) от 18.02.2017
-
-Duran Duran - Notorious (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874934.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Notorious
-A2	American Science
-A3	Skin Trade
-A4	A Matter Of Feeling(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC6D710DCECA83540E6D5487CFA041AD805349FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300159   (874115) от 25.02.2011
-
-Celebrating the Music of Weather Report (2000) [MLP 44.1/24 5.1; 2.0 96/24, DTS 5.1, DD 2.0 | DVD-Audio]<Jazz-Pop>
-
->>HD Audio и Многоканальная Музыка
->>DVD-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_874115.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Birdland - 6:03
-2.Elegant People - 5:16
-3.Badia - 5:34
-4.Young and Fine - 4:57
-5.Cannon Ball - 4:50
-6.Pursuit of the Woman With the Feathered Hat - 5:10
-7.Mysterious Traveller - 4:39
-8.Harlequin - 4:38
-9.Man in the Green Shirt - 6:03
-10.Palladium - 5:07(   Читать дальше...)Жанр: jazz,popПродолжительность: 01:06:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300925   (872231) от 26.02.2011
-
-Ludwig van Beethoven - Symphonies 4,5,6,9 (Daniel Barenboim) (2000) [MLP 5.0, 2.0 96/24 |DVD-Audio]<Classical>
-
->>HD Audio и Многоканальная Музыка
->>DVD-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872231.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Allegro ma non troppo, un poco maestoso 17:35
-2. Molto vivace15:15
-3. Adagio molto e cantabile17:56
-4. Presto - Allegro assai - Presto - Allegro assai 25:382000Жанр: ClassicalПродолжительность: 01:01:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 872400   (872108) от 26.02.2015
-
-Ван Клиберн - Ван Клиберн (1987) [FLAC 1.0 24/96|traks(Vinil-Rip)]<Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-Ф. Лист
-1. Грёзы любви (Ноктюрн №3)  4:04
-2. Венгерская рапсодия №12  10:36
-Ф. Шопен(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA63D0DE881B7B64DB45FD30B105E91A1745D3E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

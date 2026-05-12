@@ -1,3 +1,116 @@
+###  Публикация: 1033760   (636142) от 12.07.2016
+
+Phil Thornton - Rejuvenation - Beyond the Edge of Dreams (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond the Edge of Dreams [00:58:01]Жанр: New AgeПродолжительность: 00:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A82821B3965100C56A63C810B907416148953A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033687   (636039) от 12.07.2016
+
+George Winston - Night Divides The Day - The Music Of The Doors (2002) [FLAC|Lossless|tracks] <Contemporary, Instrumental, Solo Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Spanish Caravan    05:29
+02.  The Crystal Ship    05:13
+03.  People Are Strange    03:27
+04.  Love Street    04:22(   Читать дальше...   )Жанр: Contemporary, Instrumental, Solo PianoПродолжительность: 01:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9E160D04830EA9E0CF4357946CB77176500145D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033843   (635930) от 12.07.2016
+
+Ennio Morricone - Film Music By Ennio Morricone (1993) [FLAC|Lossless|tracks + .cue] <Contemporary, Easy Listening, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Good, The Bad and The Ugly (2:39)
+02. The Sicilian Clan (3:59)
+03. Chi mai (5:08)
+04. The Man With The Harmonica (3:31)(   Читать дальше...   )Жанр: Theme, Contemporary, Easy Listening, SoundtrackПродолжительность: 01:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B525AF37065DEFF8ECB3AA8DAEFE2A2F97F801DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033553   (635816) от 12.07.2016
+
+Deep Forest - Hit Collection (2000) [FLAC|Lossless|image + .cue] <Electronic, House, Tribal,>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sweet Lullaby 03:53
+02.Pacifique 03:47
+03.Marta' s Song 04:12
+04.Forest Hymn 04:40(   Читать дальше...   )Жанр: Electronic, House, Tribal,Продолжительность: 01:18:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF90EE83CDB1723120DAEB1996EF99EEA56A7D7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904680   (635730) от 13.06.2015
 
 Neu! - Neu! Box (1972-1986) 2010 / Gronland Rec (1972-1986) [MP3|320 кб/с]<Krautrock>
@@ -668,140 +781,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:114ADBEC23D15614F3CCBA115358CD22248A2C53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143896   (631481) от 20.06.2017
-
-Oliver Scheffner - Traum vom endlosen Himmel (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams of Sunbeams
-02. Cloud Pictures Passing By
-03. Spring Break
-04. Ein Adler landet auf dem Mond(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E6C1D6BFA9A09A22E380BEDCEAF7FDA19AE9519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520364   (631131) от 09.07.2012
-
-VA - Romantic Guitar (2002) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631131.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:21) 01. Romance De Amour
-(2:29) 02. Johnny Guitar
-(2:32) 03. Love Story
-(2:55) 04. La Playa
-(2:57) 05. Two Guitar
-(2:18) 06. Godfather
-(2:42) 07. Sound of Silence
-(3:14) 08. La Novia
-(3:12) 09. Aranjuez Mon Amour
-(2:42) 10. La Ragazza Di Bube(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:36:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB0B54C97F9C397E2E04E55CDDA8E1DD0C99B3E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520585   (631127) от 09.07.2012
-
-Quentin Tarantino's - Inglourious Basterds / Бесславные ублюдки (2009) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631127.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nick Perito - The Green Leaves Of Summer (1:54)
- 2. Ennio Morricone - The Verdict (Dopo La Condanna) (1:14)
- 3. Charles Bernstein - White Lightning (Main Title) (2:54)
- 4. Billy Preston - Slaughter (4:22)
- 5. Ennio Morricone - The Surrender (La Resa) (2:47)
- 6. The Film Studio Orchestra - One Silver Dollar (Un Dollaro Bucato) (2:04)
- 7. Zarah Leander - Davon Geht Die Welt Nicht Unter (2:03)
- 8. Samantha Shelton And Michael Andrew - The Man With The Big Sombrero (1:50)
- 9. Lilian Harvey And Willy Fritsch - Ich Wollt, Ich Waer Ein Huhn (2:44)
- 10. Jacques Loussier - Main Theme From Dark Of The Sun (3:10)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F72BADB649F4FC3DF02816317A600D43412ADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520617   (631113) от 09.07.2012
-
-James Newton Howard - Snow White & The Huntsman / Белоснежка И Охотник (2012) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631113.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Snow White (3:24)
- 2. I'll Take Your Throne (3:00)
- 3. Tower Prayers (2:07)
- 4. Something For What Ails ou (3:25)
- 5. Escape From The Tower (2:34)
- 6. You Failed Me, Finn (3:02)
- 7. White Horse (2:02)
- 8. Journey To Fenland (3:38)
- 9. Fenland In Flames (4:08)
- 10. Sanctuary (2:33)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B43303172450363364AC7C0618B255D0E29F1EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

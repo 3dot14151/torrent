@@ -1,3 +1,55 @@
+###  Публикация: 566178   (395939) от 30.10.2012
+
+[Рисованая графика] Artworks by Gnacio Bazan Lazcano
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художника-иллюстратора Gnacio Bazan Lazcano.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0178B65F7037976CE122083E7837484E55136417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 400727   (395914) от 17.10.2011
+
+Аватарки - Коллекция аватар 22000 шт. [JPEG, GIF]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка аватар на любой вкус, включая анимированныеФормат: JPEG, GIFРазрешение файлов: 98x98 - 400x300
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20151BB284A3032D53F372426DAF99FEFD007DEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 567189   (395910) от 30.10.2012
 
 [Рисованая графика] Artworks by Henning Ludvingsen
@@ -680,62 +732,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95690AFB1AA4EFC9BF9EB72778731EA4326C37F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570011   (390991) от 04.11.2012
-
-Computer Desktop Wallpapers Collection (03.11.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F4B47097A8A3D71392B931E36220EEA8A2F234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570253   (390978) от 04.11.2012
-
-[Wallpapers] Moto Desktop Wallpapers Pack 1
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390978.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Moto Desktop Wallpapers Pack 1
-Название: Moto Desktop Wallpapers Pack 1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60221F043CF8AE1204CBB18951134F50167C3109
 ```
 
 https://mybot314.ru/tekegram_catalog/

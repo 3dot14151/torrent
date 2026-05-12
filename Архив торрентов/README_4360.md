@@ -1,22 +1,22 @@
-###  Публикация: 1681664   (131762) от 06.12.2023
+###  Публикация: 595945   (132239) от 29.12.2012
 
-Лига городов (2023) WEBRip [H.264/1080p] (сезон 1, выпуск 12)
+Computer Desktop Wallpapers Collection (29.12.12) [Wallpapers]
 
 >>Архив торрентов
->>Архив Юмора
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132239.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Лига городов» – новый юмористический проект телеканала ТНТ и компании АМиК, в котором команды будут бороться за звание Чемпиона сезона и приз в 10 миллионов рублей. Одержать победу в серьезной юмористической схватке коллективам помогут наставники, гуру юмора – Сергей Светлаков, Марина Кравец, Алексей Щербаков и Артем Калайджян. Каждый из них отберет под свое крыло (   Читать дальше...   )Производство: Россия | «АМИК», «ТНТ»Жанр: Юмор, комедия, играСубтитры: ОтсутствуютПродолжительность: 01:34:14
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60412A6EF37944CE5673DADE7500789A07964340
+magnet:?xt=urn:btih:E79D3F8E2582106B051C5B9D4090F0DFF50FEA37
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682209   (131746) от 06.12.2023
+###  Публикация: 595975   (132236) от 29.12.2012
 
-StartAllBack 3.7.0 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 StartIsBack 2.1.2 RePack by elchupacabra [Multi/Ru]
+[Wallpapers] Art collection (29.12.12)
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132236.jpg" />
 </div>
 
 
 ###  Подробнее
 
-StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
+[Wallpapers] Art collection (29.12.12)
+Название: Art collection (29.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1925х1443
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43CC62790E0844B14A4D1774A3C32A2C2379B779
+magnet:?xt=urn:btih:4A4454C5DF267D2FFDAFA38480171FCF298FDEAB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,60 +54,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682073   (131740) от 06.12.2023
+###  Публикация: 595188   (132233) от 29.12.2012
 
-Windows 11 Manager 1.3.4 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 Manager - это универсальная утилита специально для Microsoft Windows 11, она включает в себя более сорока различных утилит для оптимизации, настройки, очистки, ускорения и восстановления вашей Windows 11, помогает ускорить работу вашей системы, устранить системные ошибки, повысьте стабильность и безопасность, персонализируйте свою копию Windows 11 и оправдайте (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:052641447CC62849F6C2E5A10111E96D6791ADB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595810   (131731) от 30.12.2012
-
-Powerage - Branded Skin (1994) [MP3|320 кб/с]<Classic Rock & Hard Rock>
+Операция «Арго» / Argo (2012) [MP3|320 кб/с]<soundtrack>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_132233.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Intro
-02 - Rock 'n' Roll
-03 - Southtown
-04 - Like Hell
-05 - Rock Tonight
-06 - Take Me Home
-07 - Poison
-08 - Milk & Alcohol
-09 - Playin' In A R 'n' R Band
-10 - Get Out Of His Way(   Читать дальше...   )Жанр: Classic Rock & Hard RockПродолжительность: 00:43:02
+1. Argo (03:38)
+2. A Spy In Tehran (04:18)
+3. Scent Of Death (03:26)
+4. The Mission (02:07)
+5. Hotel Messages (02:03)
+6. Held Up By Guards (05:31)
+7. The Business Card (02:55)
+8. Breaking Through The Gates (03:50)
+9. Tony Grills The Six (03:30)
+10. The Six Are Missing (03:21)(   Читать дальше...   )Жанр: soundtrackПродолжительность: 00:58:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8972A837B79492BDFD3360B1E5351DA30FE4FDC
+magnet:?xt=urn:btih:641CF861B735F857939F011C19D4E99B0945897F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,25 +89,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 596083   (131725) от 30.12.2012
+###  Публикация: 596042   (132231) от 29.12.2012
 
-Принятие террора / Adopting Terror (2012) BDRip [EN]
+[Wallpapers] Vastness of the cosmos (29.12.12)
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132231.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Супруги Тим и Шерил Бродбенты не могут иметь своих детей, поэтому они решили удочерить Мону, симпатичную малышку, которая сразу покорила их сердца. Но их мир переворачивается, когда биологический отец начинает преследовать семейную пару. Путем запугивания и шантажа он намерен вернуть свою дочь.Жанр: Триллер, ДрамаРежиссер: Мичо РутареАктеры: Шон Эстин, Сэмэр Армстронг, Монит Мазур, Брендан Фер, Майкл Гросс, Брайан ОкесПеревод: ОтсутствуетПродолжительность: 01:29:14
+[Wallpapers] Vastness of the cosmos (29.12.12)
+Название: Vastness of the cosmos (29.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E97970BC2FA1FC18138B7F30B612B2818E6F49B
+magnet:?xt=urn:btih:8CCA6F3F1D1AA0977119880FD8CC54BCA4AF9178
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,28 +119,369 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 595884   (131721) от 30.12.2012
+###  Публикация: 595978   (132229) от 29.12.2012
 
-Skogen - 3 Альбома (2009-2012) Дискография [FLAC|Lossless]<Atmospheric Black Metal>
+[Wallpapers] Beautiful nature (29.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132229.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Beautiful nature (29.12.12)
+Название: Beautiful nature (29.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E9463BD4B7053979D8AF2F5AB4ACDE9C97E0207
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595846   (132223) от 29.12.2012
+
+[Wallpapers] Abstract Wallpapers (29.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132223.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Abstract Wallpapers (29.12.12)
+Название: Abstract Wallpapers (29.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24F02A49862A441EF1EB80384B49E473800A7745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681859   (132216) от 04.12.2023
+
+Total Commander 11.02 Final - Titan v32 Portable by pcDenPro [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Файловый менеджер Total Commander со всеми плагинами и отобранными портативными (portable) программами. Titan предназначен как для продвинутых пользователей, так и для обычных. Эта одна из самых больших сборок, достигающая более 16 гигабайт. Большое количество разнообразного софта. Данная версия отлично подойдёт для решения любых повседневных задач.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EBB02266EBA300B52D0E7BF637252482F4B55B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681722   (132214) от 04.12.2023
+
+Corona Renderer 11.0 for 3ds Max 2016-2024 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Corona Renderer - это популярный визуализатор для рендеринга в 3ds Max и Cinema 4D. Хорошая альтернатива V-ray-ю.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45B9A9173F2E045E468F49E257F5843BB7D9509E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595948   (132213) от 29.12.2012
+
+62 HQ Wallpapers (29.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CDA0E41F726C6BB8F8F44749D479B3DB41EFA15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595908   (132211) от 29.12.2012
+
+Sexy Girls Wallpapers (28.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:653ED342269208F3B541A457698CA26710DBEB96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596044   (132204) от 29.12.2012
+
+[Wallpapers] Car wallpapers for a desktop (29.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132204.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Car wallpapers for a desktop (29.12.12)
+Название: Car wallpapers for a desktop (29.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3BDB1CD24584AA3A946C369411F29ACC6AD5C0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595950   (132199) от 29.12.2012
+
+Sexy Girls Wallpapers (29.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3F0C401EE7C40C0EFEB95EF02653AE280B43F21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595977   (132196) от 29.12.2012
+
+[Wallpapers] Big collection of wallpapers (29.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132196.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Big collection of wallpapers (29.12.12)
+Название: Big collection of wallpapers (29.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED18F99099AE631D3AD076A998F3BE4D92A3D1AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595788   (132191) от 29.12.2012
+
+VA - Dutch House Anthems (2012) [MP3|320 kbps]<House, Electro House>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132191.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Djavulens Eld
-02 - Apokalypsens Vita Dimma
-03 - Genom Svarta Vatten
-04 - Nihil Sine Morte
-05 - Aska
-06 - Svavelpsalm
-07 - Orcus Labyrint
-08 - MonolitЖанр: Atmospheric Black MetalПродолжительность: 00:59:58
+01. Nicky Romero - Se7en (Original Club Mix) 5:52
+02. Hardwell & Jeroenski - Wake Up 6:00
+03. Sidney Samson - The World Is Yours (Original Mix) 5:00
+04. Chuckie feat. Gregor Salto - What Happens In Vegas (Original Club Mix) 5:43
+05. DJ Obek feat. Ambush - Craissy 2K12 (Albert Neve & Chuckie 2K12 Remix) 6:31
+06. Nilson - Cluster 5:22
+07. Chuckie & Hardwell feat. Ambush - Move It 2 The Drum (Original Mix) 5:31
+08. Jacob Plant - Jump Up (Original Mix) 5:09
+09. Gregori Klosman - Jaws (Original Mix) 5:30
+10. Firebeatz, Josh Newson & Jay Ronko - Keizer (Original Mix) 7:05(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 04:21:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1623E94468FA8572F527C031FBE2D86E59524D63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595838   (132185) от 29.12.2012
+
+[Wallpapers] Creative Wallpapers (29.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132185.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Creative Wallpapers (29.12.12)
+Название: Creative Wallpapers (29.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1280х1024 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4D33BDB547A15959B410A40A4F1A6EA4E4816AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596046   (132184) от 29.12.2012
+
+[Wallpapers] A large collection of beautiful wallpapers (29.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132184.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] A large collection of beautiful wallpapers (29.12.12)
+Название: A large collection of beautiful wallpapers (29.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95ECC7880518D2FD014EDB81C8B23BCFAA6C151E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596028   (132176) от 29.12.2012
+
+GeoGebra 4.9.82 Beta [Multi/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132176.jpg" />
+</div>
+
+
+###  Подробнее
+
+GeoGebra — свободно распространяемая (GPL) динамическая геометрическая среда, которая даёт возможность создавать чертежи в планиметрии, в частности, для построений с помощью циркуля и линейки.
+Кроме того, у программы богатые возможности работы с функциями (построение графиков, вычисление корней, экстремумов, интегралов и т. д.) за счёт команд встроенного языка (который, кстати, позволяет управлять и геометрическими построениями)
+В отличии от других программ для динамического манипулирования геометрическими обьектами, идея GeoGebra заключается в интерактивном сочетании геометрического, алгебраического и числового представления. Вы можете создавать конструкции с точками, векторами, линиями, коническими сечениями, а также математическими функциями, а затем динамически изменять их.
+Кроме того, GeoGebra позволяет напрямую вводить уравнения и манипулировать координатами. Таким образом, можно легко составлять графики функций, работать со слайдерами для подбора необходимых параметров, искать символические производные, (   Читать дальше...   )Название программы: GeoGebraЯзык интерфейса: Multi/Русский
 
 ## Скачать торент
 ```bash
@@ -170,232 +493,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682208   (131720) от 06.12.2023
+###  Публикация: 1681868   (132173) от 04.12.2023
 
-Macrorit Disk Scanner 6.7.0 Unlimited Edition RePack (& Portable) by elchupacabra [Multi/Ru]
+AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.00.6700 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Macrorit Disk Scanner Unlimited - инструмент для проверки жесткого диска и выявления на нем битых секторов. Такой тест полезен для оценки качества вашего винчестера, т.к. чем больше поврежденных секторов, тем больше вероятность того, что данные на диске могут потеряны.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7354CFB734CB3D7AA3ECFCAD7E004A24AF2383B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596324   (131717) от 30.12.2012
-
-[Wallpapers] World of Animals (30.12.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131717.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] World of Animals (30.12.12)
-Название: World of Animals (30.12.12)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64FCC19343E185B816562085686EB8EDABAC59D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595290   (131715) от 30.12.2012
-
-Kanista - The Sunlight Channel (2012) [MP3|320 кб/с]<Breakcore, Noise>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celestial Seasonings
-02. CORRUPT YOUR PINEAL, DESTROY YOUR CATS
-03. Gorilla Balls Ballistic
-04. Walmart Employee Mercilessly Sodo
-05. Persian Pimpcoat
-06. Heartless Wizard
-07. GOD IS DEAD (FULLY DEAD)
-08. Butcher, Danger, Ancient Filth
-09. Gay Nazi Ravers
-10. 600 For KoSq(   Читать дальше...   )Жанр: Breakcore, NoiseПродолжительность: 00:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:277A4772B49899B0194586B960FF32DA350DCCB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596079   (131714) от 30.12.2012
-
-Jorn - Dukebox (2009) [MP3|320 кб/с]<Hard`n`Heavy>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Man Of The Dark
-02.  Starfire
-03.  Young Forever (new version)
-04.  Soul Of The Wind
-05.  Living With Wolves
-06.  War Of The World
-07.  Sunset Station
-08.  We Brought The Angels Down
-09.  The Inner Road
-10.  Tungur Knivur(   Читать дальше...   )Жанр: Hard`n`HeavyПродолжительность: 01:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E895581A766CB4740FA406B8AE380B82514293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596326   (131709) от 30.12.2012
-
-[Wallpapers] Selection of wallpapers (30.12.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131709.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Selection of wallpapers (30.12.12)
-Название: Selection of wallpapers (30.12.12)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38105FA88526DBE2381CA18A21039A1B3D752A7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596509   (131707) от 30.12.2012
-
-Butterfly - Favorite Colors Episode 064: End of Year 2012 (Part. 2-4) (29.12.2012) [MP3|320 кб/с]<Progressive Trance, Progressive House, Melodic Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive Trance, Progressive House, Melodic TranceПродолжительность: 00:59:59
-
-01. Myon -  Albion (Original Mix)
-02. Tilt -  Twelve (Dousk Mix)
-03. Andrew Bennett feat. Kirsty Hawkshaw -  Heaven Sent (Instrumental Mix)
-04. Yilmaz Altanhan -  Eighties (Original Mix)
-05. Mike Mikhjian -  Air Chords (Original Mix)
-06. Hawk -  You're Mine (Original Mix)
-07. Cressida -  Flowjob (Original Mix)
-08. Jonathan Martin -  Insidious (Original Mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC1928B833F2A886979CFD498DC1950F07E7223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682199   (131706) от 06.12.2023
-
-AMD Radeon Software Adrenalin Edition 23.12.1 WHQL [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131706.jpg" />
-</div>
-
-
-###  Подробнее
-
-AMD Radeon Software Adrenalin Edition представляет собой новое, современное и полностью переработанное приложение, предоставляющее пользователям полный контроль над графикой Radeon, игровыми функциями и настройками, стриминговыми сервисами и многим другим. Геймеры могут получить доступ ко всем функциям ПО прямо в игре, пользуясь таким же интерфейсом, который доступен (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C91133DBC25EBE2D608D151586EE0A41B90A54E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682229   (131704) от 06.12.2023
-
-AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.00.6700 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132173.jpg" />
 </div>
 
 
@@ -405,7 +511,7 @@ AIDA64 - является мощным средством для идентиф�
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E24142CA1152FC2EFAF1DFD947891C3EA85A20B
+magnet:?xt=urn:btih:DEB860998468A09BCD93B207985D2AA700E6D100
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -413,55 +519,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682236   (131702) от 06.12.2023
+###  Публикация: 595946   (132172) от 29.12.2012
 
-AIMP 5.30 Build 2531 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131702.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Белорусский, Украинский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:909233F2361A94489DEB7F6C7461440545D71F6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596328   (131699) от 30.12.2012
-
-[Wallpapers] Compilation of air (30.12.12)
+Best HD Wallpapers Pack (29.12.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132172.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Compilation of air (30.12.12)
-Название: Compilation of air (30.12.12)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9CE3F2866FF97DD88E333670C5D59048E4B0BB3
+magnet:?xt=urn:btih:FA4086426C9A8000C0A598FD4121379182ECD74E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -469,83 +545,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682212   (131698) от 06.12.2023
+###  Публикация: 595928   (132171) от 29.12.2012
 
-Psiphon 3 build 180 (05.12.2023) Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры. Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCAC8DB4B62D0CD0427BB1AC211751C104CB8B5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596334   (131695) от 30.12.2012
-
-[Wallpapers] Cityscapes (30.12.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131695.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Cityscapes (30.12.12)
-Название: Cityscapes (30.12.12)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC16A2EC1090138C1E8E35889FA3B766F762F28D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595800   (131693) от 30.12.2012
-
-Айзек Адамсон | Тысячи лиц Бэнтэн [2006] [RTF, FB2]
+Журнал | Camera Magazine [январь-февраль 2013] [PDF] [En]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132171.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Загадочное происшествие в токийском Храме Богини Удачи в конце Второй мировой войны отзывается трагедиями в сегодняшнем дне. Лукавая и ревнивая богиня Бэнтэн ведет спою собственную игру, манипулируя простыми смертными, которым остается лишь наблюдать, как разворачиваются события. Давние преступления японской военной полиции губят людей сегодня – н американскому журналисту, который случайно оказался в эпицентре великой тайны, придется ее разгадать, пока сам он не стал жертвой одержимого фанатика, магических галлюцинаций, мести узколобых токийских полицейских и круговерти ультрасовременного Токио – города, подобного бездумному игровому автомату, который невозможно постичь до конца.
-
-Персонажи резонируют, тайна увлекает, богатое повествование уводит нас на живую экскурсию по японской культуре.Формат: RTF, FB2
+Издание освещает вопросы эксплуатации цифровой фототехники различных фирм. В каждом номере - новости рынка, технические обзоры нескольких конкретных моделей фотоаппаратов и объективов.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE591036A0D988C7F69B238D7BC357D1265F730E
+magnet:?xt=urn:btih:B178B0C169171DD04A3F4DF9724724F742962F5E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -553,55 +571,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 595725   (131689) от 30.12.2012
+###  Публикация: 595902   (132169) от 29.12.2012
 
-Георгий Блюмин | Рублевка и ее обитатели. Романтическое повествование [2012] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Страна по имени Рублевка вытянута на карте западного Подмосковья по течению Москвы-реки по обоим ее берегам и очертаниями представляет собою узкий и длинный залив. Так оно когда-то, лет 500 назад, и было, когда многих нынешних деревень не существовало и в помине, а река, соименница нашей столицы, была могучей водной артерией, шириною доходившей в ряде мест до двух верст.  Автор обстоятельно повествует о местах вдоль Рублево-Успенского шоссе, обычно тщательно укрытых от постороннего взгляда, но своей яркой историей заслуживающих благодарного внимания читателей.  Интригуют сами названия этих западных окрестностей Москвы и ближнего Подмосковья: замок баронессы Мейендорф, Жуковка, Барвиха, Серебряный Бор, Петрово-Дальнее, Сосны, Архангельское и другие. А романтическим повествование называется потому, что такая форма наиболее соответствует историческим тайнам этих мест.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C63598146CA76301431D1E4AC5C4703A6B3ED495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596173   (131687) от 30.12.2012
-
-[Wallpapers] Collection of wallpaper on your desktop (29.12.12)
+New year wallpapers 2013 (28.12.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132169.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Collection of wallpaper on your desktop (29.12.12)
-Название: Collection of wallpaper on your desktop (29.12.12)
+Серия раздач отРазрешение файлов: 1680x1050 - 2560x1920
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D809B875D5D1BC7C338F65BC6F158596530937E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596047   (132162) от 29.12.2012
+
+[Wallpapers] A selection of computer wallpaper (29.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132162.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] A selection of computer wallpaper (29.12.12)
+Название: A selection of computer wallpaper (29.12.12)
 Тип раздаваемого: Wallpapers
 Разрешение файлов: 1920x1080 - 2560х1600
 Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FD3F1FE2042940DC7FD2C6C01F2CA065EE39371
+magnet:?xt=urn:btih:F5BF1453D533C7EA0311B3BE639780C79D53056C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -609,125 +627,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 595364   (131685) от 30.12.2012
+###  Публикация: 596169   (132140) от 29.12.2012
 
-Infinitas - Journey To Infinity (2012) [MP3|320 кб/с]<Shoegaze Black Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Million Lights 02:13
- 02. Hinter Grauen Wanden 09:20
- 03. Auf Neuen Wegen 11:48
- 04. A Dream About The Loneliness Of
- Aimless Travel 08:09
- 05. Ein Paradies Das Ich Fand 08:55
- 06. Nur Die Erinnerung 07:19
- 07. Frequency Of The Bereaved 02:24
- 08. Ein Hauch Von Ewigkeit 07:10
- 09. Through The Infinity 07:14(   Читать дальше...   )Жанр: Shoegaze Black MetalПродолжительность: 01:11:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0984CF545D9472AD60C32FAC0B85D186B1D0A676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596166   (131679) от 30.12.2012
-
-Heaven Below - Falling From Zero (2012) [MP3|320 кб/с]<Hard Rock | Alternative Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Last Goodbye
-02. Brutal As The Truth
-03. Dodging A Bullet
-04. The Mirror Never Lies
-05. Higher Than Heaven
-06. My Undoing
-07. Demonocracy
-08. Falling From Zero
-09. Gravity Killed The Spaceman
-10. Nations Of Fire(   Читать дальше...   )Жанр: Hard Rock | Alternative MetalПродолжительность: 00:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF2D1A8C460D45D5BDE75914B79B4DE8D9A15DE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682318   (131678) от 06.12.2023
-
-NVIDIA GeForce Desktop Game Ready 546.31 Hotfix + DCH [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131678.jpg" />
-</div>
-
-
-###  Подробнее
-
-NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и пр.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EADC8C32339EDB0CCF4210619614DB17C1D85320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596345   (131675) от 30.12.2012
-
-[Wallpapers] A selection of sports wallpaper (30.12.12)
+[Wallpapers] Computer technology (29.12.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132140.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] A selection of sports wallpaper (30.12.12)
-Название: A selection of sports wallpaper (30.12.12)
-Тип раздаваемого: Wallpapers
+[Wallpapers] Computer technology (29.12.12)
+Название: Computer technology (29.12.12)
+Тип раздаваемого:] Wallpapers
 Разрешение файлов: 1920x1080 - 2560х1600
 Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C062610F5F87DCDB4FDB28965B282F57ADE175F5
+magnet:?xt=urn:btih:02AD854443F067D2DC190BAEFF0DE4197D79A48D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -735,29 +657,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 596329   (131673) от 30.12.2012
+###  Публикация: 595981   (132126) от 29.12.2012
 
-[Wallpapers] Large collection of wallpapers (30.12.12)
+Фотоподборка '220V' (29.12.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132126.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Large collection of wallpapers (30.12.12)
-Название: Large collection of wallpapers (30.12.12)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 4000х2000
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Фотоподборка '220V'
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:50069830EB3C09A319E34EAB6F3AAF4DFC60A8A0
+magnet:?xt=urn:btih:B5E821E85D3C316E34C3F94DF7726EEFD931B569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595985   (132124) от 29.12.2012
+
+Работы художников - Работы Egidio Antonaccio
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художников - Работы Egidio Antonaccio
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAF4E976CB2968C7D478D37C180F64CFD9B7E46E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595989   (132110) от 29.12.2012
+
+Фотография - Фотограф Patricio Suarez
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография - Фотограф Patricio Suarez
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A984140ADFCDAEFCB59BEC0696E40FE8E3A9A3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

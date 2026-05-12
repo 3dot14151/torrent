@@ -1,3 +1,83 @@
+###  Публикация: 522791   (620260) от 14.07.2012
+
+Сборник Советской Эстрады №5 (2012) TVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 02:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD99C85641E560177A0414DFE573805114DAEEF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523226   (619227) от 15.07.2012
+
+Gia. Lights Out (2012) [H.264/1080p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POPПродолжительность: 00:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DC88D61856C6F2931B1DBAAC223998A9FC3FB74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523704   (616473) от 16.07.2012
+
+Girls' Generation (SNSD) - Music video collection. Part 2 (2007-2012)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеография группы Girls' Generation (SNSD)
+
+Girls' Generation (аббревиатура So Nyeo Shi Dae - SNSD)- корейская группа которая состоит из девяти девушек: Лим Юна (Lim Yoona), Стефани Хвон (Tiffany), Квон Юри (Kwon Yuri), Ким Хёён (Kim Hyoyeon), Чхве Суён (Choi Sooyoung), Сэ Чжихён (Сэхён (Seo Juhyun (Seohyun))), Ким Тэён (Kim Taeyeon), Джессика Чон (Jessica Jung), (   Читать дальше...   )Жанр: POP (kpop)Перевод: ОригинальныйСубтитры: Корейские, Японские, Китайские, Английские (вконверчены в некоторые файлы)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D1FD9FD137642EA1B2990849A1716C6CE45179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 410381   (616151) от 16.07.2012
 
 Girls' Generation (SNSD) - Music video collection. Part 1 (2007-2012)
@@ -627,87 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A233786D0E6550125ACEA253DE1C46B06EB1304
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528494   (573316) от 28.07.2012
-
-Alex Kunnari vs. Delerium feat. Sarah McLachlan - Lost Silence (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 00:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B98D920C1DE2D97A8387934299D0DCEC3380BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528846   (570750) от 29.07.2012
-
-Ляпис Трубецкой - Железный (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 00:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D78E8E95D0B104B90DE07D277BB5C487577E4B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 363517   (567083) от 15.07.2011
-
-Виктор Королёв - Московский озорной гуляка! (2007) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эпизод 1
-02. Базар-Вокзал
-03. Укушу
-04. Зацелую твои рученьки(   Читать дальше...   )Жанр: Шансон, музыкальное видео, клипыПродолжительность: 01:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98A92FBBD6CB0C872C6AFD4F9D0DAC05E55A000B
 ```
 
 https://mybot314.ru/tekegram_catalog/

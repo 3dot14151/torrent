@@ -1,3 +1,32 @@
+###  Публикация: 1592194   (184466) от 21.11.2022
+
+Illusion Force - The World Soul (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal, Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eastern Wisdom
+02. Machination Utopia
+03. The Coming Tragedy
+04. The Force Of Illusion(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Power MetalПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43651A2E0C86E5753171764419D859A15886B942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427467   (183122) от 28.11.2020
 
 Night Tempo - Japanese Pop Edit (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Future Funk, J-pop>
@@ -717,35 +746,6 @@ Luna Sea - Mother (1994) 2023, avex trax [FLAC|Lossless|WEB-DL|tracks] <Art rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1988A196D97302D676A75ADE354A4B3088DD44CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686323   (126617) от 22.12.2023
-
-Lovebites - Knockin' At Heaven's Gate - Part II (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piano Solo (Etude Op.10, No.12) (Live - March 12, 2023) [00:01:39]
-02. Swan Song (Live - March 12, 2023) [00:08:04]
-03. Judgement Day (Live - March 12, 2023) [00:06:12]
-04. When Destinies Align (Live - March 12, 2023) [00:06:26](   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 2 CD, 01:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBDAB7AF19C4B3D1EF4952FC8F9FC3C9E7A0C657
 ```
 
 https://mybot314.ru/tekegram_catalog/

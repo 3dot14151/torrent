@@ -1,30 +1,3 @@
-###  Публикация: 1197347   (811301) от 09.01.2018
-
-Wifislax 4.12 [Аудит безопасности, хакинг] [x86, х64] 4.12 [x86, х64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специализированный Live-дистрибутив с подборкой инструментов для проверки безопасности систем, изучения работы WiFi-сетей и проведения криминалистического анализа.
-Дистрибутив построен на пакетной базе Slackware 14.2 и предлагает два графических окружения на базе KDE 4.14.3 и Xfce 4.12. В дистрибутиве задействовано ядро Linux 4.4.16.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47472873677894C46C075F59FBBA03D04A8AA943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009582   (809354) от 21.04.2016
 
 Kubuntu 16.04 LTS Xenial Xerus [i386, amd64] 2xDVD
@@ -687,6 +660,35 @@ BlackArch - «легковесный», простой и гибкий дист�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:279F3FB454B0D10102B6D1497EF1F0DECC577F98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209979   (778904) от 01.03.2018
+
+NAS4Free build 11.1.0.4.5127 amd64 1xCD 3xIMG BUILD 11.1.0.4.5127 [amd64 (64-bits) versions only] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778904.jpg" />
+</div>
+
+
+###  Подробнее
+
+NAS4Free - встраиваемая (embedded) операционная система с открытым исходным текстом (Open Source) для сетевого хранилища NAS (Network-Attached Storage).
+
+NAS4Free основана на ОС FreeBSD, поддерживает обмен между ОС семейств Windows, Apple и UNIX-подобных.
+ОС включает: Sun ZFS v5000 (Feature Flags) (RAID-Z, RAIDZ-2 & RAIDZ-3), программный RAID (0,1,5), JBOD, шифрование, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B6FDF2CB8206998E3DBBAA77B5A612F1E5601F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

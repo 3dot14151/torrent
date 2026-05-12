@@ -1,3 +1,111 @@
+###  Публикация: 1370467   (896861) от 27.03.2020
+
+Welicoruss - Siberian Heathen Horde (2020) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Welicoruss - Siberian Heathen HordeЖанр: Symphonic Black MetalПродолжительность: 00:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA077C0DA401DE771FFA7DB0074270AD8EF1BF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370383   (896789) от 27.03.2020
+
+Kreator - 666 - World Divided (2020) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Kreator - 666 - World DividedПроизводство: Nuclear BlastЖанр: Thrash, Heavy MetalПродолжительность: 00:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBC16AC00C258849B28DD85D03CAEB3A7A2FE55F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370470   (896755) от 27.03.2020
+
+Lamb of God - Checkmate, Memento Mori (2020) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Lamb of God - Checkmate
+02 Lamb of God - Memento MoriЖанр: Groove, Thrash MetalПродолжительность: 00:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D66975C97CA63888DA65F9F302826F4CC64D765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370055   (896555) от 27.03.2020
+
+Die Antwoord - 23 Music Videos (2009-2020) WEBRip [VP9/H.264/2160p/1080p/720p/480p/360p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896555.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2009 Die Antwoord - Zef Side [1080p]
+002 2010 Die Antwoord - $copie (Live) [720p]
+003 2010 Die Antwoord - $o$ (Gorillaz' Stylo ) [720p]
+004 2010 Die Antwoord - Enter The Ninja (Explicit Version) [480](   Читать дальше...   )Производство: Left Post ProductionЖанр: Alternative Hip-Hop, Electronic, Experimental, TrapПродолжительность: 01:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFF5A025C17C6050E41A285369C290DAF8A3F28D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370150   (896543) от 27.03.2020
 
 Эдуард Суровый - Love Of Russian Man (1974) remastered 2020 WEBRip [H.264/720p-LQ]
@@ -594,123 +702,6 @@ Timeflies - I Choose U (2013) WEBRip [H.264/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E7D089ADF1BD2AF339EF2F22184F6E835CB6A06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994523   (889400) от 08.03.2016
-
-Metallica - The Night Before Concert at San Francisco’s AT&T Park (2016) WEBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мetallica выступили в качестве хэдлайнеров на The Night Before - концерте, организованном американским CBS Radio. Шоу можно было наблюдать не только в AT&T Park, что расположен в родном для группы Сан-Франциско, но и в Интернете с помощью устроенной там трансляции. Все желающие также имели возможность сделать предзаказ на профессиональную запись выступления в (   Читать дальше...   )00. The Ecstasy of Gold
-01. Creeping Death
-02. For Whom the Bell Tolls
-03. Fuel(   Читать дальше...   )Производство: Страна: СШАЖанр: Rock, Thrash, SpeedПродолжительность: 02:16:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD90B31E02889B4A7C9E866807F16A21D4C1E64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994506   (889395) от 08.03.2016
-
-Стинг. Когда уходит последний корабль. Концерт в театре Джозефа Паппа. Нью-Йорк / Sting The Last Ship. Live At The Public Theater (2013) DVB
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Звучат песни Стинга из его нового альбома "The Last Ship", которые также вошли в одноименный мюзикл. Темами альбома стали воспоминания о детстве и юности музыканта, которые прошли в портовом городке Уоллсенд на севере Англии. The Last Ship — одиннадцатый сольный студийный альбом британского рок-музыканта Стинга, был издан 24 сентября 2013 года. Первый полноформатный (   Читать дальше...   )01.	«The Last Ship»
-02.	«Shipyard» (featuring Jimmy Nail, Brian Johnson and Jo Lawry)»
-03.	«Coming Home's Not Easy»
-04.	«And Yet»(   Читать дальше...   )Производство: Великобритания, A RadicalMedia ProductionЖанр: МузыкаРежиссер: Paul BozymowskiАктеры: СтингПеревод: Одноголосый закадровыйПродолжительность: 01:22:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EFEEAA6DA2CC3327777FB1687333ADEF81F5A95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 638365   (889092) от 06.04.2013
-
-Сборник видеоклипов / Rap Legends (Hits 1990-1994) DVDRip [EN]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник видеоклипов в стиле РЭП в хорошем качестве.1990_3rd_Bass_-_Brooklyn_Queens
-1990_Dr. Alban - No Coke
-1990_Ice_Mc_-_Scream
-1990_MC Hammer - You Can`t Touch This
-1990_Snap - The Power
-1990_Technotronic_-_This_Beat_Is_Technotronic
-1990_Vanilla Ice - Ice Ice Baby
-1991_DNA_Feat._Suzanne_Vega_-_Tom_s_DinerЖанр: Rap, Hip-HopПеревод: ОтсутствуетПродолжительность: ~02:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1EF0FE079D4AC81F182757D53E14D4DF585EC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640535   (888957) от 06.04.2013
-
-Валерия и Валерий Меладзе - Не теряй меня (2013) [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POPПродолжительность: 00:04:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8A3A39EB40DB14D053CEC667443E6E67098576A
 ```
 
 https://mybot314.ru/tekegram_catalog/

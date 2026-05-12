@@ -1,3 +1,107 @@
+###  Публикация: 1338645   (268763) от 16.11.2019
+
+Экшены - GraphicRiver - Art Journal Photoshop Action - 24874346 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Art Journal - экшен фотошоп превратит ваши обычные фотографии в художественное полотно с эффектом стиля современной графики. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2875AABB3DB06AE4608587C2BC9AB6130308C10C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338655   (268760) от 16.11.2019
+
+Экшены - GraphicRiver - Geometric Glitch Photoshop Action - 25029782 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Geometric Glitch - экшен фотошоп с эффектом геометрического искажения. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A38FC75BAF8C924A5D8ED2E5A03983345BEE183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189964   (268714) от 08.12.2017
+
+Растровый клипарт - Soon New Year #27 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодний клипарт для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 142x600-3717x2406
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70F97AB609D47BDA402C3216AA736CEA6D06F0F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190238   (268654) от 08.12.2017
+
+Растровый клипарт - Soon New Year #28 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодний клипарт для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 223x234-3210x3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:482E32C159283EEC8F27F7B90E29189C178D86B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190223   (268653) от 08.12.2017
 
 Растровый клипарт - Creative Market - Isolated Food Items Vol.14 - 1500301 [PNG, PSD]
@@ -586,118 +690,6 @@ Red and white table grapes in water splash [EPS]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2A7998485D2B1F786E19D4E2BFFA3B9AF0AACC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339469   (266114) от 19.11.2019
-
-Cosmetic set ads with paper flowers #4 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Косметический набор
-5 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E663BE19BB9512458B59FFBF3C437B6005724C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339470   (266112) от 19.11.2019
-
-Dreamstime - Birthday card with cute animals with balloon and bonnets [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Поздравительная открытка с милыми животными
-4 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2629580B3BB431852BC0535A2230756D9192C35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339491   (266106) от 19.11.2019
-
-Cute cartoon animals on a white background [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Милые мультяшные животные с цветам
-9 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B24852DE3EE3A0F0E65EB44B67EF7CFD754C8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339493   (266081) от 19.11.2019
-
-Silhouette of car on black background [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Силуэты автомобилей на черном фоне
-15 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BBDAB206C9F2C37590A9D8EA9BAD3ED570A85CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

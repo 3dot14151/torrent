@@ -1,22 +1,25 @@
-###  Публикация: 1143035   (639211) от 16.06.2017
+###  Публикация: 1032420   (640293) от 10.07.2016
 
-Эрик Сунд | Стеклянные тела (2017) [FB2]
+Пляжный Футбол. Кубок Европы 2016.Белград(Сербия). 1/4 финала.  Португалия - Испания (24.06.2016) WEB-DLRip [H.264/720p-LQ][hand made 50fps]
 
->>Художественная литература
->>Боевики, Детективы, Триллеры
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640293.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Швецию охватила волна самоубийств: в разных уголках страны подростки лишают себя жизни самыми жуткими способами. Общий знаменатель в этих случаях – старые кассетные плееры с записями музыки, от которой становится не по себе даже полиции и автор которой – некто Голод. Вскоре Йенс Хуртиг, ведущий расследование, понимает, что самоубийства неясным образом связаны с чередой (   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыФормат: FB2
+Белград (Сербия) 24 июня 2016, пятница. 17:05
+Основной Этап. Плей-офф. 1/4 финала.  2-я игра дня
+Судья:  Джионни Маттиколи (Италия)
+2-й судья:  Александр Березкин (Россия)(   Читать дальше...   )Телекомпания: Матч! АренаЖанр: СпортЯзык озвучки: русский (Артём Шмельков)Продолжительность: 01:18:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85033BF82378CE081DBDBE621278B7C2AE42208E
+magnet:?xt=urn:btih:C95AB0056FA3ED4B7B472D8B592527D07EC264F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143040   (639210) от 16.06.2017
+###  Публикация: 1032612   (640292) от 10.07.2016
 
-Татьяна Луганцева | Гусеница на диете (2017) [FB2]
+Объявлены победители марафона 2016 Shell Eco-marathon
 
->>Художественная литература
->>Боевики, Детективы, Триллеры
+>>Поговорим
+>>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_640292.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Балерине Варваре Абрикосовой недосуг задумываться о мелочах жизни, главная цель – стать ведущей солисткой. Но неожиданно жизнь выходит из привычной колеи – ей приходится заняться… детективным расследованием. Ведь как иначе выяснить, кто насыпал ей в пуанты битого стекла? И почему вдруг буквально взбесился верный друг и партнер по сцене? А тут еще страшное подозрение: (   Читать дальше...   )Жанр: Иронические детективыФормат: FB2
+На этих выходных в Лондоне, в рамках фестиваля "Make the Future", был проведен очередной этап ежегодного экологического марафона 2016 Shell Eco-marathon. Эти соревнования служат для демонстрации новшеств, которые в будущем позволят решить многие из проблем энергетического и экологического плана, и этот раз является первым разом в истории, когда марафон (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6102C71354619053DBAC6F385E884F87D811D1D
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,170 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142918   (639209) от 16.06.2017
+###  Публикация: 1033221   (640291) от 10.07.2016
 
-Красавица и чудовище / Beauty and the Beast (2017) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обозлённая Волшебница превратила принца Адама в отвратительное чудовище за то, что тот был злым, самовлюблённым и грубым. Чтобы снять чары с себя и слуг своего замка, ему необходимо научиться быть добрым, любить и быть любимым. Произойти это должно до того, как с розы, подаренной Волшебницей, упадёт последний лепесток.Производство: СШАЖанр: Mюзикл, фэнтези, мелодрама, семейныйРежиссер: Билл КондонАктеры: Эмма Уотсон, Дэн Стивенс, Люк Эванс, Джош Гад, Кевин Клайн, Хэтти Морахэн, Хейдн Гвин, Джерард Хоран, Рэй Фиарон, Юэн МакГрегорПеревод: Дублированный (iTunes)Субтитры: Русские,  АнглийскиеПродолжительность: 02:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86EC006993B0EAE743A16B01F451DD0527A41E06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293132   (639208) от 02.04.2019
-
-Prospekt - The Illuminated Sky (2017) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ex Nihilo (2:35)
-02. The Illuminated Sky (7:41)
-03. Titan (4:38 )
-04. Distant Anamnesis (1:31)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7CD30215CFD7422CA70ABDCD07138B49228A35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293158   (639207) от 02.04.2019
-
-David Gray - Gold In A Brass Age (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sapling (03:26)
-02. Gold in a Brass Age (04:20)
-03. Furthering (04:32)
-04. Ridiculous Heart (04:00)(   Читать дальше...   )Жанр: Rock, Alternative Rock, IndieПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C9462CED3A4D546406D0671BB455CB238A4307
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293138   (639206) от 02.04.2019
-
-Caligula's Horse - The Tide, The Thief & River’s End (2013) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Gift To Afterthought (6:18 )
-02. Water's Edge (7:39)
-03. Atlas (5:02)
-04. Into The White (8:29)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CD3045AF81896EBB08A871AF4D5587F15EAAE41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293129   (639205) от 02.04.2019
-
-Vola - Applause of a Distant Crowd (2018) [FLAC|Lossless|image + .cue] <Symphonic Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Are Thin Air (4:07)
-02. Ghosts (3:59)
-03. Smartfriend (4:18 )
-04. Ruby Pool (4:09)(   Читать дальше...   )Жанр: Symphonic Progressive MetalПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE99520FD66685FF3B9A1B3C4EF4988C1D2B3F92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293214   (639204) от 02.04.2019
-
-Wayne Shorter Quartet - Beyond The Sound Barrier (2002 - 2004) 2005, Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+Steve Lacy - Sortie + Disposability (1965, 1966) 2010, FreeFactory[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640291.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Smilin' Through [11:52]
-02. As Far as the Eye Can See [6:27]
-03. On Wings of Song [4:35]
-04. Tinker Bell [1:59](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:07:47
+01.Sortie [10:40]
+ 02.Black Elk [08:19]
+ 03.Helmy [01:37]
+ 04.Fork New York [02:08](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:17:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D001C20CB3C149CFE74E0101BD1AB396B4038E06
+magnet:?xt=urn:btih:94FEDE1655BC7A386B7FBC6489BC4EB6AB2BCF67
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -221,28 +82,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293089   (639203) от 02.04.2019
+###  Публикация: 1033075   (640290) от 10.07.2016
 
-Г. Чудаков | Пролетарская революция и буржуазная культура [статьи 1918-1919 гг.] (1920) [PDF]
+Волейбол. Гран-при 2016. Женщины. Финал шести. Бангкок(Таиланд). Группа J1. Таиланд – Россия (08.07.2016) WEB-DL [H.264/1080p-LQ][EN]
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640290.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаемая вниманию читателей книжка, составившаяся из журнальных и газетных статей, распадается на пять отделов, тесно связанных между собой.
+08 июля 2016, пятница. 14:00 МСК
+ Финальный этап. 1-й дивизион. Группа J. 3-й игровой день
+Стадион:  Хуамарк Индор Стэдиум (Бангкок, Таиланд), 9200 зрителей (61 % при вместимости 15000)
+Судья 1:  Тауфик Будая (Тунис)(   Читать дальше...   )Жанр: СпортЯзык озвучки: АнглийскийПродолжительность: 01:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EEB6F65FB053B9B4A56F5AEFE984462849E1DA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033376   (640289) от 10.07.2016
+
+Carles Denia - El Paradis De Les Paraules (2011) Comboi Records[FLAC|Lossless|tracks + .cue] <World Fusion, Ethnic Jazz, Flamenco>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tot i Que Em Creia Fort i Ferm Como Una Roca [02:42]
+02. Era Un Jonc Emocionat [04:21]
+03. Quina Plaent Vesprada al Llit [05:02]
+04. Si De Vora Meu un Dia [03:46](   Читать дальше...   )Жанр: World Fusion, Ethnic Jazz, FlamencoПродолжительность: 00:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77FCFBF93A385FBD77F8E0A60E61FAB237FCFA7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033088   (640288) от 10.07.2016
+
+Jack Teagarden - Father Of Jazz Trombone 1928-1947 (2004) 3CD, Avid Entertainment[FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640288.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Makin' Friends [03:06]
+02.I'm Gonna Stomp Mr. Henry Lee [03:36]
+03.That's A Serious Thing [03:34](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 03:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78601ECAB8C1EBEACA185123876E0EB1260AD8EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033227   (640287) от 10.07.2016
+
+Cashew 1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простое, быстрое и элегантное приложение для управления вопросами GitHub.
 
-В первой статье я высказываю мой общий взгляд на взаимоотношение освободительно-революционных движений и культурно-охранительных сил.
-(   Читать дальше...   )Жанр: История, политология, публицистика, культурология, искусствоФормат: PDF
+Особенности:
+- GitHub.com и поддержка GitHub Enterprise.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 июля 2016Разработчик: SimpleRocket LLCПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE8949401C999039CDB30CA5C4F76BA017FA031D
+magnet:?xt=urn:btih:329C53FB0084BFABAC5BA11CCBC6B1AED7A92CC0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -250,25 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293174   (639202) от 02.04.2019
+###  Публикация: 1033218   (640286) от 10.07.2016
 
-Permute 3 v3.1.7 [Multi/Ru]
+Charlie Mariano & Jerry Dodgion Sextet - Beauties Of 1918 (1957) Remaster, 2011, Pacific[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Mainstream Jazz>
 
->>Архив торрентов
->>Архив 4Apple
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640286.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 26.03.2019Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Мультиязычный, включая русский
+01. After You've Gone [04:52]
+02. When Johnny Comes Marching Home [05:15]
+03. Deep River [05:42]
+04. Till We Meet Again [04:18](   Читать дальше...   )Жанр: West Coast Jazz, Mainstream JazzПродолжительность: 00:48:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7DC72C500C4DCCAA1CF878A87A979C921046849
+magnet:?xt=urn:btih:206F5D701EAD1EA56B9F74BDD6B3BCB37BA60B42
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -276,109 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293118   (639201) от 02.04.2019
+###  Публикация: 1033199   (640285) от 10.07.2016
 
-Д. И. Черномордик (ред.) | Народный доход СССР. Его образование и учет (1939) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая работа ставит своей основной целью дать анализ народного дохода СССР, его структуры по отраслям народного хозяйства, методологии его исчисления. Рассматривая эти проблемы, авторы также касаются ряда экономических вопросов, тесно связанных с ролью народного дохода в процессе воспроизводства (исчисление валовой продукции, амортизация, незавершенное производство (   Читать дальше...   )Жанр: История, политология, экономика, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D0BA1D77C69F2BDAC19789745FD590A4469B8BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293243   (639200) от 02.04.2019
-
-Athanasia - The Order of the Silver Compass (2019) [MP3|320 kbps] <Heavy Metal, Thrash Metal, Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Read Between the Lines (04:34)
-02. Spoils of War (03:51)
-03. The Order of the Silver Compass (03:34)
-04. Cyclops Lord (My Will Is Done) (04:28)(   Читать дальше...   )Жанр: Heavy Metal, Thrash Metal, Modern MetalПродолжительность: 00:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEAAB2D434F14B713B665CCCA239D0B88EA8BE65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293236   (639199) от 02.04.2019
-
-Журнал | Дачный клуб №5 (май 2019) [PDF, DJVU]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639199.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале собрана информация о том, как ухаживать за садом, огородом, цветником, раскрываются хитрости ландшафтного дизайна, даются оригинальные рецепты заготовок и блюд из урожая, собранного на своих грядках, а также советы народной аптечки.Жанр: Дом, сад, огород, дачаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A38516A4433FEB78B2B05D5B67AAAD0F7C96F2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293137   (639198) от 02.04.2019
-
-Flotsam and Jetsam - The End of Chaos (2019) Japan [FLAC|Lossless|image + .cue] <Thrash Metal>
+Kissin' Dynamite - Megalomania (2014) [FLAC|Lossless|image + .cue] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640285.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Prisoner of Time
-02. Control
-03. Recover
-04. Prepare for Chaos(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:53:39
+01. DNA
+02. Maniac Ball
+03. VIP In Hell
+04. Fireflies(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 0:48:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:26A8D3C3F7D94ED054EE62C0F086F14D456DB4BF
+magnet:?xt=urn:btih:258AA88458A0016B1B23F378F10D1D1ECDBD1E94
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -386,28 +256,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293153   (639197) от 02.04.2019
+###  Публикация: 1032911   (640284) от 10.07.2016
 
-VA - The Fire This Time (2002) Hidden Art [FLAC|Lossless|WEB-DL|tracks+.cue] <IDM, Techno, Field Recording, Ambient>
+Ученые создали датчики, невидимые для тепловых и электрических полей, которые они измеряют
 
->>Electronic
->>IDM (Lossless)
+>>Поговорим
+>>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_640284.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Michael Stearns - From The Cradle… (03:48)
- 02. The Higher Intelligence Agency - Lines In The Sand (05:40)
- 03. Soma - Get Thee Behind Me (05:23)
- 04. Orbital - The Box (Re-Mixed by Bump 'n' Grind) (05:42)(   Читать дальше...   )Тип издания: CDЖанр: IDM, Techno, Field Recording, Ambient •Продолжительность: 01:17:18
+Группа исследователей из Национального университета Сингапура (National University of Singapore, NUS) изобрела специализированное "камуфляжное" покрытие, которое эффективно скрывает электронные и тепловые датчики, абсолютно, при этом, не мешая их нормальному функционированию. Созданная из чистой меди, ультратонкая "раковина" позволяет датчиками (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4CED39030AC21EDF737821255222F4566AB41187
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -415,28 +282,107 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293159   (639196) от 02.04.2019
+###  Публикация: 1033293   (640283) от 10.07.2016
 
-Kane Roberts - The New Normal (2019) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock>
+Акценты (10.07.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воскресная информационная программа «Акценты». Расскажет о том, как развивались самые яркие события в стране и мире в течение прошедшей недели, и представит оперативные новости текущего дня.
+Расставить акценты над самыми обсуждаемыми новостями недели зрителям поможет информация из первых уст – прямые включения свидетелей и непосредственных участников событий, а также (   Читать дальше...   )В этом выпуске: Вырваться из сетей: депутаты запретили обдирать производителей. Кому выгоден новый закон о торговых сетях? Подешевеют ли товары в супермаркетах и за счет кого продавцы доберут свою сверхприбыль? Жизнь удалась! Опозориться на всю Европу и спокойно курить кальян под гимн России в самом престижном клубе Монте-Карло. Звезды футбола, которые блещут вне игры. Кто все-таки (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBF8AA0DDF9AE53CEFACF278C142242EC1AC56DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033331   (640282) от 10.07.2016
+
+Ростислав Рыбкин (сост.) | Умная Марсела (1981) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник филиппинских народных сказок в пересказе для детей, представляющих богатый и самобытный фольклор народов, населяющих острова Филиппинского архипелага.Жанр: СказкаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22BE4356EB518A4E85A9EEF794BEEA91F9A8C8CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033393   (640281) от 10.07.2016
+
+Самсон Шляху | Товарищ Ваня (1955) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть для среднего школьного возраста.Жанр: Детская прозаПеревод: Е. Златова, З. ШишоваФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:598B83C53EF04853385E07FA6328831AAD173616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033328   (640280) от 10.07.2016
+
+La BIG Rabia - La BIG Rabia (2016) [MP3|192 Kbps] <Acoustic Rock, Blues, Latino>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640280.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. King Of The World (4:05)
-02. Wonderful (4:20)
-03. Beginning Of The End (4:48)
-04. Who We Are (3:46)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:41:51
+01. Dime
+02. Blues Malo
+03. Quiero Paz
+04. La Perdida(   Читать дальше...   )Жанр: Acoustic Rock, Blues, LatinoПродолжительность: 00:34:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69CE9C0454CE593728B228F6E2365F2D517CC5BD
+magnet:?xt=urn:btih:40D42FAB50125E6808851897BD402BD338D4C7C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -444,28 +390,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293219   (639195) от 02.04.2019
+###  Публикация: 1033211   (640279) от 10.07.2016
 
-Fennesz - Agora (2019) Touch [FLAC|Lossless|tracks+.cue] <Ambient, Experimental>
+Витезслав Незвал | Анечка-Невеличка и Соломенный Губерт (1980) [DJVU]
 
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640279.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. In My Room (12:30)
- 02. Rainfall (12:00)
- 03. Agora (12:09)
- 04. We Trigger the Sun (10:29)Жанр: Ambient, ExperimentalПродолжительность: 00:47:08
+Повесть-сказка известного чешского писателя Витезслава Незвала (1900–1958). Книга прекрасно проиллюстрирована цветными рисунками выдающегося художника книги Виктора Дмитриевича Пивоварова.Жанр: СказкаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5CD6800EDFAC724C2B16BC3AE229B1D13068A05D
+magnet:?xt=urn:btih:3A4A2C42FA001791D2B2984F06F50E55B952F283
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -473,25 +416,84 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293172   (639194) от 02.04.2019
+###  Публикация: 1033287   (640278) от 10.07.2016
 
-Postbox v6.1.13 [Multi/Ru]
+Главное. Итоговая программа (10.07.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждое воскресенье в 18.00 ведущая программы Ника Стрижак подводит информационные итоги недели. В этом ей помогают авторитетные собеседники, ведущие авторских рубрик и команда корреспондентов Пятого канала.В этом выпуске: На родине Варшавского договора теперь говорят об усилении НАТО и сдерживании России.  Почему  Запад  продолжает себя пугать заявлениями о «русской угрозе»?Кто первым начал и куда дальше заведут слабоумие и отвага западных генералов?
+Крестные отцы Украины. Как сегодня в Незалежной живёт и процветает традиция гетманских времён? Кто кому в киевской верхушке приходится (   Читать дальше...   )Телекомпания: Пятый каналЖанр: ТелепередачаПродолжительность: 01:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4006813560EF9D2707E54E009F7A33D04CD5A4E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033244   (640277) от 10.07.2016
+
+Andre Fisichella - Seduction (2016) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cotton Feeling
+02. Morning Dew
+03. Last Night
+04. Mutation(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FE864630BC74A4E19611B232169E4BB7409662
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032962   (640276) от 10.07.2016
+
+VA - Radio Hits Vol.2 (2016) [MP3|320 Kbps] <Trance , Progressive Trance>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640276.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Postbox является почтовым клиентом, в основу создания которого лёг код Mozilla Thunderbird с большими функциональными возможностями. Во-первых, программа будет весьма полезна для тех, кто часто отправляет и получает письма, содержащие вложения – документы, фотографии и пр. Просматривать фотографии, которые вам прислали, можно непосредственно в программе, а потом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.04.2019Разработчик: Postbox, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Мультиязычный, включая русский
+01. Roman Messer -  Someday (Denis Kenzo Radio Edit) 2:52
+02. Ruta & Lucid Blue -  Like A Dream (NoMosk Radio Edit) 3:45
+03. Feel & Alexandra Badoi -  Did We Feel (Radio Edit) 3:34
+04. Kayat -  The Calling (Denis Kenzo Radio Edit) 3:53(   Читать дальше...   )Жанр: Trance , Progressive TranceПродолжительность: 01:13:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:02A80A5D5C93E3CEAB75E5DE1FACC848D997439C
+magnet:?xt=urn:btih:040E90D7FB87F038099259097AF10E271DDD79BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -499,28 +501,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293242   (639193) от 02.04.2019
+###  Публикация: 217381   (640267) от 10.07.2010
 
-Forever Still - Breathe In Colours (2019) [MP3|320 kbps] <Alternative Metal, Gothic Metal>
+Бруклинские полицейские / Brooklyn's Finest (2009) BDRip [HQ-Video]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_640267.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rewind (03:18)
-02. Fight! (03:09)
-03. Breathe In Colours (04:29)
-04. Is It Gone? (04:02)(   Читать дальше...   )Жанр: Alternative Metal, Gothic MetalПродолжительность: 00:44:49
+Фильм повествует о трех никак между собой не связанных бруклинских полицейских, которые оказываются в одной судьбоносной сюжетной точке, несмотря на совершенно разные карьеры: один - работает под прикрытием в среде наркомафии, второй - коррумпирован по самое не балуйся, третий - всегда играл по правилам и теперь хочет только спокойно дожить до почетной отставки.Жанр: боевик, триллер, драма, криминалРежиссер: Антуан Фукуа / Antoine FuquaВ ролях: Ричард Гир (Eddie), Дон Чидл (Tango), Этан Хоук (Sal), Уэсли Снайпс (Caz), Винсент Д`Онофрио (Carlo), Брайан Ф. О’Бирн (Ronny Rosario), Уилл Пэттон (Lt. Bill Hobarts), Лили Тейлор (Angela), Эллен Баркин (Agent Smith), Джесси Уильямс (E. Quinlan), Шеннон Кэйн (Chantel), Уасс М. Стивенс (Det. Patrick Leary)Перевод: Профессиональный (двухголосый СP Digital), Оригинальный английский (отдельно)Формат: AVI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64693C473484AB603AAAC80785ABF02D02221998
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -528,115 +527,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293203   (639192) от 02.04.2019
+###  Публикация: 217002   (640266) от 10.07.2010
 
-VA - German Top 100 Single Charts 08.04.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639192.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Capital Bra - Cherry Lady
-002. Eno - Blackberry Sky
-003. MERO - Wolke 10
-004. Capital Bra x Samra - Wir ticken(   Читать дальше...   )Жанр: PopПродолжительность: 05:16:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57E3F1971F0301829DC94DA066A96582F987DEE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293152   (639191) от 02.04.2019
-
-VA - Ben City House (2019) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639191.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Basto - Sunrise (Extended Mix)
-002. Huem - Blue Moon (Original Mix)
-003. Om - The Ruins Of The End
-004. Christina Novelli - So Cold (Maratone Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 11:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8CD70988853051F4FF656FC1750B2C734C90E02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293136   (639190) от 02.04.2019
-
-Good Tiger - A Head Full Of Moonlight (2016) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Are The Birds (3:31)
-02. Snake Oil (3:39)
-03. Enjoy The Rain (3:41)
-04. I Paint What I See (3:42)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987149C05AFB7D5F346CD3AEFBE1154522BC0F48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293183   (639189) от 02.04.2019
-
-OSI - 4 Albums, 1 EP (2003 - 2012) 10CD [FLAC|Lossless|image + .cue] <Progressive Rock>
+Grand Funk - We're An American Band (1973) remaster, 2010, Audio Fidelity [FLAC|Lossless]<Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_640266.jpg" />
 </div>
 
 
 ###  Подробнее
 
-OSI - группа была создана в 2002 году Джимом Матеосом (Jim Matheos, FATES WARNING, ARCH/MATHEOS) и Кевином Муром (Kevin Moore, CHROMA KEY, бывший клавишник DREAM THEATER). Это виртуальный проект, поскольку оба его участника обычно сочиняют и записываются поодиночке и пересылают друг другу идеи для последующей разработки.Список альбомов:
-2003 - Office Of Strategic Influence
-2006 - Free
-2006 - Re-Free(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 07:05:59
+01. We're An American Band (3:28)
+02. Stop Lookin' Back (4:54)
+03. Creepin' (7:03)
+04. Black Licorice (4:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B12FB2FE0E018663A387F130D20D397488B42A05
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -644,25 +556,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 907188   (639188) от 11.06.2015
+###  Публикация: 217259   (640264) от 10.07.2010
 
-Pale Moon 25.5.0 + Portable + tools [Ru/En]
+Превратности любви / Playing by Heart (1998) DVDRip
 
->>След.
->>Архив Программ
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_640264.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Pale Moon - веб-браузер, созданный на базе популярного браузера Mozilla Firefox. Pale Moon отличается быстротой и стабильностью. Поэтому, если у вас есть опыт использования браузера Firefox, вы не испытаете трудностей при его использовании. Оптимизация исходного кода только под нужные функции наряду с сохранением совместимости с тысячами расширений Firefox позволила (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Два клаббера, повстречавшиеся в ночном клубе. Пожилая пара, заново дающая друг другу обет. Антисоциальная женщина, принимающая приглашение на свидание незнакомца. Парень, умирающий от СПИДа и мать, поборовшая себя принять сына. Пара, у которой затягивается роман. И мужчина, бродящий по барам рассказывая о своих несчастиях.
+
+Шесть совершенно непохожих друг на друга (   Читать дальше...   )Жанр: Комедия, Мелодрама, ДрамаРежиссер: Уиллард Кэрролл.Актеры: Анджелина Джоли, Шон Коннери, Джина Роулэндс, Джиллиан Андерсон, Мэдлин Стоу, Райан Филипп, Деннис Куэйд, Кристиан Миллс, Kellie Waymire, Эйприл Грэйс и др.Перевод: Многоголосый закадровый, профессиональныйПродолжительность: 01:56:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B09A5E6EFAFB111C5CD3C9BA20A127A7ACA641A2
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -670,27 +584,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 907176   (639187) от 11.06.2015
+###  Публикация: 217684   (640262) от 10.07.2010
 
-Счастливчик Луи / Lucky Louie (2006) HDTV [MPEG-2/1080i] (сезон 1, серии 01-13 из 13) 2x2, NewStudio
+Нищий из Беверли Хиллз / Без гроша в Беверли Хиллз / Down and Out in Beverly Hills (1986) DVDRip
 
 >>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_640262.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История простой американской пары и их маленькой дочки.
-Гротескные неурядицы в сексуальной жизни, стеб на тему наркотиков, преступности и расизма, страдания по поводу отсутствия денег - все это имеется в сериале.Производство: СШАЖанр: комедияРежиссер: Эндрю Д. ВейманАктеры: Луис С.К., Памела Адлон, Майкл Дж. Хэгерти, Лаура Кайтлингер, Джим Нортон, Рик Шапиро, Кимберли Хоторн, Джерри Майнор, Келли Гулд, Блесст Боуден и др.Перевод: многоголосый закадровый, профессиональный - 2х2
-двухголосый закадровый, профессиональный - NewStudioПродолжительность: ~00:27:00 серия
+Жанр: КомедияРежиссер: Пол Мазурски / Paul MazurskyАктеры: Ник Нолти /Nick Nolte/, Ричард Дрейфусс /Richard Dreyfuss/, Бетт Мидлер /Bette Midler/, Литтл Ричард /Little Richard/, Трэйси Нелсон /Tracy Nelson/, Элизабет Пенья /Elizabeth Pena/Перевод: Профессиональный (двухголосый, закадровый) + оригинальный английскийПродолжительность: 01:39:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0064041A57C54BBC501CE48C95EF8C3F35854FF7
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -698,25 +610,106 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 907437   (639186) от 11.06.2015
+###  Публикация: 680966   (640230) от 18.07.2013
 
-Acoustica Mixcraft Pro Studio 7.1.275 [Multi/Ru]
+Cocoto Kart Racer [Wii] [PAL] [Multi 5] (2008)
 
->>Архив торрентов
->>Архив Программ
+>>Консольные Игры
+>>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640230.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mixcraft Pro Studio 7 – это современное комплексное решение «всё в одном» для работы со звуком и создания музыки, предоставляющее потрясающие возможности для сведения и профессионального мастеринга, обладая при этом невероятно простым и удобным интерфейсом, в котором легко ориентироваться уже с первых минут использования. Mixcraft Pro Studio 7 содержит инструменты, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Священный котёл Cocoto был вероломно похищен. Полномочия бесовской братии теперь под угрозой, чтобы восстановить их нужно вернуть таинственный котёл. Это возможно только если вы победите всех соперников в жестоких гонках организованных на просторах ада и выиграете главный приз.Разработчик: Neko EntertainmentЖанр: RacingЯзык интерфейса: Multi 5Формат: WBFS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:020B095A8D4C92DF0B70557CE493BD813F28EDE7
+magnet:?xt=urn:btih:49E3595E0089E16814C6882EEE64E7B7E899074B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 680797   (640228) от 18.07.2013
+
+Журнал | Cosmopolitan [Россия] №8 (221) (август 2013) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cosmopolitan – женский глянцевый журнал №1 в мире. Сегодня невозможно встретить девушку, которая бы ни разу не читала или хотя бы не держала в руках номер Cosmo, поэтому в рекламе издание не нуждается. Сегодня Cosmo - больше чем просто журнал, он стал стилем жизни. "Девушка в стиле Cosmo" молода, независима и энергична, сама выбирает свой путь и добивается (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40F8F2E95E22C604844113127EA9F9132D027BB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033191   (640215) от 10.07.2016
+
+Лев Кузьмин | Луна над заставой (1983) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть о пограничных буднях, о жизни на заставе семьи офицера-пограничникаЖанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF0EBD5BDE0A7985B3CF34929D7D088E068BC629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033198   (640214) от 10.07.2016
+
+Kissin' Dynamite - Generation Goodbye (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Generation Goodbye
+02. Hashtag Your Life
+03. If Clocks Were Running Backwards
+04. Somebody To Hate(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F38356440463EDABEEC712112380DC2F6239066
 ```
 
 https://mybot314.ru/tekegram_catalog/

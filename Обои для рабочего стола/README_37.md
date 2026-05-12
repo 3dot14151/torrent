@@ -185,6 +185,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357552   (587254) от 01.07.2011
+
+[Wallpapers HD] Computer Desktop Wallpapers Collection (01.07.11)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_587254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:992E550319B71D4FC1C39DF9BA0B98EDD421324F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914217   (586831) от 15.07.2015
 
 Обои - Салют фейерверков [JPG]
@@ -654,32 +680,6 @@ Item – 35 Ultimate Light Effects Volume 3 | Pack contains ready to use 35 high
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEBC5F568B82F706C2CBE6EE8E26135715445505
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527367   (574113) от 27.07.2012
-
-Живые обои DreamScene для Windows 7 1.2 + сборка VoiD [Русский]
-
->>След.
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_574113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивые живые обои на Вашем рабочем столе! Ставим и наслаждаемся. Видео в Доп. Инфе.Название программы: Живые обои DreamScene для Windows 7 1.2 + сборка VoiDЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

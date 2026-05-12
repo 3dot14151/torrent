@@ -1,3 +1,32 @@
+###  Публикация: 1186554   (285853) от 25.11.2017
+
+Robert Schumann - Dichterliebe op.48 (Peter Schreier, Christoph Eschenbach) (1995) [FLAC|Lossless|image + .cue] <vocal>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dichterliebe Op. 48
+1. Im wunderschönen Monat Mai
+2. Aus meinen Tränen sprießen
+3. Die Rose, die Lilie(   Читать дальше...   )Жанр: vocalПродолжительность: 00:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02F381880B27B292905E15E1E76235F39D30D01B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081132   (282675) от 10.12.2016
 
 Divna Ljubojeviс / Дивна Любоевич & Melodi - Mysteres Byzantins (2000) 2004, JADE [FLAC|Lossless|image + .cue] <Religious, Choral>
@@ -766,35 +795,6 @@ Andrea Bocelli - Sogno (1999) [FLAC|Lossless|tracks + .cue] <Pop, Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF3840CE98EB4B55FE7B5DF5A6D8CC0182DB9867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754269   (40865) от 09.10.2024
-
-Pavarotti - Donizetti (1987) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ah! Mes AmisPavarottiPour Mon Ame (La Fille Du Regiment) 6:57
-02. Pour Me Rapprochher De Marie (La Fille Du Regiment) 3:40
-03. Quanto E Bella (L'elisir D'amore) 2:27
-04. Una Furtiva Lagrima (L'elisir D'amore) 4:48(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DC8D0BBFB1CD0581E176AFCA02673B85E130C82
 ```
 
 https://mybot314.ru/tekegram_catalog/

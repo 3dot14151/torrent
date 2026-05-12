@@ -1,3 +1,147 @@
+###  Публикация: 1538913   (62123) от 22.03.2024
+
+Лёдъ - Неведомо, не страшно (2019) [FLAC|Lossless|WEB-DL|tracks] <Dark Neofolk, Nordic Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Лёдъ (00:02:36)
+02 - Кузница Мира (00:06:35)
+03 - Чёрная Ладья (00:06:46)
+04 - Охотник И Cын (00:04:54)(   Читать дальше...   )Жанр: Dark Neofolk, Nordic FolkПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC9A2CB2C97EA6FB579C4822E7B6E6342240E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708763   (61834) от 25.03.2024
+
+Радда Эрденко, Карина Габриэлян, Сёстры Бэрри - Жизнь и приключения Мишки Япончика (2011) [MP3|192 Kbps] <Soundtrack, Folk, Jazz, Swing>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Основная тема
+02. Одесса за меня узнает
+03. ЧирибимЖанр: Soundtrack, Folk, Jazz, SwingПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94DFF66A0E02BC581611B156F426500B0C1F7799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710544   (61601) от 27.03.2024
+
+Tantric Sex Background Music Experts - Entrance to Sex (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sensual Chill (3:02)
+02. Wet Dream (3:41)
+03. Erotic Massage (2:57)
+04. Want You (2:57)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E83186511F0CAED67BDF861DD3C0E066AAF3DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585597   (60377) от 08.04.2024
+
+Stoner Boner - Seductive Eruptions: Tantric Sex Music for the Ultimate High (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ultimate High (432hz) [00:02:33]
+02. Tantric Sex Magic (432hz) [00:02:20]
+03. My Mistress Marijuana (432hz) [00:03:02]
+04. Marijuana Kundalini Meditation (432hz) [00:03:32](   Читать дальше...   )Жанр: PopПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77380C13F54034EA8AD24B7F9D317D4C3FBBA254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717705   (58960) от 21.04.2024
+
+Sex Pistols - The Filth & The Fury (Original Motion Picture Soundtrack) (2024) [FLAC|Lossless|WEB-DL|tracks] <OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God Save The Queen [00:03:19]
+02. Submission [00:04:10]
+03. Don't Give Me No Lip, Child [00:03:27]
+04. Watcha Gonna Do About It [00:01:53](   Читать дальше...   )Жанр: OSTПродолжительность: 01:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF1F727DD49BF37A7A9AE521301E368154076C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719501   (57945) от 01.05.2024
 
 Brian Eno - Eno (Original Motion Picture Soundtrack) (2024)  [FLAC|Lossless|WEB-DL|tracks] <OST>
@@ -589,149 +733,6 @@ Francis Goya - The Most Beautiful Original Melodies of Francis Goya (2024) Remas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C56AF4E2804BD9FA2B404A79B64C4794489D29C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743924   (46378) от 18.08.2024
-
-101 Strings Orchestra - Moon River: The Music of Henry Mancini (2024) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moon River (From "Breakfast at Tiffany's")
-02. The Pink Panther Theme (From "The Pink Panther")
-03. Peter Gunn Theme
-04. Theme from "Cade's County"(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E68CCFBB92C0F8B2C3BC93D1E36A1F7873CE8E8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747686   (44391) от 06.09.2024
-
-101 Strings Orchestra - San Francisco: City of Romance (1974) 2014-2024 Remaster From The Original Alshire Tapes [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Left My Heart in San Francisco (2014 Remaster)
-02. Top o’ the Mark (2024 Remaster)
-03. Cable Cars (2024 Remaster)
-04. Concerto to the Golden Gate (2021 Remaster)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A7D44062994B26F2836657E090909EB4E66DD7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748599   (43993) от 10.09.2024
-
-Sensual Music Paradise - Erotic Asanas: Sensual Yoga, Libido Booster, Sexy Body Exploration (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Yoga>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sensual Sunrise Asanas (3:49)
-02. Tantric Tranquility Flow (3:10)
-03. Whispers of Intimacy (3:10)
-04. Sacred Connection (3:18)(   Читать дальше...   )Жанр: New Age, YogaПродолжительность: 00:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5A0278C849B5B16DF484A219EF0220797A81863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750464   (42923) от 20.09.2024
-
-Эхо Москвы - История песен Битлз The Beatles (49 выпусков) (200?) [MP3|128 Kbps] <Подкаст>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл передач ведущего радиостанции "Эхо Москвы" Владимира Ильинского
-В каждом выпуске Владимир Ильинский (известный на Эхе как Дядя Володя) немногословно и очень тактично рассказывает об истории создания песни, кратко пересказывет ее текст (без углубления в лингвистические и стилистические особенности первоисточника), и - кончно же - звучит сама песня. (   Читать дальше...   )Жанр: ПодкастИздательство: Эхо МосквыПродолжительность: 03:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EF60920FE5A71F534B36BF782E236422127888A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751740   (42293) от 26.09.2024
-
-Tantric Music Masters, Tantric Sex Background Music Experts - Erotic Oasis Tantric Arabic Music (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tantric Music Masters - Sensual Sands (2:31)
-02. Tantra Healing Paradise - Desert Tantra (2:36)
-03. Tantric Sex Background Music Experts - Arabian Sensations (2:53)
-04. Tantric Music Masters - Oasis Rhythms (2:35)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558B3D1BDA5ADE91D5A348A0135E2031C8C96958
 ```
 
 https://mybot314.ru/tekegram_catalog/

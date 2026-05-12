@@ -1,3 +1,149 @@
+###  Публикация: 1433680   (156392) от 21.12.2020
+
+VA - Christmas Hits 2020 (2020) [MP3|320 Kbps] <Christmas, Pop, Rock>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bobby Helms - Jingle Bell Rock (Single Version)
+02. Brenda Lee - Rockin' Around The Christmas Tree (Single Version)
+03. Freddy Kalas - Hey Ho
+04. Jonas Brothers - Like It's Christmas(   Читать дальше...   )Жанр: Christmas, Pop, RockПродолжительность: 04:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:192E2CDF60451C5C05911C073C5C4AF5D69C2B5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968453   (155713) от 23.12.2015
+
+Rammstein - Klavier (2015) Piano Version [MP3|320 кб/с] <Acoustic, Piano>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rammstein выпустили акустический альбом «Klavier». В него вошли 13 композиций из шести ранее вышедших альбомов группы. P.S. Голоса нет (только музыка).01. Fruhling in Paris
+02. Feuer und Wasser
+03. Nebel
+04. Sonne(   Читать дальше...   )Жанр: Acoustic, PianoПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:995D7ED4BEA56D9979103373B4C5D626FC51CDE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853262   (155701) от 27.12.2014
+
+Clint Mansell Performed By Kronos Quartet And Mogwai ‎– Фонтан / The Fountain (Music From The Motion Picture) (2006) [FLAC|Lossless|tracks+.cue] <OST, Modern classical, Abstract, Ambient>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шотландская группа Mogwai может похвастаться своей недюжинной известностью в пост-рок кругах. Kronos Quartet, в свою очередь, опытные исполнители камерной классической музыки из США. Коллаборация музыкальных стилей и интересов породила сий труд ради одной цели - передать эмоции фильма "Фонтан", режисера Даррена Аронофски.
+Классические камерные мелодии заполняются (   Читать дальше...   )01. The Last Man (6:09)
+02. Holy Dread! (3:52)
+03. Tree Of Life (3:45)
+04. Stay With Me (3:36)(   Читать дальше...   )Жанр: OST, Modern classical, Abstract, AmbientПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA4295BEA937911FD06E147A2232475D40253419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193726   (155477) от 25.12.2017
+
+Ukrainia - Shadow Era (2017) [MP3|320 Kbps] <Folk Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fragile Youth (03:37)
+02. Shadow Era (02:39)
+03. Horses (03:34)
+04. Welcome to My Show (03:35)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A1B3F641586C376D13AE3B827BC1F57C8DB8C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193618   (155299) от 25.12.2017
+
+Francis Goya - The Best World Instrumental Hits (2009) 2CD [APE|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Francis Goya - Careless Whisper (5:44)
+02 Francis Goya - La Playa (4:01)
+03 Francis Goya - Chanson Anonyme (3:57)
+04 Francis Goya - El Condor Pasa (3:19)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F04FF2A82397BD428C422F5449D3ACFE88C4A26F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085945   (154854) от 23.12.2016
 
 Jeffrey Hilton - Velvet Skies (2016) [MP3|320 Kbps] <New Age>
@@ -600,157 +746,6 @@ Uma Mohan - Sounds of Harmony (2005) [FLAC|Lossless|tracks + .cue] <Mantras, Ved
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:638E4F713C95E72F84B7A8313C29FA0C509B7FD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086334   (151589) от 24.12.2016
-
-Imagine Dragons, Thomas Newman - Passengers / Пассажиры (Single) + (Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Starship Avalon (Main Title) (04:15)
-02. Hibernation Pod 1625 (01:19)
-03. Command Ring (00:57)
-04. Rate 2 Mechanic (02:08)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:12:02 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE0550B544E1D6FC68C7C583F08CDFF9BF55CCB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677557   (150463) от 18.11.2023
-
-Dolly Parton - Rockstar (2023) [FLAC|Lossless|WEB-DL|tracks] <Country, Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockstar (feat. Richie Sambora)
-02. World On Fire
-03. Every Breath You Take (feat. Sting)
-04. Open Arms (feat. Steve Perry)(   Читать дальше...   )Жанр: Country, RockПродолжительность: 02:21:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE13C0369448F58880DF95D3DF8AB0CC0324C452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588849   (150433) от 14.12.2012
-
-Brian Tyler - Far Cry 3 (2012) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150433.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Far Cry 3 (5:35)
-2. Heat (3:33)
-3. The Rakyat (3:55)
-4. Monsoon (2:53)
-5. Falling Into a Dream (2:20)
-6. Journey Into Madness (2:56)
-7. Rook Island (5:21)
-8. We Are Watching You (3:34)
-9. Treasure of Zhang He (3:35)
-10. Fever Dream (4:10)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:07:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8E2C6D9AC5808B42990C1B782BCDA01CF9DD094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 737957   (150063) от 26.12.2013
-
-David Arkenstone - Ambient World (2011) 2CD [FLAC|Lossless]<New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tunnels - 5:42
-02. Water Birth - 7:40
-03. Off the Map - 7:02
-04. Star Fall - 8:32(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81B6C19357E0AF89DB23037D13D23F8844DBEFC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271573   (150010) от 23.12.2018
-
-VA - True Romance: Motion Picture Soundtrack (1993) [FLAC|Lossless|tracks + .cue] <Country Rock, Pop Rock, Romantic>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hans Zimmer - You're so Cool (03:40)
-02. Charlie Sexton - Graceland (03:25)
-03. John Waite - In Dreams (03:45)
-04. Charles & Eddie - Wounded Bird (05:10)(   Читать дальше...   )Жанр: Country Rock, Pop Rock, Romantic, Modern Classical, Soundtrack, Techno, Downtempo, Arena RockПродолжительность: 00:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F396B8AE421B8B04A233C29CD11037D89E66712E
 ```
 
 https://mybot314.ru/tekegram_catalog/

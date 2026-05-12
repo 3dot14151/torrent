@@ -1,3 +1,32 @@
+###  Публикация: 1143322   (637479) от 17.06.2017
+
+VA - Empire Records - Trance Disco (2017) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Solarstone & Meredith Call - I Found You (Giuseppe Ottaviani Remix)  6:51
+02.  Denis Kenzo & Hanna Finsen - Dancing In The Dark (Extended Mix)  6:00
+03.  Andy Tau & Sean Mathews - Shadows And Light (Andy Tau Extended Remix)  6:49
+04.  J.A.Y.H. - Morning Star  6:44(   Читать дальше...   )Жанр: TranceПродолжительность: 02:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12D43F4E52B8147770265ADD8CC718592CE55A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143228   (637469) от 17.06.2017
 
 VA - Empire Records - Space Disco 3 (2017) [MP3|320 Kbps] <House, Nu-Disco>
@@ -727,35 +756,6 @@ VA - Vocal Drum & Bass Vol.14 (Compiled by Zebyte) (2018) [MP3|224-320 Kbps] <Dr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1A50E54987BA40DA8AFCE4307CB2F35603689D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908257   (633976) от 14.06.2015
-
-VA - Vocal Trance Collection Vol. 135 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Two & One feat. Eskova - I Say Goodbye (Frainbreeze Remix)
-02 Orkidea feat. Ben Lord - Neo Romance (Original Mix)
-03 Alex M.O.R.P.H. feat. Natalie Gioia - 4Ever (Original Mix)
-04 Neo & Farina - Alba Rossa (Remastered Original Vocal Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170C8CE10A0CC38AC2BC93BAF8EB86A0FED52C1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

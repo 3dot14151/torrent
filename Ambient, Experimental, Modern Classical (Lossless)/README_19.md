@@ -1,3 +1,32 @@
+###  Публикация: 1424693   (227470) от 17.11.2020
+
+Slow Dancing Society - The Torchlight Parade Vol. I & II (2020) Past Inside the Present [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Drone, Post-Rock>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227470.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Audubon Park (03:22)
+2. Manito (02:45)
+3. Riverside (02:51)
+4. Comstock (02:44)(   Читать дальше...   )Жанр: Ambient, Drone, Post-RockПродолжительность: 01:26:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01540A1253A8D28237C5E8485009E2FB2D6DB73E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424704   (227450) от 17.11.2020
 
 r beny - The Dashboard Cast a Spectral Glow (2020) Past Inside the Present [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Drone>
@@ -709,35 +738,6 @@ Devil Doll - Sacrilegium (1992) Reissue, Remastered, 2019, Hurdy Gurdy Records [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68117C3A13DF9951E86868427178601AC06B9E07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658571   (191216) от 08.09.2023
-
-Eguana - One Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psychill, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191216.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Surrounded (06:25)
-2. Imprint In Conscious (05:43)
-3. World Perception (07:00)
-4. Concentration Of Consciousness (06:12)(   Читать дальше...   )Жанр: Ambient, Psychill, DowntempoПродолжительность: 00:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67D84E0A1CD3D272E1E102F67838BDE8CC859C7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

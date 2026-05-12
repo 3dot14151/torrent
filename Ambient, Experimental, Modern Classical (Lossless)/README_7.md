@@ -1,3 +1,32 @@
+###  Публикация: 1013731   (777146) от 05.05.2016
+
+Jean-Michel Jarre - Electronica 2: The Heart of Noise (2016) Columbia [FLAC|Lossless|WEB-DL|tracks] <Electro, Trance, Ambient, House>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jean-Michel Jarre & Rone – The Heart of Noise, Pt. 1 (4:26)
+02. Jean-Michel Jarre – The Heart of Noise, Pt. 2 (4:10)
+03. Jean-Michel Jarre & Pet Shop Boys – Brick England (4:01)
+04. Jean-Michel Jarre & Julia Holter – These Creatures (3:40)(   Читать дальше...   )Тип издания: Web •Жанр: Electro, Trance, Ambient, House •Продолжительность: 01:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B543D0C5C8323F61E60368D7CFFE5A8A3B7B219D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277806   (775096) от 22.01.2019
 
 Steve Good (aka Puff Dragon) - Everything's Inside Everything Else (2018) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient>
@@ -713,35 +742,6 @@ Cult48 - Catalog 1 (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, IDM, Downte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D09D776A78C1E48210AF41ABB5C4D2A945FCB197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282599   (743745) от 13.02.2019
-
-Not Waving - Futuro (Music For The Waldorf Project) (2019) Ecstatic [FLAC|Lossless|WEB-DL|tracks] <Ambient, Abstract, Experimental, Soundtrack>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emotion 1.7 Cleanse (06:54)
- 02. Emotion 1.4 Decontamination (05:21)
- 03. Transitions 2/3 Alarm Sound (05:20)
- 04. Blue (06:20)(   Читать дальше...   )Жанр: Ambient, Abstract, Experimental, SoundtrackПродолжительность: 01:09:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D13C6DCF7BB5E9DDB64921C6245AE9142210CF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

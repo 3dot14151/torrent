@@ -1,3 +1,57 @@
+###  Публикация: 1787781   (68700) от 27.03.2025
+
+Проекты - VideoHive - Valentine Sweet Logo - 56706943 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивый проект с логотипом ко дню влюбленных.
+
+Музыка предоставлена в демо режиме.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4F110B9DB22796AE2C53E608A9D487DF7A07FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803380   (65895) от 22.06.2025
+
+Проекты - VideoHive - UI Music Widget - 58503153 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект с музыкальными виджетами в UI стиле.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:253AE6841B7EB1A7B621FD636B16A9A04E6A52D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807640   (65247) от 19.07.2025
 
 Проекты - VideoHive - Bloom Logo Intro - 57167937 [AEP]
@@ -643,60 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C39E610D79D36F2891DF2A740FE3276DE083C303
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772274   (31385) от 10.01.2025
-
-Проекты - VideoHive - Logo Animation - 56054129 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект с логотипом для ваших творческих задач.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5455FFC8A0736157422204DA57529792422928CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772525   (31308) от 11.01.2025
-
-Проекты - VideoHive - Documentary Story Vintage Slideshow - 56213251 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте историческое видео или документальное слайд-шоу в старинном стиле с использованием кистей, газетных текстур и эффектов старых писем.
-
-Музыка предоставлена в демо версии.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37DF3DAFA8A1D99320ECB39B1EE6EAC7A0D6093B
 ```
 
 https://mybot314.ru/tekegram_catalog/

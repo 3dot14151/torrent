@@ -1,3 +1,38 @@
+###  Публикация: 339051   (667334) от 20.05.2011
+
+Butterfly Girls Band - Dancing Skirts in Flying Flowers (2009) [APE|Lossless]<Chinese Ethnic>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_667334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Instrumental Ensemble Happy Song (4:52)
+02. Sheng Solo Ding Ding Dang (5:59)
+03. Dance Accompaned by Music Small Rainbow Skirt (9:15)
+04. Pipa Solo Lv Yao (6:49)
+05. Alto Fiddle Solo Song of Regions of Rivers and Lakes (4:46)
+06. Bamboo Fluet and Band Three, Five and Seven (4:23)
+07. Pipa and Guzheng Embroidering Girls (5:10)
+08. Chines String Quintet Soaring Dragon (7:15)
+09. Chines String Quintet Pamper Imagination (6:57)
+10. Guzheng Solo Spring Dawn in a Village of She Nationality (4:25)(   Читать дальше...)Жанр: Chinese EthnicПродолжительность: 1:13:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 339506   (666125) от 21.05.2011
 
 Chen Lei - The Song of King Yao (2009) [FLAC|Lossless]<Chinese Traditional Music, Guqin, Qin>
@@ -762,35 +797,6 @@ Aki no Sora - 10 альбомов (2008-2013) [FLAC|Lossless] <Vocal, J-Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:453DEF98AB37D8C880325D96A71B34D5EAD2CE8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032549   (643545) от 08.07.2016
-
-Kelly Simonz's Blind Faith - The Best Of (2009) Compilation [MP3|320 Kbps] <Neoclassical Metal, Shred>
-
->>East Asian Music
->>Asian Rock, Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Prolouge    04:05
-02.  Destiny    04:59
-03.  The Rule Of Right    04:18
-04.  Still    04:13(   Читать дальше...   )Жанр: Neoclassical Metal, ShredПродолжительность: 01:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73B2F72762B13ECECB037BC57367E6D7E6343467
 ```
 
 https://mybot314.ru/tekegram_catalog/

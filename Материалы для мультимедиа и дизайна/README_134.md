@@ -1,3 +1,107 @@
+###  Публикация: 1022957   (727353) от 03.06.2016
+
+Экшены - GraphicRiver - Water Painting Photoshop Action [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Water Painting - экшен для Вашего творчества.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E09884FAE38C5A3DB63079CFAE75844D1B34C2DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284452   (727176) от 22.02.2019
+
+NNM-Club Sound Cleaner - Чистые музыкальные треки с AudioJungle
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727176.jpg" />
+</div>
+
+
+###  Подробнее
+
+По неизвестным причинам допущена утечка чистых музыкальных треков к проектам After Effects на известном ресурсе AudioJungle, выявленная членами группы Sound Cleaner Клуба NNM-Club. Коллекция пополняется. Но уже есть случаи, что некоторые изначально чистые музыкальные композиции на страницах AudioJungle модифицированы, т.е. дополнены защитными голосовыми вставками. (   Читать дальше...   )Формат: MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4FFA6CD1407C9566EF3365B345CE3B4B27954E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022945   (727109) от 03.06.2016
+
+Экшены - GraphicRiver - Water Photoshop Action [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Water - экшен для Вашего творчества.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E2E99CF00D8C07FD12C88107E675BFD52E72160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022654   (727107) от 03.06.2016
+
+Шаблоны - CreativeMarket - The Mask Effect - Artistic FX [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727107.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Mask Effect - Artistic FX - данный шаблон поможет превратить ваши фотографии в настоящее произведение искусств.Формат: PSDРазрешение файлов: 2850 x 3600 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D8DA13D46A079A84420F7A8D60E9A567FBF531
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022794   (726855) от 03.06.2016
 
 3D модели - Evermotion - Archmodels for Corona Vol. 1 [Corona|*.max]
@@ -567,110 +671,6 @@ Burning - экшен для Вашего творчества.Формат: ATN,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66BE3E55BB7F341F840A80B52D409DABEA5F5784
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023446   (723834) от 05.06.2016
-
-Экшены - GraphicRiver - Smoke Photoshop Action - 14414419 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smoke - экшен для Вашего творчества.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:693578273547264553B06D699663952973D5C6CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023436   (723832) от 05.06.2016
-
-Экшены - GraphicRiver - HDR Oil Painting Action [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723832.jpg" />
-</div>
-
-
-###  Подробнее
-
-HDR Oil Painting - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCD80F8C164D612CB883001290E8F2F21ADEBB24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023455   (723739) от 05.06.2016
-
-Экшены - GraphicRiver - Norman Evolution Creation Kit [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Norman Evolution Creation Kit - превосходный экшен от Charles Brown для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCDD97F0E13DBD9C413E53B3940C39663000D770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023394   (723443) от 05.06.2016
-
-Футажи - VideoHive - Ink PACK - 759537 [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ink PACK - Этот пакет включает в себя 7 капель чернил. Все они имеют альфа-канал (прозрачный фон), так что вам нужно только импортировать их в свой проект и сделать некоторые коррекции цвета, если это необходимо.Формат: MOVРазрешение файлов: 750х800 - 800х1000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A56A8511AABFDFC298CA9A4FF9A2BA632086D27
 ```
 
 https://mybot314.ru/tekegram_catalog/

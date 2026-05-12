@@ -1,3 +1,55 @@
+###  Публикация: 1086031   (154116) от 23.12.2016
+
+Проекты - VideoHive - Bright Circles Opener - 17810369 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bright Circles Opener - проект для создания модного проморолика.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EF9307127243D23DE3D4F3E5D2D971BAA41DE46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086075   (154087) от 23.12.2016
+
+Проекты - Motion Array - Epic Neon In The Night Street - 21707 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Epic Neon In The Night Street - это потрясающий и уникальный шаблон, который легко настроить. Он имеет 2 версии. Добавьте ваш текст, поместите ваш логотип и жмите рендер для получения фантастического результата. Бесплатный VC Saber плагин необходим для данного проекта.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C30FB06CBC8B00F86537D30B35FD0BAA6EB89F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433775   (154080) от 22.12.2020
 
 Проекты - Motion Array - Walking Mans - 878615 [AEP]
@@ -627,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B7BBEB27E4D3F85E75D9C4F7268FF2CACA84E83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086517   (152289) от 24.12.2016
-
-Проекты - VideoHive - Typocorp - 18962679 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Typocorp - это стильные титры и слайд-шоу с минимальным дизайном.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E68A0ECAC2C1CE0862C5A338C500AE0724D32BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968594   (152288) от 24.12.2015
-
-Проекты - VideoHive - Inkman Christmas Holiday card - 9686324 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Замечательный шаблон для новогоднего поздравления. Этот шаблон идеально подойдет для e-mail видео-открытки.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04F75EF929E41C78BC179967FD004932E8B72E65
 ```
 
 https://mybot314.ru/tekegram_catalog/

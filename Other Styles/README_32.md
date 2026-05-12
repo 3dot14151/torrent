@@ -1,3 +1,119 @@
+###  Публикация: 1000377   (858865) от 25.03.2016
+
+Floex (Tomas Dvorak) - Samorost 3 (2016) [FLAC|Lossless|WEB-DL] <Soundtrack, Downtempo, Jazz, Ambient>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858865.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Samorost 3 Main Theme 07:56
+2.Going On An Adventure 04:02
+3.Mushroom Picker Dance 01:49
+4.Behind The Cosmic Curtain 02:28(   Читать дальше...   )Жанр: Soundtrack, Downtempo, Jazz, AmbientПродолжительность: 01:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AE444844DFEBB9618F245EA089E2FA3545A4F73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109796   (857162) от 28.02.2017
+
+Paul Mauriat - Transparence & Serenade (1985,1989) Reissue, 2017 [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Transparence (1985)
+01. Alla Figaro (3:25)
+ 02. Careless Whisper (3:38)
+ 03. Like a Virgin (3:33)(   Читать дальше...   )Жанр: Instrumental |Продолжительность: 01:19:39 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4213CF43C787330E77FF580739B31AD624098C6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376714   (856665) от 19.04.2020
+
+Theodor Bastard - Волчья Ягода (2020) [MP3|320 Kbps] <Trip Hop, Folk Rock, Darkwave>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Flute Song [00:02:08]
+02 Шуми [00:04:30]
+03 Skejgored [00:04:43]
+04 Urzala [00:04:04](   Читать дальше...   )Жанр: Trip Hop, Folk Rock, DarkwaveПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F35002D024C76493D311C3D8EA49409E3F8B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000484   (855823) от 27.03.2016
+
+Amy Shreve - Pray (2006) [FLAC|Lossless|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brushstokes   03:20
+02. West Wind   05:24
+03. Be Still My Soul   03:54
+04. Christmans Hymn   02:15(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5659F494638BD5C5D650BE06B160AB66EFF94AED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109928   (855566) от 01.03.2017
 
 Satyaa - Satyaa Sings Kundalini Yoga Mantras (2011) [MP3|320 Kbps] <New Age, Yoga, Mantras>
@@ -647,119 +763,6 @@ Marco Beltrami - Logan / Логан (Original Motion Picture Soundtrack) (2017) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9AC3A8882CD4C7E38861FAF594F4D93DDF4C962
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110809   (850184) от 04.03.2017
-
-Marco Beltrami - Logan / Логан (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Titles (02:21)
-02. Laura (02:25)
-03. The Grim Reavers (01:33)
-04. Old Man Logan (02:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 0:00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:595CFD36D93865E8B4B64F99FBDDBAA18AD048EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110989   (850183) от 04.03.2017
-
-Armik - Enamor (2017) [FLAC|Lossless|image + .cue] <Flamenco, Acoustic guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enamor
-02. Lost Love
-03. La Guitarra De Oro
-04. Santa Cruz(   Читать дальше...   )Жанр: Flamenco, Acoustic guitarПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40B781535AA047CC603B968E8ABF029BC22B53D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377748   (850089) от 23.04.2020
-
-Aesop Rock - Freedom Finger (Music from the Game) (2020) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Beats, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Play Dead (3:22)
-02. KOWP (3:39)
-03. Drums On The Wheel (3:45)
-04. Play Dead (Instrumental) (3:22)(   Читать дальше...   )Производство: RhymesayersЖанр: Hip-Hop, Beats, SoundtrackПродолжительность: 00:22:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02AF0ABB1CF8684B2A376F8AD114E566FAADBEB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001739   (850049) от 30.03.2016
-
-Estas Tonne - Internal Flight (Guitar Version) 2013 [FLAC|Lossless|tracks] <Folk, World, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Internal Flight.Estas Tonne (guitar version)Жанр: Folk, World, InstrumentalПродолжительность: 01:04:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90E10FDE8C013F42787F3595953E6CB7C0067D52
 ```
 
 https://mybot314.ru/tekegram_catalog/

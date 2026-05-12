@@ -1,3 +1,58 @@
+###  Публикация: 1406371   (472536) от 04.09.2020
+
+Def Leppard: Hysteria at the O2 (2018) BDRip [H.265/1080p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Def Leppard - британская рок-группа из Шеффилда, Йоркшир, Англия, образована в 1977 году. Их стилевая манера с годами претерпела ряд изменений, двигаясь от хард-рока к глэм-металу. Def Leppard дебютировали как NWOBHM-группа с альбомом "On Through the Night" в 1980 году. Пик популярности этой группы пришёлся на 1984-89 годы, когда вышли их платиновые альбомы (   Читать дальше...   )Производство: Великобритания / Eagle Rock EntertainmentЖанр: hard rock, glam metal, heavy metal, pop rockАктеры: Def Leppard, Джо Эллиотт, Фил Коллен, Вивиан Кэмпбелл, Рик Сэвидж, Рик АлленПеревод: ОтсутствуетПродолжительность: 01:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27988AA32CA2EB79E6AD73018ACB1F971C1F94C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160771   (471675) от 26.08.2017
+
+Graham Bonnet Band - Live...Here Comes the Night (2017) Blu-ray [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление Грэма Боннета и его группы на Frontiers Rock Festival 2016 в Милане. Грэм Боннэт — британский рок-вокалист, автор песен. Участник групп Marbles, Rainbow, Michael Schenker Group, Impellitteri, Alcatrazz, Forcefield, Blackthorne и других. Также выпустил несколько сольных альбомов.01. Eyes Of The World
+02. All Night Long
+03. S.O.S.
+04. Stand In Line(   Читать дальше...   )Производство: Frontiers RecordsЖанр: Hard RockПродолжительность: 01:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B8824BDCADD7B21188A24EB8B8C3E1ABF9EEE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 547618   (471095) от 16.09.2012
 
 ZAZ - Sans Tsu Tsou (Live) (2012) HDTV [H.264/1080i]
@@ -673,64 +728,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A87C488AB26534F779DA23FC1525591F953A7A0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942224   (455158) от 30.09.2015
-
-Rammstein - In Amerika (2015) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rammstein выпустили DVD «In Amerika». С триумфом вернулись в США 12 ноября 2010 года, выступив перед толпой в 18 000 человек на сцене Madison Square Garden в Нью-Йорке. Спустя пятилетие, 25 сентября этого года концерт под названием «Live From Madison Square Garden» получит официальный релиз на DVD и Blu-ray стараниями лейбла Island Records и Universal Music Enterprises. (   Читать дальше...   )01. Rammlied
-02. B********
-03. Waidmanns Heil
-04. Keine Lust(   Читать дальше...   )Производство: Германия | Island Records, Universal Music EnterprisesЖанр: Industrial Metal, Hard Rock, NDHРежиссер: Ханнес РоссачерПродолжительность: 01:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D12E512B86569337603EDFCECBCEF857AC589F54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060386   (454721) от 07.10.2016
-
-Гудгора. Концерт Вячеслава Бутусова (03.12.2015) HDRip [H.265/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт группы "Ю-Питер" в Питере, в БКЗ "Октябрьский", 3 декабря 2015 года.01. Апокалиптическая
-02. Возьми меня с собой
-03. Чёрная птица-белые крылья
-04. Одинокая птица(   Читать дальше...   )Жанр: МузыкаАктеры: Вячеслав БутусовПродолжительность: 01:24:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E7E010729BB43618257D5B7C3EAF767226E27A
 ```
 
 https://mybot314.ru/tekegram_catalog/

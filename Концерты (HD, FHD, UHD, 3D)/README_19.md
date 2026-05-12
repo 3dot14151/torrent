@@ -1,3 +1,32 @@
+###  Публикация: 909820   (625682) от 18.06.2015
+
+Slash Featuring Myles Kennedy and The Conspirators - Live At The Roxy  (2014) BDRemux [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625682.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 сентября 2014 года, вскоре после выхода альбома «World On Fire», Slash Featuring Myles Kennedy & The Conspirators сыграли концерт в легендарном Roxy Theatre, Сансет-Стрип, Голливуд.01. Ghost
+02. Nightrain
+03. Back From Cali
+04. You Could Be Mine(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:26:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C683C7312642C2EBF46437D9558ED2780EF3775F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907494   (625426) от 18.06.2015
 
 Slipknot - Rock am Ring (2015) HDTVRip
@@ -719,32 +748,6 @@ Elton John - The Million Dollar Piano (2014) BDRip [1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFED4AE5BF5158F3395CC9B88FBD5A5F16F22BE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232831   (596148) от 26.06.2018
-
-Nier Music Concert: Ningyou Tachi no Kioku / NieR Music Concert: The Memory of Puppets (2017) Blu-Ray [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596148.jpg" />
-</div>
-
-
-###  Подробнее
-
-NieR Music Concert - серия концертов в Японии и Тайване, в которых представлены живые выступления NieR Automata и оригинальной музыки NieR. На каждом из концертов также была представлена ​​уникальная драма со спектаклем, исполняемая живыми японскими актерами. Из-за успеха концертов Square Enix решила выпустить диск Blu-Ray с записью ночного концерта "Прощай", (   Читать дальше...   )Производство: Япония | SQUARE ENIX CO., LTD.(PLC)(D)Жанр: концертЯзык субтитров: английский, китайский, корейский.Продолжительность: 02:03:47 / 01:58:06 / 02:01:12 / 01:57:48 / 02:02:33 / 02:02:54 / 02:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D575DF746BCED6E4F7F59FC95346E66EB904A2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

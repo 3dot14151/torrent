@@ -1,3 +1,61 @@
+###  Публикация: 926710   (531308) от 11.08.2015
+
+VA - Workout Mix vol.2  (mixed by Dj V) (2015) [MP3|320 кб/с]<Club House, Electro House, Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Real 2 Real - I Like To Move It (Mack Di & Anton Klyukvin Remix)
+02-DMX vs Weekend Vibes - Where The Hood At (Mikis Mash Up)
+03-Tujamo & Jacob Plant vs. Big Gigantic - Get on all night (S.p.l.a.s.h. Reboot)
+04-Toby Green vs Dj Snake - Slow Down 2 Get There (Dj JIGGI Mash Up)(   Читать дальше...   )Жанр: Club House, Electro House, TrapПродолжительность: 01:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12EDFA4F5A233FD6E7636949EC3E420F08AFA097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051884   (531065) от 12.09.2016
+
+VA - Trance 55 Week Start Melody (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila meets Roger Shah & Susana  -  Unbreakable (Extended Mix)  7:46
+02. Richard Durand  -  Dark Rising (Original Mix)  6:09
+03. Rene Ablaze & Jam Da Bass  -  Sunstream (Original Mix)  6:13
+04. Alan Morris  -  Julie (Extended Mix)  6:36(   Читать дальше...   )Жанр: Trance, Melodic, EnergyПродолжительность: 05:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:563BEC15738E102022FDE47E4A2EE3737AEE7483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 533212   (530758) от 11.08.2012
 
 VA - Kiss FM - Top-40 (09.08.2012) [MP3|320 кб/с]<Dance>
@@ -693,64 +751,6 @@ VA - 100% Ibiza - The Closing (2016) [MP3|320 Kbps] <Funky, Club, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F99D827587B9DFE3EF59CE0D37847DC5E30BA584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053413   (526119) от 17.09.2016
-
-VA - Traxsource Top 100 July (2016) [MP3|320 Kbps] <UK Jackin, Indie Dance, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526119.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Full Intention - Dancin' 05:12
-002. Midnight Star - Midas Touch (Jamie Lewis Touch The Stars Mix) 07:43
-003. Soul Vision - Don't Stop (Dario D'Attis Remix) 06:56
-004. David Penn, Hosse - Con Son Ft. Africa G. (Vocal Mix) 05:33(   Читать дальше...   )Жанр: UK Jackin, Indie Dance, Nu DiscoПродолжительность: 11:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5697868310AB750D586854F17C022659E06CEA1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053430   (526001) от 17.09.2016
-
-VA - Cafe Del Mar - Cafe del Mar ChillWave 2 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gelka - Empathy [04:19]
-02. Niia - Body [03:47]
-03. Sam Brookes - Numb [04:05]
-04. Forteba - Agu Mea [04:53](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9CD94C7F0D53A9782DD7E480BAC8338B95B0777
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,125 @@
+###  Публикация: 524322   (612603) от 18.07.2012
+
+Alex Clare - The Lateness of the Hour (2011) [FLAC|Lossless]<Soul/Pop/Dubstep>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Up All Night (2:43)
+02. Treading Water (3:38)
+03. Relax My Beloved (3:31)
+04. Too Close (4:16)
+05. When Doves Cry (4:08)
+06. Hummingbird (3:50)
+07. Hands Are Clever (3:16)
+08. Tightrope (3:37)
+09. Whispering (4:30)
+10. Love You (4:39)(   Читать дальше...   )Жанр: Soul/Pop/DubstepПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230747   (612335) от 14.06.2018
+
+Rhonda Mackert - Time Not Forgotten (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Dancing Through My Memories
+02 – Walking Among Giants
+03 – Time Not Forgotten
+04 – Molokini(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:395C364B4833C72BFC690B01B0CB03BD9866CD1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912092   (612290) от 25.06.2015
+
+Jean Michel Jarre - The Best Of (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Industrial Revolution-Ouverture
+02. Industrial Revolution part 1
+03. Industrial Revolution part 2
+04. Industrial Revolution part 3(   Читать дальше...   )Жанр: New Age, Electronic, AmbientПродолжительность: 02:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:060B9B0D06C6BAD2E7A256097B7CD50C4E0F274E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037477   (612029) от 25.07.2016
+
+VA - Phenomena (1985/1997) 2CD [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phenomena
+02. Jennifer
+03. The Wind
+04. Sleepwalking(   Читать дальше...   )Жанр: OSTПродолжительность: 01:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A5231D247AA17CED7DA0AF0AADDE53AA300637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037854   (611773) от 25.07.2016
 
 Claude Ciari - La Playa (Platinum Best)2CD (2013) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar>
@@ -665,128 +787,6 @@ VA - The Organ Plays Sentimental Favorites (1999) [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E8D5E8DEA9007CC4CDB37294E17AFE8BC686459
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147321   (607511) от 03.07.2017
-
-VA - Romantic Moods Of The Great Instrumentalists (2000) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gordon Langford (piano) - La Mer (Beyond the Sea) (3:19)
-02. Francis Goya (guitar) - Try a Little Tenderness (3:41)
-03. Terry Harrington (clarinet) - I'll Walk Alone (3:42)
-04. Simon Chamberlain (piano) - I Love Being Here With You (2:51)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFB35EACF82EEC982F34C586135CCC7204B6857C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525197   (607330) от 21.07.2012
-
-Прометей / Prometheus (2012) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 A Planet
-02 Going In
-03 Engineers
-04 Life
-05 Weyland
-06 Discovery
-07 Not Human
-08 Too Close
-09 Try Harder
-10 David(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B78F3D6352601A82290B9793F21336DDDABC233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913273   (607089) от 28.06.2015
-
-Navajo - Native American Dance Trance (2000) [MP3|320 кб/с]<Native American, World, Ethno, Trance>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning Star Of Cherokee (5:05)
-02. Song Of The Red River (Creek) (5:12)
-03. Sun Of The Desert (Choctaw) (5:28)
-04. Rainbow Song (Chickasaw) (5:33)(   Читать дальше...   )Жанр: Native American, World, Ethno, TranceПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6882FEE6374A220698349E00395C46004131E5E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296564   (606793) от 20.04.2019
-
-T Bone Burnett - The Criminal Under My Own Hat (1992) Reissue 2003 [FLAC|Lossless|tracks + .cue] <Blues Rock, Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Over You (02:20)
-02. Tear This Building Down (04:37)
-03. It's Not Too Late (04:27)
-04. Humans From Earth (02:49)(   Читать дальше...   )Жанр: Blues Rock, Folk RockПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CD559FE3DFC91CDD9158B2C343A9C5E1A5205CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

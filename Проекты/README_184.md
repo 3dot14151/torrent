@@ -1,3 +1,55 @@
+###  Публикация: 807915   (590463) от 26.07.2014
+
+Проекты - VideoHive - Blockbuster Trailer 4 - 6595954 [AEP]
+
+>>Проекты
+>>Трейлеры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение легендарного набора проектов-блокбастеров. Добавляйте свои фото/видео, и вы получите профессионально оформленный опенер для вашего фильма.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:133B7012DC36F8F054D6B574347643673009B626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916607   (590324) от 09.07.2015
+
+Проекты - VideoHive - Smoky 3D Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D014B231B83CC523E6E548C5F807B6C806B035A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916604   (590314) от 09.07.2015
 
 Проекты - VideoHive - Text Block Tool [AEP]
@@ -629,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C07EA84A3F3561C6E2A95A4C446958B983B2FB10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917963   (588586) от 13.07.2015
-
-Проекты - VideoHive - Service/Product/e-Shop Promotion [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания презентации интернет ресурса. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D41F11F07A556BE924C5900C1E3BF336E45874
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917976   (588568) от 13.07.2015
-
-Проекты - VideoHive - Corporate Lower Third [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Corporate Lower Third- элегантный проект текстовых подложек, выезжающий то с левой, то с правой стороны, который содержит 26 анимаций и 39 текстовых заполнителей. Проект адаптирован под Windows и Macosx.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6596714583F9B7A90A85A45EF8FEEB0EAEBCD5DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

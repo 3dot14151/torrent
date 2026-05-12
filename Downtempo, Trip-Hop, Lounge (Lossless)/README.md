@@ -1,5 +1,63 @@
 https://t.me/izofen
-###  Публикация: 1868436   (1067640) от 
+###  Публикация: 1868831   (1067706) от 02.05.2026
+
+VA - Sunset Salinas: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beamy - Dream (Jero Nougues Remix) (5:23)
+02. Michael E - Andiamo (4:42)
+03. Beamy - Es Vedra (5:54)
+04. Marga Sol - Soft Lights (Instrumental Mix) (4:08)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:54:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8117EFB1FFA54FF3BE700775B28687686A195E20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868770   (1067705) от 02.05.2026
+
+VA - Lounge Reverie: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Serenity (7:22)
+02. Michael E - Walk the Path (5:39)
+03. Ian Otta - Watching the Sky (4:18)
+04. Luis Hermandez - Chill Coast (3:41)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291F7DFB5166AD8F0345C68D07A4CEBE6BF09EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868436   (1067640) от 30.04.2026
 
 VA - Zenith Echoes (Noon Chill Out Lounge), Vol. 1 (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
 
@@ -688,64 +746,6 @@ VA - The Orient Collective: Desert Moon (2026) [FLAC|Lossless|WEB-DL|tracks] <Wo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD3164B7BBDB01E8E0056B4DF4117BD3E449227D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852305   (1055836) от 07.02.2026
-
-Amanati - Omen (2025) [FLAC|Lossless|tracks] <Downtempo, Electronic,>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Omen (04:37)
-02. Nemesis (04:26)
-03. Orama (03:44)
-04. Aura (04:05)(   Читать дальше...   )Жанр: Downtempo, Electronic,Продолжительность: 00:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5308B8DE3B0F3FF5E882EE34C94964DAAB8E4A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851969   (1055536) от 05.02.2026
-
-VA - Desert Souls, Vol.1 (Micro Sound Records) (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nora Aladha - Kora Malembe Nitu (2:59)
-02. Alma Rojas - Se Quiseres (2:53)
-03. Lia Maris - I Move Slow (2:37)
-04. Anahi Sahra - Ana Al Khamisa (2:24)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 00:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C199703AFE3C4FB6905EBC761DEAED3C559ECD27
 ```
 
 https://mybot314.ru/tekegram_catalog/

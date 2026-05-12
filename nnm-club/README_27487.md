@@ -1,22 +1,25 @@
-###  Публикация: 1820189   (781) от 26.09.2025
+###  Публикация: 1819153   (1789) от 20.09.2025
 
-3D print - Cults3D - MyAnimate - Genos (OnePunchMan) [STL]
+The Jesse Williams Band - Keep Steady (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1789.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С каждым взрывом поле боя содрогается — Генос устремляется вперёд, словно демон-киборг.Формат: STL
+01.  Making Headway (6:14)
+02.  Quit Quiet (6:04)
+03.  Lessons We Learn (4:52)
+04.  These Days (5:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56FC0D9578196C032FDFEE442E0BCC230A95819A
+magnet:?xt=urn:btih:BF65E4C4BC1DCE9FB764CA9F87F45D76FBA41000
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820199   (780) от 26.09.2025
+###  Публикация: 1819179   (1788) от 20.09.2025
 
-Пётр Алмазный, Юрий Манов | Барон Баранов (Книга 1) (2025) [MP3, Фибоначи]
+Paradise Lost - Ascension (2025) [FLAC|Lossless|image + .cue] <Death Doom Metal>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1788.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кто бы мог подумать, что возврат долга приведет меня в чужой мир, похожий на фэнтезийную ролевую игру?Ну да, Система здесь уже изрядно обнаглела, пытаясь всех контролировать по своему разумению. Но ведь и я не простой НПС, а кое-что умею! Вот только разберусь, как тут что устроено… А потом начну и сам прокачиваться, и собственные владения развивать!Жанр: Фэнтези, попаданцы, РеалРПГ, LitRPGИздательство: ЛитРесПродолжительность: 10:05:59
+01. Serpent On The Cross
+02. Tyrants Serenade
+03. Salvation
+04. Silence Like The Grave(   Читать дальше...   )Жанр: Death Doom MetalПродолжительность: 01:01:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9D6CE70052C33EFCBC0AFC54A54F970F60F4C45
+magnet:?xt=urn:btih:205A9FA40778F54618584BF309419D8D51762B55
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,28 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819997   (779) от 26.09.2025
+###  Публикация: 1819068   (1787) от 20.09.2025
 
-VA - Trancendence, Vol. 04 (2025) [MP3|320 Kbps] <Trance>
+Любовь и слёзы / Ask ve Gozyasi (2025) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1 из ??) DeziDenizi (обновляемая)
 
->>Electronic
->>Trance
+>>Зарубежные сериалы
+>>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1787.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stormline - Dreamland (Original Mix) 04:17
-02. Lightcontrol - Find My Way (Extended Mix) 05:47
-03. Miguel Lane - Dream Secrets (Original Mix) 04:15
-04. Siege - Just An Illusion (Radio Edit) 03:32(   Читать дальше...   )Жанр: TranceПродолжительность: 01:58:31
+Мейра — дочь одной из самых богатейших семей Турции. Она получила престижное образование в США и решила вернуться на родину. Девушка хочет добиться уважения в обществе своими силами и поэтому устраивается на работу в торговый центр, тщательно скрывая свое истинное происхождением. Именно здесь она и знакомится с Селимом — юристом, из компании ее отца. Между молодыми (   Читать дальше...   )Производство: Турция / O3 Turkey MedyaЖанр: драма, романтикаРежиссер: Энгин ЭрденАктеры: Ханде Эрчел, Барыш Ардуч, Ознур Серчелер, Берк Джанкат, Шенай Гюрлер, Санем Челик, Лорин Мерхарт, Афра Карагёз, Сенан Кара, Мерт Денизмен и др.Перевод: Двуголосый любительский (DeziDenizi)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~02:00:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC3F0F5E480419A495CD2DB0B747D72EC67F9446
+magnet:?xt=urn:btih:1513198054A71C530B2960514881A77614D27498
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819975   (778) от 26.09.2025
+###  Публикация: 1819070   (1786) от 20.09.2025
 
-Kaze Tachinu | The Wind Rises | Ветер Крепчает [2013, Movie] DVD9 576p raw+rus
+VA - Classical Adrenaline (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
->>Аниме разное
->>Аниме DVD
+>>Классика
+>>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1786.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Будущий создатель самолета «Зеро» Дзиро Хорикоси, взрослевший в Японии начала XX века, с детства мечтал о полетах и видел сны, в которых покорял небеса, виртуозно управляя самолетом. Однажды в стране сновидений он даже встретил Капрони – знаменитого итальянского авиаконструктора, который был его кумиром и оказался с Дзиро в одном сне. Однако ни волшебные сны, ни (   Читать дальше...   )Производство: Studio GhibliЖанр: драмa повседнeвность, романтикaПеревод: ReanimediaЯзык озвучки: Японский и РусскийСубтитры: Русские VobSub(int) (Полные) + студийный полухардсаб (перевод надписей с японского)Продолжительность: 126 мин.
+01. Sir Simon Rattle - Short Ride in a Fast Machine Fanfare for Orchestra (4:26)
+02. Mariss Jansons - Symphony No. 10 in E Minor, Op. 93 II. Allegro (4:19)
+03. Paavo Järvi - Symphonic Dances from West Side Story IV. Mambo (2:25)
+04. Sir Simon Rattle - The Firebird, KC. 10, Tab. I Dance of Kashchei's retinue under Firebird's spell (4:13)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:13:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8BECC11BA6F02C66B81B57AB964674D60A24396E
+magnet:?xt=urn:btih:62A5710C5233E65BAD700E0A94D32BB4EB0E9E85
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,106 +111,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820009   (777) от 26.09.2025
+###  Публикация: 1819073   (1785) от 20.09.2025
 
-Kaijuu no Kodomo | Children of the Sea | The Sea Monster's Children | Дети Моря [2019, Movie] DVD9 480p raw+rus
-
->>Аниме разное
->>Аниме DVD
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды в океанариум, в котором работает отец Руки, привозят двух странных мальчиков — Уми и Сору. Они родились и выросли в море, и обладают сверхъестественными способностями. Между тем во всём мире происходит удивительное: из океанариумов исчезает вся живность, морские существа появляются в необычных для себя местах обитания. Рука пытается выяснить, как с этим связаны (   Читать дальше...   )Производство: Studio 4°CЖанр: фэнтeзи, драмaРежиссер: Ватанабэ АюмуЯзык озвучки: Японский и РусскийСубтитры: Русские VobSub(int) by Reanimedia (Полные и Надписи)Продолжительность: 93 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B17854451CA556E2B2A666F59B9C5C1AEC4C981
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820205   (776) от 26.09.2025
-
-Денис Лукьянов | Век серебра и стали (2024) [MP3, Денис Некрасов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем в аудиоформате роман Дениса Лукьянова «Век серебра и стали», написанный в жанре городского фэнтези в антураже альтернативной истории. Перед нами Российская империя в мире, где благодаря учёному-египтологу были расшифрованы древние иероглифы, а египетские боги старого мира явили себя в настоящем. Это полностью изменило мировоззрение людей, включая их (   Читать дальше...   )Жанр: Фэнтези, попаданцыИздательство: 1С-ПаблишингПродолжительность: 12:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E2BCA8E3FE253CB5847426743C96B70A06DA4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820209   (775) от 26.09.2025
-
-VA - Summer Sunset (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revro Jay - Ikaria 02:51
-02. Andrew Ross - Look Into My Eyes 03:39
-03. Kristina Pototskaya - Finding Balance 04:52
-04. N.E.O.N, Di Mora & Fe Cipriano - Groove Esxplosion (Radio Edit) 02:58(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8218F38EA6ECE0F0BEC5FD0C97468692CBD05D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820100   (774) от 26.09.2025
-
-Военная приемка. Протезирование. Часть 2 (21.09.2025) WEBRip [H.264/1080p]
+Главная дорога (20.09.2025) WEBRip [H.264/720p]
 
 >>Документалистика и Телепередачи
->>Военное дело
+>>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1785.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этом фильме будет много личных историй, где люди с помощью протезирования возвращаются к нормальной жизни. А главным героем фильма станет Герой Российской Федерации Максим Бахарев, офицер, потерявший в зоне СВО две руки и две ноги.Производство: Россия | «Красный Квадрат»Жанр: Документальный, техника, вооружениеРежиссер: Иван ЧигвинцевЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:38:28
+Таксистам грозит до 10 лет тюрьмы: где бомбилы работают по старым понятиям?
+ Алюминиевые диски и медная смазка: что это — защита от прикипания или убийственная гальваническая пара? Многие зрители жалуются на то, что после посещения шиномонтажа или сервиса их дорогие легкосплавные диски разъедает. В новом выпуске «Главной дороги» Андрей Федорцов и Денис Юченков выяснили, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C8911F6CA680C216934F1D4B2DA7E365216C7EE
+magnet:?xt=urn:btih:317A1209EBF9C4E6E0D2B48055C4BE222ED27FEB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,25 +138,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820060   (773) от 26.09.2025
+###  Публикация: 1819014   (1784) от 20.09.2025
 
-Журнал | Наша история №10 (76) (октябрь 2025) [PDF]
+Native American Music Consort - Trance Rhythms for Astral Travel (2025) [MP3|320 Kbps] <Native American, World, New Age>
 
->>Журналы
->>Другие журналы
+>>Other Styles
+>>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1784.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Тайны государства в журнале "Наша история". Необычная трактовка известных событий. Самые скандальные события прошлого. Журнал рассказывает об оригинальных версиях, казалось бы, хорошо известных событий мировой истории, делает попытки восполнить пробелы в биографиях великих людей, а также повествует об исторических загадках, которые пока не сумели разгадать (   Читать дальше...   )Жанр: ИсторияИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
+01. Pulse of Elsewhere [03:46]
+02. Between the Veil [03:22]
+03. Light Without Origin [03:18]
+04. Sliding Through Stillness [03:22](   Читать дальше...   )Жанр: Native American, World, New AgeПродолжительность: 00:51:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA10F2B1222CC181C7F5D69E0589E219309DB06F
+magnet:?xt=urn:btih:3F5995E82533FE0DCFE4560592D42AA003ED501C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,25 +167,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820140   (772) от 26.09.2025
+###  Публикация: 1819069   (1783) от 20.09.2025
 
-Александр Громов | Мир матриархата (Книга 2). Первый из могикан (2025) [MP3, Данила Максимов]
+Ravager - From Us With Hate (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1783.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Операция «Эгида» ни к чему не привела, вестей от Тима Гаева нет. Через 8 месяцев Земля будет уничтожена. Все силы брошены на подготовку к неминуемой катастрофе: основная задача человечества не отразить удар противника, а создать все необходимые условия для восстановления цивилизации после удара инопланетян. Но выдержит ли такой удар общество, построенное на эксплуатации (   Читать дальше...   )Жанр: фантастикаИздательство: ИДДКПродолжительность: 14:17:31
+01. Freaks Out Of Control
+02. Alone We Won't Survive
+03. Curse The Living, Hail The Dead
+04. Aggressive Music For Aggressive People(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1256660923D807FCEC124FAAC63AA2FCA8FDF5F8
+magnet:?xt=urn:btih:F73AB874D21E092E33ACF243ED2886940C678F55
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -264,216 +196,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820116   (770) от 26.09.2025
+###  Публикация: 1819036   (1782) от 20.09.2025
 
-Кстати (2025) WEBRip [H.264/1080p] (сезон 1, выпуск 81)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восемьдесят первый выпуск шоу «Кстати» с Азаматом Харламовым. Дорох сегодня был на грани международного скандала, оставим его пока ради хайпа. Гостями восемьдесят первого выпуска стали: добряки из «Лихих» – Юрий Быков, Полина Максимова и Владимир Гарцунов; амбассадор клубники со сливками и пива – Анастасия Павлюченкова; гости со всего мира – Denise & D-Lain, (   Читать дальше...   )Производство: Россия | VK ВидеоЖанр: Ток-шоу, комедия, музыкаРежиссер: Станислав ИльченкоУчастники: Юрий Быков, Полина Максимова и Владимир Гарцунов, Анастасия Павлюченкова, Яна Чурикова и участники «Интервидения»Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:18:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:575653D2B902CCB8571B6B6DA78A767D42642BCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820119   (769) от 26.09.2025
-
-Сборник - Pixflow - Acid Shapes [PNG, AI, SVG, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_769.jpg" />
-</div>
-
-
-###  Подробнее
-
-60 модных элементов Acid Shape для создания уникальных композиций или в качестве акцентов в ваших дизайнах! Эти элементы можно использовать на постерах, обложках альбомов, наклейках, логотипах, в уличной одежде и многом другом!Формат: PNG, AI, SVG, PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52B2C7FECC4FBCF41F6A9BBA50829CF86C8E1A3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820003   (768) от 26.09.2025
-
-VA - Anything and everything assorted part 2 (2025) [MP3|320 Kbps] <Electronic, Easy listening, Vocal, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - David Max - Before I Say I Love You
-02 - Dj Moralez X Armanistage - Autumn Sun
-03 - Julia Milows - I Don't Love You
-04 - Jambeats - You Forgot to Love Me(   Читать дальше...   )Жанр: Electronic, Easy listening, Vocal, OtherПродолжительность: 00:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C06425F1341206B3E6EB085C046C800D6BB9BDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819980   (767) от 26.09.2025
-
-VA - Musical kaleidoscope part 54 Assorted (2025) [MP3|320 Kbps] <Electronic, Easy listening, Instrumental, Sax>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Сергей Грищук - Золотая  Грусть
-02 - Anna Zueva - Расстояние
-03 - Korgstyle Life & Diazza - Myn Leafde
-04 - Anna Zueva - Хорошее Чувство(   Читать дальше...   )Жанр: Electronic, Easy listening, Instrumental, SaxПродолжительность: 00:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41183262525E76C4D467F254CFEC14DF2D001BA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820115   (766) от 26.09.2025
-
-Игорь Валериев | Ермак (Книга 10). Регент (2025) [MP3, Алексей Воскобойников]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русско-японская война закончилась капитуляцией Японии. Английские войска, вторгшиеся в Русский Туркестан, оказались отрезанными от Британской Индии восставшими афганцами, которые объявили новым эмиром Афганистана прорусски настроенного Исмаил-хана. В Турецкой Армении должны вот-вот восстать города Сасун, Олту, Сарыкамыш, Кагисман и Игдыр, что затруднит вступление (   Читать дальше...   )Жанр: Фантастика, приключения, попаданцыИздательство: Аудиокнига (АСТ)Продолжительность: 12:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9476C1974B32CCC6EFFF63E1358485A4A2A77901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820099   (765) от 26.09.2025
-
-Борис Конофальский | Приключения юного шиноби (Книга 1). Забавные, а порой и страшные приключения юного шиноби. Часть 1 (2025) [MP3, Ксения Фокина]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совсем юному, но хорошо подготовленному человеку, в одном неприятном мире, волею случая выпадает ответственное задание.Жанр: Фантастика, детектив, юморИздательство: ЛитРесПродолжительность: 11:43:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E8A86D595F0F5641D52E1E53F7183170F392DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820114   (764) от 26.09.2025
-
-Юрий Москаленко, Константин Беличенко | Контрабандист Сталина (Книги 1-7) (2023) [MP3, Евгений Бабинцев, Виталий Трегубов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ты нужен там, где ты сейчас. Происходит только то, что должно происходить. Все начинается вовремя. И заканчивается тоже.Жанр: Фантастика, приключения, попаданцыИздательство: ЛитРесПродолжительность: 26:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3025A24B1D882753CD9C0D29DD6AB3835BC86E93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820085   (763) от 26.09.2025
-
-Vildhjarta - Studio Albums (5 releases) (2009-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Deathcore, Djent>
+I Prevail - Violent Nature (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Metal, Metalcore>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1782.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Vildhjarta — шведская метал-группа из Худиксвалля, образованная в 2005 году. Группа играет в стиле джент, вдохновлённом Meshuggah, используя сильно пониженные гитары, минорные гармонические аккорды, резкие стаккато-риффы и наслоения реверберирующих гитар и атмосферных эффектов.2009 - Omnislash (EP)
-2011 - Masstaden
-2013 - Thousands of Evils (EP)
-2021 - Masstaden Under Vatten(   Читать дальше...   )Жанр: Progressive Metal, Deathcore, DjentПродолжительность: 03:58:12
+01. - Synthetic Soul (4:30)
+02. - NWO (2:41)
+03. - Pray (3:12)
+04. - Annihilate Me (3:22)(   Читать дальше...   )Жанр: Alternative Metal, MetalcoreПродолжительность: 00:32:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4E62E02E033361C36A90415F4E3A8220E249CE0
+magnet:?xt=urn:btih:733205A48AEFD9854A6299948C3721F9C7016A61
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -481,27 +225,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820064   (762) от 26.09.2025
+###  Публикация: 1819103   (1781) от 20.09.2025
 
-Юлия Гиппенрейтер, Алексей Рудаков | Развиваем эмоциональный интеллект. Детям о метафорах (2021) [MP3, Ксения Бржезовская]
+Novembers Doom - Major Arcana (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Death Metal, Doom Metal>
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1781.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эмоциональном развитие ребенка – необходимая часть воспитания.
-Одна из важнейших задач родителей – помочь детям научиться понимать свои эмоции, верно их выражать, делиться переживаниями, замечать и учитывать чувства других.
-В новой аудиокниге Ю.Б. Гиппенрейтер и А.Н. Рудакова собраны стихи русских классиков, которые приобщают слушателя к поэзии серебряного (   Читать дальше...   )Жанр: Воспитание детей, Детская психология, Советы родителямИздательство: АСТПродолжительность: 00:54:58
+01.June(1:58)
+02.Major Arcana(6:38)
+03.Ravenous(6:28)
+04.Mercy(5:56)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:56:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6F15F792BB2C12B80D645D6499FE4954F30E171
+magnet:?xt=urn:btih:BBBBE2F0B92D4EA68E24E4891DE0D738F990E631
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -509,28 +254,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820039   (761) от 26.09.2025
+###  Публикация: 1819047   (1780) от 20.09.2025
 
-VA - Armin van Buuren - A State Of Trance 1244 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Catsclaw - Perfect Death (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfect Death [00:03:26]
+02. Become The Blade [00:03:13]
+03. The Shield [00:03:08]
+04. Remember The Days [00:04:32](   Читать дальше...   )Жанр: Metalcore, ElectronicПродолжительность: 00:32:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:350A33ECD67171F79F52D490F39569908B5116D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819111   (1779) от 20.09.2025
+
+Isen - Zaklinani posledni zimy (2025) [FLAC|Lossless|WEB-DL|tracks] <Melidic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zaklínání poslední zimy [00:09:00]
+02. Klíč k noci [00:07:09]
+03. Skrze brány věčnosti a zapomnění [00:04:41]
+04. Obrození ve stínech [00:05:48](   Читать дальше...   )Жанр: Melidic Black MetalПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6F2374373D42A038573D5583DAE7FFC9A2D107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819034   (1778) от 20.09.2025
+
+King Princess - Girl Violence (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Girl Violence (2:16)
+02. - Jaime (2:23)
+03. - Origin (2:14)
+04. - I Feel Pretty (3:02)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578C538C0649B80FE26EC3D4D4C99C9248F8CC56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819102   (1777) от 20.09.2025
+
+Markus Schulz - Global DJ Broadcast World Tour: Luminosity at Beachclub Fuel (2025-09-18) [MP3|320 Kbps] <Trance, Techno, Melodic House>
 
 >>Electronic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1777.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ferry Corsten ft. HALIENE – Wherever You Are (Hel:sløwed Reprint)
-02. Arni – Drill
-03. JOA – No Games
-04. Eugenio Tokarev & Goontha – Out Of My Mind(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:38
+01. Dosem - Digital Futures
+02. Frenckel & Ton TB - Dark Cloud
+03. Woo York featuring Mark Tarmonea - Feeling (Korolova Remix)
+04. Rebūke - Glow(   Читать дальше...   )Жанр: Trance, Techno, Melodic HouseПродолжительность: 02:03:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F35BDB06B8BB52E6C6816A7D2B583C2ED35A523
+magnet:?xt=urn:btih:CE41CC7BC0DE58C09F44B261EFDD2272239A566F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -538,25 +370,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819998   (760) от 26.09.2025
+###  Публикация: 1819137   (1776) от 20.09.2025
 
-Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и Юки [2012, Movie] DVD9 480p raw+rus
+Robert Urban & The Evil Eyes - If I Had My Way (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Аниме разное
->>Аниме DVD
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1776.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хана, студентка университета, встречает молодого человека и сразу же влюбляется в него. Её чувства не ослабевают, даже когда она узнает, что он - не человек, а волк в человеческом обличье. Молодые люди начинают жить вместе и у них появляются дети. Дочь, родившуюся в снегопад, называют Юки - "Снежок";сына, который рождается в дождливый день, называют Амэ (   Читать дальше...   )Производство: Studio ChizuЖанр: повседневность, драмаЯзык озвучки: Японский и РусскийСубтитры: Русские VobSub(int) by Reanimedia (Полные и Надписи)Продолжительность: 117 мин.
+01.  Ain't Gonna Tell You (3:11)
+02.  Just for Myself (3:29)
+03.  At Your Mercy (3:01)
+04.  Love Your Recipe (4:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:585EDEE1170917830CBFDE34DE16BF030A5C9077
+magnet:?xt=urn:btih:90260B7D7FDCBD4690C90539ACE9751B9EA03458
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -564,27 +399,225 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820087   (759) от 26.09.2025
+###  Публикация: 1819076   (1775) от 20.09.2025
 
-Шрифты - Lift-Type - Hublot [OTF]
+Волгоград: соленый Эльтон, Мамаев курган, стейк из арбуза и подземный трамвай | «Поедем, поедим». Выпуск от 20.09.2025 WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди и «Поедем, поедим!» отправились в Волгоград. В городе-герое ведущий посетил Мамаев курган и увидел самую высокую скульптуру в Европе «Родина-мать зовёт!». А еще итальянец полакомился горчицей, хлебом из горчицы и даже горчичным пряником, ведь где еще, как не на родине русской горчицы это делать! Федерико опробовал на себе лечебную грязь Эльтона, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8034A541CBC319B0D881BEECA5D7DE6482C625A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819049   (1774) от 20.09.2025
+
+Cardiacs - LSD (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Men In Bed (3:39)
+02. - The May (2:57)
+03. - Gen (3:44)
+04. - Woodeneye (3:20)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:20:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92CB19BF61CCA594CF6BC0FA27745FED4D33CFAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819141   (1773) от 20.09.2025
+
+Shirley Johnson - Selfish Kind of Gal (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I'm Going To Find Me A Lover (3:53)
+02.  Selfish Kind Of Gal (3:47)
+03.  You Should't Have Been There (5:20)
+04.  Just Like That (4:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF9DAE3D1F256B4E7E1897C1C40B679CE92ECBC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819121   (1772) от 20.09.2025
+
+Отказ тормозов после замены — Минтранс (20.09.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1772.jpg" />
+</div>
+
+
+###  Подробнее
+
+🔸Отказ тормозов после замены в автосервисе. Кого обвинят в аварии и кто будет платить за ремонт?
+🔸Volkswagen Jetta 2008: подержанный «немецкий старичок». Ест ли он масло? И почему в салоне всегда жарко?
+🔸Лишили прав за рубежом! Останется ли возможность сесть за руль дома?
+🔸Лайфхак: как быстро очистить тормозные диски от ржавого налёта (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA0BAEBDBD8830714333F7AB2770A44D6E03945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819146   (1771) от 20.09.2025
+
+Special Hot Sauce - Go Get Gone (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Go Get Gone (3:13)
+02.  Little Pretty Baby (2:32)
+03.  Wanna Keep You (4:07)
+04.  I Like Your Style (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48C85FD4FC388432A84A529C7D3C054964D6219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819118   (1770) от 20.09.2025
+
+Esoterica - Ether Metal (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, progressive hard-rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Ether [00:05:18]
+02. I Am Just One [00:04:41]
+03. Alive [00:05:04]
+04. Firefly [00:03:57](   Читать дальше...   )Жанр: Alternative Metal, progressive hard-rockПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F72453BB84781DA7CDE9D35FA37A58A28896954E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819136   (1769) от 20.09.2025
+
+Piper and The Hard Times - Good Company (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Good Company (3:57)
+02.  Now I'm Lovin' You (4:13)
+03.  Tear It Down (5:15)
+04.  Cowboy Gucci (3:52)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2FC19E658570FF4F6737C9412BD722FC2AC23CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819177   (1768) от 20.09.2025
+
+Шрифты - MyFonts - OV Cotin Serif [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1768.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шрифт Hublot изначально был разработан для визуального образа La Fenêtre, художественного центра в Монпелье. Он представляет собой игровую линейку шрифтов без засечек и моноширинного формата.
-
-Шрифт, созданный Сандрин Нуге, представлен в 11 стилях, 5 вариантах насыщенности и 5 вариантах курсива, а также в демонстрационной версии с гораздо более радикальными (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Отсутствует
+OV Cotin — вневременной шрифт с засечками, имеющий классическую основу и нотки современности. Украсьте свои проекты с помощью OV Cotin и позвольте его универсальному очарованию проявиться в любой версии. Откройте для себя сочетание традиций и инноваций с этой обновлённой версией!Формат: OTF, TTFПоддержка кириллицы: Отсутствует
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E059D2916E51438CC93B5BB06811127381231CBA
+magnet:?xt=urn:btih:9CC9A3D59728E0DF0D765BFB73DDF575BA70AB13
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -592,25 +625,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820044   (758) от 26.09.2025
+###  Публикация: 1819072   (1767) от 20.09.2025
 
-Нина Лорен | Чащоба (2025) [MP3, Мила Манышева]
+Mike Zito & Albert Castiglia - Help Yourself (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1767.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сразу после выпускного бала Стефани сбежала из захолустного городка Марли в Монреаль, надеясь навсегда забыть пьющую мать Лору, нищую жизнь в убогом домишке, предателя-бойфренда и нелепые байки о ведьме, которая якобы обитает в окрестных лесах. Но спустя пятнадцать лет, потеряв работу журналистки, Стефани вынуждена вернуться в родную глушь. Она надеется оживить свой (   Читать дальше...   )Жанр: ДетективИздательство: АзбукаПродолжительность: 8:59:06
+01. Help Yourself
+02. Can’t Be A Prophet
+03. Alive
+04. Soulard Serenade(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E25A0AD5E77B4D2501EABAD8E18ABC61BCF8330
+magnet:?xt=urn:btih:4CD128E59560989EBC81A67832FB690C8E4B5E03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -618,27 +654,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820198   (757) от 26.09.2025
+###  Публикация: 531881   (1766) от 21.09.2025
 
-Шрифты - Creative Market - ZT Yaglo - 12775413 [OTF, TTF, WOFF, WOFF2]
+Призраки Гойи / Goya's Ghosts (2006)  Blu-ray [H.264/1080p]
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1766.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ZT Yaglo — динамичный и выразительный акцидентный шрифт. С первого взгляда вы, возможно, заметите, что он напоминает удочку, с плавным ритмичным изгибом, который становится более резким на концах. Шрифт ZT Yaglo обрамлён рубленым шрифтом с засечками, что создаёт выразительный, геометричный вид во всех начертаниях.
-
-ZT Yaglo сочетает в себе простой гротескный стиль, (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
+Инесс, музу знаменитого портретиста Франциско Гойи, инквизиция бросает в темницу. В отчаянии живописец просит о помощи своего друга, священника Лоренцо. Их взаимоотношения подвергаются серьезному испытанию, необратимо меняя судьбы всех троихЖанр: Драма, БиографияРежиссер: Милош ФорманАктеры: Натали Портман, Хавьер Бардем, Стеллан Скарсгард, Рэнди Куэйд, Бланка Портильо, Мишель Лонсдаль, Хосе Луис Гомес, Мабель Ривера, Саймон Андре, Скотт Клевердон, Кайетано Мартинес де Ирухо, Крэйг Стивенсон, Фернандо Тьельве, Унакс УгальдеПеревод: Дублированный + Авторский одноголосый закадровый (А. Гаврилов)Субтитры: РусскиеПродолжительность: 01:53:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:169013FBCE9D6ADBD77A549E2DB17AAC375227E2
+magnet:?xt=urn:btih:2A6FFD181103E2F61EE79F0DB4F0760A9A83F55C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -646,25 +680,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820045   (756) от 26.09.2025
+###  Публикация: 1763361   (1765) от 21.09.2025
 
-Дмитрий Болдогоев, Анна Глотова | Развитие потенциала сотрудников. Профессиональные компетенции, лидерство, коммуникации (2017) [MP3, Казначеева Наталья]
+Rogue Waters (2024) [Ru/Multi] (1.0.7.3265) Repack Let'sРlay
 
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
+>>Win Игры
+>>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1765.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Для эффективного роста и реализации новой стратегии любой компании необходимо развитие компетенций сотрудников. Это особенно важно по отношению к сотрудникам высшего звена, так как найти специалиста необходимого уровня со стороны на рынке труда зачастую невозможно. Авторы книги рассказывают о специфике выращивания лидеров внутри компании, об управлении потенциалом (   Читать дальше...   )Жанр: Менеджмент и кадры, Управление людьмиИздательство: ЭВЕРБУКПродолжительность: 08:57:48
+Rogue Waters - это тактическая пошаговая игра в духе «рогалика», действие которой происходит в пиратском мире, стонущем под бременем страшного проклятия. Собери шайку из самых отъявленных мерзавцев в округе и преврати их в кровожадных пиратов. Подружись с легендарными тварями из морских баек и призывай их на помощь в бою.Прокладывай себе путь сквозь изменчивый игровой (   Читать дальше...   )Тип издания: RepackРазработчик: Ice Code GamesЖанр: Экшены, Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAB85D95447FFB32D8620129672219316A0076E0
+magnet:?xt=urn:btih:551600A88C994AEF24CCF5F3998E981BDABACA41
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -672,25 +706,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820110   (755) от 26.09.2025
+###  Публикация: 1798176   (1764) от 21.09.2025
 
-Шрифты - Creative Market - MIRALEO - Elegant Modern Sans Serif - 291517242 [OTF, TTF]
+S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2025) [Ru/Multi] (1.10.0.26261) Repack Decepticon [Enhanced Edition]
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Win Игры
+>>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1764.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представляем MIRALEO — изысканный шрифт без засечек, созданный для брендов, творческих людей и дизайнеров, стремящихся к ясности и индивидуальности. Благодаря высокому, минималистичному стилю и тонким изгибам, MIRALEO воплощает элегантность, изысканность и продуманную сдержанность — идеально подходит для современного брендинга, редакционных макетов, роскошной упаковки (   Читать дальше...   )Формат: OTF, TTFПоддержка кириллицы: Отсутствует
+Вернись туда, откуда всё началось. Трилогия S.T.A.L.K.E.R., одна из самых знаковых и революционных серий шутеров от первого лица, возвращается - теперь в обновлённой и улучшенной версии для нового поколения. Удачной охоты, Сталкер!Тип издания: RepackРазработчик: GSC Game WorldЖанр: Экшены, Ролевые игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:731CB0FE9E25C75C749858727A155A6B538E1B1B
+magnet:?xt=urn:btih:5048D5B623FCE2E598BFBAA350739C3D95A0756E
 ```
 
 https://mybot314.ru/tekegram_catalog/

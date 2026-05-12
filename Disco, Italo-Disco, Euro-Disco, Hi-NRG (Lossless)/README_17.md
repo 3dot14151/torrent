@@ -1,3 +1,32 @@
+###  Публикация: 945600   (431247) от 11.10.2015
+
+Savage - Only You (30th Anniversary Remix) (2014) [FLAC|image+.cue]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only You (Remix) 8:57
+02. Only You (Slow Version) 5:04
+03. Only You (Instrumental) 6:41
+04. Save Me (Another Remix) 6:09(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:33:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40FC93CC6883E1DDB3955D247760809352FC90F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411728   (422835) от 27.09.2020
 
 VA - Best of New Generation Maxi Disco Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco, Hi-NRG, Nu-Disco>
@@ -732,35 +761,6 @@ Giorgio And Chris - Love’s In You, Love’s In Me (1978) Remaster, 2010, Gold 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:560C4F39E808CCDBB93D7CFCF27D072A951CB1C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416159   (369541) от 15.10.2020
-
-VA - Italo Disco - The Lost Legends Vol. 23 (2018) [FLAC|Lossless|tracks + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Boys - Fantastic World (4:41)
-02. Business - Moon Light Field (3:41)
-03. Giusy Dej - Follow Me (3:54)
-04. Ekstasy - I Need Sincerity (5:06)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58F507C05FAC4883040F38495026CAB173C9FE00
 ```
 
 https://mybot314.ru/tekegram_catalog/

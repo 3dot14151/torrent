@@ -1,3 +1,57 @@
+###  Публикация: 953926   (343825) от 06.11.2015
+
+Проекты - VideoHive - Folding Photos Slideshow - 10113737 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания фото-слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB9CC923B19F7D98CBBED501752923DBA311B179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953956   (343813) от 06.11.2015
+
+Проекты - VideoHive - World Map Paintings Pack - 12070408 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект, содержащий анимированные флаги, названия и географические очертания стран.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A7FC020700E894EEAC818C12A5D45849E45BB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330014   (343255) от 09.10.2019
 
 VideoHive - Bring the Color (4K Ink Slideshow) - 23325280 [AEP]
@@ -630,59 +684,6 @@ Motion Graphics Displays And Particles Bundle Pack - большой пакет �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C378A30DF95ACDD851E0E1096868B286ACEA47BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 839875   (339537) от 10.11.2014
-
-VideoHive - Top Of The Town - 41898 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Top Of The Town проект для создания трейлера к фильмуФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB0F4FB93B26C75BE7897FB1A946DE57557EC647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954767   (339474) от 08.11.2015
-
-Проекты - VideoHive - Paper Planes [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для эффектного представления вашего логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F22B5D81ADC7D91F050F393E8AF30C5D41A2980
 ```
 
 https://mybot314.ru/tekegram_catalog/

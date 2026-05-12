@@ -1,3 +1,55 @@
+###  Публикация: 1323753   (433411) от 05.09.2019
+
+VideoHive - PhotoRealistic Galaxy Titles - 24473061 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотореалистичный шаблон АЕ для создания вступительных титров... Дерзайте!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C65AD11A7D88EE3EE1CAF56BA66488B781CCD62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323733   (433406) от 05.09.2019
+
+VideoHive - Documentary Historical Slideshow - 22102332 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это документальное историческое слайд-шоу, сделано для создания действительно впечатляющих ретро-видеороликов. Вы можете использовать его для телешоу, документальных фильмов, исторических шоу, тематических презентаций. Настройка проекта занимает очень мало времени, а результат превосходит все ваши ожидания.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:537DA5095BCFAEA657A133BED6BB479E9C65A46B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249604   (432803) от 24.09.2018
 
 Проекты - Motion Array - Memories Photo Gallery - 113220 [AEP]
@@ -621,58 +673,6 @@ VideoHive - Personal Memories - Image/video Presentation - 3286184 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96747C5ED09CA373F19A339185C49B72736E6323
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064135   (429864) от 18.10.2016
-
-Проекты - VideoHive - Coherence | Opening Titles - 18080042 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания титров или слайд-шоу. Вы можете легко изменить цвет, текст, кадры и логотип всего за несколько кликов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98008758F3E935395F2150FB98A2584289C7C694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064035   (429784) от 18.10.2016
-
-Проекты - VideoHive - Nature Logo Revealer - 8080503 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания демонстрации логотипа. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD919567AC5DEBE46F6F8AFCCDDBE44380A0983
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1082252   (279095) от 12.12.2016
+
+VA - Christmas Lights (Sound of Snow) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taste Of Dream & Marco Bianchi - En Camino 4:20
+02. Salt Sea - Connectivity 4:39
+03. Taste Of Dream & Carly Harvey feat. Marco Bianchi - I'm Not in Love 4:57
+04. Mokas - Venus 5:10(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78728D9F33DB6297800E7E8058D864F564484FF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 273213   (276918) от 20.12.2010
 
 VA - The lounge Legends Ballroom Collection (2010) [MP3|320 kbps]<Instrumental>
@@ -707,32 +736,6 @@ VA - Инструментальная музыка (2012) vol. № 42 [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3772E7E2DF9F1ADE29CBDCFEEDA2E84B5259AF00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497453   (253445) от 16.05.2012
-
-VA - Инструментальная музыка (2012) vol. № 43 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 02:10:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:757E3998B0CA4C5ADF51E6EC47B9F7AB0E4AEB77
 ```
 
 https://mybot314.ru/tekegram_catalog/

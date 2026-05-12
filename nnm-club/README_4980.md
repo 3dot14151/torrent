@@ -1,23 +1,25 @@
-###  Публикация: 1353874   (870444) от 11.04.2020
+###  Публикация: 997854   (871753) от 18.03.2016
 
-Ольга Кобякова | Здоровье без фанатизма. 36 часов в сутках (2019) [PDF, EPUB]
+VA - Русский Музыкальный Фонд (2016) [MP3|320 кб/с] <поп, шансон, рок>
 
->>Научная и техническая литература
->>Здоровье и медицина
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чем книга «Здоровье без фанатизма» отличается от сотен, да и, наверное, тысяч других книг про ЗОЖ, правильное питание, необходимость физической нагрузки?
-Автор – профессор, доктор медицинских наук, ректор Сибирского государственного медицинского университета – Ольга Кобякова не дает бессмысленных советов про то, что «нервничать не надо», «алкоголь – это яд», «на (   Читать дальше...   )Жанр: Медицина и здоровьеФормат: PDF, EPUB
+001. Алла Пугачёва - Тянет сердце руки
+002. Катерина Голицына - Что случилось с солнцем
+003. Пламя - Не повторяется такое никогда
+004. Сантьяга - Какая есть(   Читать дальше...   )Жанр: поп, шансон, рокПродолжительность: 09:17:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C44956CBDCC12E2CBBA0BF5F74C76DFD6CD92B0A
+magnet:?xt=urn:btih:A73DF2FEE98BB64C34FA57604DE2C919D6F49E91
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374779   (870443) от 11.04.2020
+###  Публикация: 997635   (871752) от 18.03.2016
 
-Паромщица (2020) WEBRip (сезон 1, серии 1-16 из 16)
+Romantic Collection - HARP (2002) [FLAC|Lossless|image + .cue] <Instrumental, vocal>
 
->>Отечественные сериалы
->>нет
+>>Other Styles
+>>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871752.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Семья Титовых – Надя, Лёва и их сын Костя – переезжает из Москвы в свой родной городок Излучинск, чтобы начать новую жизнь. Однако радужным планам не суждено было сбыться. Титовы сразу оказываются в самой гуще событий маленького городка. Ночью на пароме убит паромщик. А в его убийстве обвиняют… Надю.Производство: Россия / ООО "Кинокомпания Гамма"Жанр: мелодрамаРежиссер: Максим ДемченкоАктеры: Глафира Тарханова, Александр Ратников, Вадим Андреев, Андрей Фролов, Ирина Чериченко, Андрей Барило, Владимир Стержаков, Александр Пашутин, Елена Дудина, Раиса Рязанова и др.Продолжительность: ~00:52:00 серия
+01. Erotica (05:23)
+02. Dee (03:49)
+03. Snowcaps (04:12)
+04. Peligroso Amor (03:44)(   Читать дальше...   )Жанр: Instrumental, vocalПродолжительность: 01:15:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B05E3F2DBBB78F883DB28DD862C27D0382E2319
+magnet:?xt=urn:btih:E6F27DEE66C8E4A7029B03696B6401247E515E4D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,25 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374703   (870442) от 11.04.2020
+###  Публикация: 188271   (871709) от 31.03.2010
 
-Эмма. / Emma. (2020) WEB-DLRip
+Падший / Fallen (2007) DVDRip
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871709.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эмма Вудхаус умирает от скуки в сонном маленьком городке. Ее главное развлечение — устраивать романтические отношения своих соседей, неважно, что ничего хорошего из этого обычно не выходит. Заигравшись чужими судьбами, не пропустит ли она свою настоящую любовь?Производство: Великобритания / Working Title Films, Blueprint Pictures, Perfect World PicturesЖанр: Мелодрама, комедияРежиссер: Отем де УайлдАктеры: Аня Тейлор-Джой, Джош О`Коннор, Джонни Флинн, Джемма Уилан, Миа Гот, Мира МакФадьен, Билл Найи, Каллум Тернер, Миранда Харт, Руперт Грейвз, Эмбер АндерсонПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:04:45
+Жанр: мультфильм, короткометражка, семейный, 3D анимацияРежиссер: Себастьян НозонПерсонажи: МетеорПеревод: ОригинальныйПродолжительность: 00:03:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:193AA3B00F36CCFFEEB5B5555B704F6731393DDD
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,28 +82,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374723   (870441) от 11.04.2020
+###  Публикация: 89267   (871695) от 31.03.2010
 
-VA - Beatport Electronic: Sound Pack #45 (2020) [MP3|320 Kbps] <Synthwave>
+Полицейский / Un flic (1972) DVDRip
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: триллер, детективРежиссер: Жан-Пьер МельвильПродолжительность: 01:39:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106622   (871678) от 20.02.2017
+
+VA - City Yoga Moments: Best of Buddha Chant. Relaxation Lounge Moments (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871678.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Carloh - Latino
-002. Jay Srno - Maxima Bass
-003. La Vampires Does Cologne - Howukiss
-004. Radak - Perceptions Of Reality(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 10:03:10
+01. Khale Grand - Waves of Chantra - Soulfull Meaning Mix
+02. Romantic Warriors - Yoga Del Mar - Deluxe Bar Relax Mix
+03. Frank Grimes - Cosmos Shaper - Kosmonaut for Free Mix
+04. Sun & Sadness - Secret of Time - City Yoga Remix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:01:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E002A39653674919058A56BCA837947D3CCF0910
+magnet:?xt=urn:btih:36D7E0156888B30901E5025D5A3F693375C47D9C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -106,25 +137,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374056   (870440) от 11.04.2020
+###  Публикация: 1106552   (871677) от 20.02.2017
 
-Паромщица (2020) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-16 из 16)
+Michael Linghton - Soul Appeal (2014) [MP3|192 Kbps] <Jazz>
 
->>Отечественные сериалы
->>нет
+>>Jazz, Blues, Soul
+>>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871677.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Семья Титовых – Надя, Лёва и их сын Костя – переезжает из Москвы в свой родной городок Излучинск, чтобы начать новую жизнь. Однако радужным планам не суждено было сбыться. Титовы сразу оказываются в самой гуще событий маленького городка. Ночью на пароме убит паромщик. А в его убийстве обвиняют… Надю.Производство: Россия / Кинокомпания ГаммаЖанр: мелодрамаРежиссер: Максим ДемченкоАктеры: Глафира Тарханова, Александр Ратников, Вадим Андреев, Андрей Фролов, Ирина Чериченко, Андрей Барило, Владимир Стержаков, Александр Пашутин, Елена Дудина, Раиса Рязанова и др.Продолжительность: ~00:50:00 серия
+01. Soul Appeal
+02. Taking Off
+03. Uptown Groove
+04. Gonna Love You Tonite (Feat. Kenny Lattimore)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CBC8C2530E242962C799515C8F2645105B138A09
+magnet:?xt=urn:btih:9D9A9B33779E81A4F16B76889A38C2B602BBF679
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -132,27 +166,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343747   (870439) от 11.04.2020
+###  Публикация: 1106668   (871676) от 20.02.2017
 
-Брайан Солис | Жизнь на 100%. Система максимальной самореализации (2020) [PDF, EPUB]
+Matt McCourt's Psychedelic Metal Blues Experience - The Sun Always Shines for Me (2017) [FLAC|Lossless|image + .cue] <Blues-Rock, Electric Blues>
 
->>Разное (категория книг)
->>Популярная психология и саморазвитие
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871676.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цифровая эпоха перенасыщает нас информацией. С одной стороны, мы расширяем границы своего мира, с другой – разучились концентрироваться, а неудовлетворенность и упадок сил, неврозы и вечный недосып стали нашими постоянными спутниками.
-Мы можем сформулировать, что такое «успех» и «счастье», но никак не можем их достичь: нас слишком многое отвлекает.
-Эта книга познакомит (   Читать дальше...   )Жанр: Психология, саморазвитие, личностный ростФормат: PDF, EPUB
+01. Summer Cruise (2:26)
+02. I'm Comin After You (3:14)
+03. The Sun Always Shines for Me (3:12)
+04. Don't Forget About Me (3:33)(   Читать дальше...   )Жанр: Blues-Rock, Electric BluesПродолжительность: 00:34:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:403137176A385CB5BE5C93CE920265C7AF8BEE3D
+magnet:?xt=urn:btih:9CAFC1C8176A1342B056AF5489F224264F122A4A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -160,25 +195,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369063   (870438) от 11.04.2020
+###  Публикация: 1106144   (871675) от 20.02.2017
 
-Супермозг / Le cerveau (1969) BDRip [H.264/720p]
+Angie Wells & Raphael Lemonnier - Love And Mischief (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871675.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Заключенному, за воровство, Артуру Леспинасье осталось четыре дня до освобождения, но с помощью друга Анатоля совершает побег. Он предлагает гениальный план – ограбить вагон поезда Париж-Брюсель, перевозящий деньги, предназначенные НАТО. Не знает Артур того, что вместе с приятелем Анатолем они перешли дорогу легендарному британскому грабителю по прозвищу "Супермозг", (   Читать дальше...   )Производство: Франция, Италия / Gaumont International, De LaurentiisЖанр: Комедия, криминалРежиссер: Жерар УриАктеры: Жан-Поль Бельмондо, Бурвиль, Дэвид Нивен, Эли Уоллах, Сильвия Монти, Раймон Жером, Жак Балютен, Анри Атталь, Ив Барсак, Жак СиронПеревод: Двуголосый профессиональныйСубтитры: Русские, французские, английскиеПродолжительность: 01:54:34
+01. Peel Me A Grape
+02. The Moon Is Swinging On A Line
+03. She Ain't The Kinda' Girl
+04. You're My Thrill(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0EF6516A920B7D6024E4E8A18E62581713965D92
+magnet:?xt=urn:btih:FE713D80C7F28F6C918DE758776512447673E380
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -186,25 +224,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374893   (870437) от 11.04.2020
+###  Публикация: 1106782   (871674) от 20.02.2017
 
-Harvard Business Review (HBR) | Психология лидерства (2020) [EPUB]
+Joyce Cooling - Playing It Cool (1997) Heads Up [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
 
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871674.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Руководитель любой организации сталкивается с необходимостью быстро адаптироваться к изменениям рынка и демонстрировать высокую и стабильную производительность в условиях постоянно растущих нагрузок. Зачастую это связано с работой под давлением, нервными срывами, профессиональным выгоранием и ухудшением взаимоотношений в коллективе. В этом сборнике отобраны самые (   Читать дальше...   )Жанр: Менеджмент, Управление бизнесом, Управление персоналомФормат: EPUB
+01.Imagine That [04:11]
+ 02.Savannah [05:03]
+ 03.After Hours [03:54]
+ 04.Another Time [05:02](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:51:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0A7337B2A5E2C7DE00617E2B9DB3C0C9956C01E
+magnet:?xt=urn:btih:6416BE46CDEDD3A4101E6494D6872489E3539CB5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,25 +253,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374949   (870436) от 11.04.2020
+###  Публикация: 1106590   (871673) от 20.02.2017
 
-Женский Stand Up (11.04.2020) WEB-DL [H.264/1080p-LQ] (выпуск) Дайджест
+Spock's Beard - Live at High Voltage Festival (2011) [FLAC|Lossless|image + .cue] <Symphonic Prog>
 
->>След.
->>Архив Юмора
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871673.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если ты думаешь, что женщины не ругаются, не жалуются на детей, не шутят о сексе и еще множество всяких «не», то это шоу докажет обратное! Для героинь «Женского стендапа» нет запретных тем. Они честно говорят о том, что их не устраивает в отношениях, высмеивают стереотипы семейной жизни и откровенно заявляют, что быть хорошей матерью вообще-то очень сложно. Хочешь (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоу, юморСубтитры: ОтсутствуютПродолжительность: 00:48:09
+01. On A Perfect Day (8:33)
+02. The Doorway (10:38)
+03. The Emperor`s Clothes (7:15)
+04. The Light (16:32)(   Читать дальше...   )Жанр: Symphonic ProgПродолжительность: 00:49:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4416E542877BD4970B2C7C7F9B4DA40BE51E3B5A
+magnet:?xt=urn:btih:5209316F920556F66BAC3454C8E020C5DEF308B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,28 +282,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374495   (870435) от 11.04.2020
+###  Публикация: 1106679   (871672) от 20.02.2017
 
-Эротика Звезда - Сексуальная джазовая ночь -  Чилл лаунж музыка для сексуальной и интимной атмосферы (2019) [MP3|320 Kbps] <Ambient, Easy Listening>
+VA - Chill Out Nation Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871672.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Сексуальная джазовая ночь
-02. Чилл лаунж музыка
-03. Для сексуальной и интимной атмосферы
-04. Новолуние(   Читать дальше...   )Жанр: Ambient, Easy ListeningПродолжительность: 01:07:39
+01.  D-Chill - Are You Still (feat. Paola Cordoni) (Original Mix)  5:10
+02.  L.O.B. - Godness Of Love (Original Mix)  4:12
+03.  Alex Belmonte - Undersea (Chill & Lounge Mix)  4:53
+04.  Cellar 55 - Funknako (Original Mix)  5:24(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29D677D5D6E9C6F15B282CA7CE857BAC2B17BEBF
+magnet:?xt=urn:btih:1A3FD46F0865ACEC5646C90A62E7C65DDEA49BB6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -267,25 +311,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374564   (870434) от 11.04.2020
+###  Публикация: 1106816   (871671) от 20.02.2017
 
-OEM Info Updater 9.1 Portable [Ru/En]
+Duke Ellington - The Real... Duke Ellington (2012) 3CD [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. It Don't Mean a Thing If It Ain't Got That Swing
+2. Lazy Rhapsody
+3. Blue Tune(   Читать дальше...   )Жанр: JazzПродолжительность: 03:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:783298A0B17F2549E71A5FBF6445A46661DECB12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106753   (871670) от 20.02.2017
+
+Soulver 2.6.1 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871670.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа для изменения OEM информации. Позволяет изменить значения: Производитель, Модель, Часы поддержки, Телефон, Сайт, Логотип, Владелец, Организация, Имя компьютера, Описание компьютера и Название процессора. Просто выберите вашу страну и язык интерфейса. Для каждой страны предусмотрена отдельная OEM информация с местными телефонными номерами и адресами сайтов (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Soulver предназначен для «быстрой математики» — подсчета чего угодно, для чего экселя много, а калькулятора мало или неудобно.
+Для пользователей интересным в Soulver может оказаться то, что в самой программе можно задавать числа не только используя цифры, но и их словесные обозначения, Soulver прекрасно понимает оба варианта записи даже вперемешку. Например, можно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19 февраля 2017Разработчик: AcqualiaПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Испанский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:70B4EDAEF12BB04FCE0D362947A4C34577E7B59A
+magnet:?xt=urn:btih:BA6D1DC99EEA8B867046790206AC9B91F39CC8A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -293,25 +367,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374771   (870433) от 11.04.2020
+###  Публикация: 1106860   (871669) от 20.02.2017
 
-Tipard PDF to Word Converter 3.3.22 RePack (& Portable) by TryRooM [Multi/Ru]
+VA - Cozy Winter Jazz Vol.1 (2017) [MP3|320 Kbps] <Jazz, Lounge>
 
->>Утилиты, Офис, Интернет
->>Офисное ПО
+>>Jazz, Blues, Soul
+>>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871669.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Tipard PDF to Word Converter - это простой и быстрый способ конвертировать PDF документы в Word и RTF форматы с продвинутой технологией OCR. Программа сохраняет первоначальный текст, изображения, формы и расположения в документах, обладает простым, интуитивно понятным интерфейсом и большой скоростью конвертации. Так-же программа помогает повторно использовать содержание (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. The Platin Sound - No Man's Soil
+02. Cosimo Maria Palopoli - The Joke
+03. Psaltron - Indian-Spring-Blues
+04. Anna Mond - Inbetween(   Читать дальше...   )Жанр: Jazz, LoungeПродолжительность: 01:15:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBE2472942A9B7522DC13AAB9B77DF5022A3E83D
+magnet:?xt=urn:btih:ED3D552F8DF148D3A5449FCFA422EF48AD6D4C08
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -319,25 +396,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374757   (870432) от 11.04.2020
+###  Публикация: 1106822   (871668) от 20.02.2017
 
-Бездомные куклы / Stray Dolls (2019) WEB-DLRip [H.264/1080p-LQ] [MVO, AD]
+VA - Cozy Winter Jazz Vol.2 (2017) [MP3|320 Kbps] <Jazz, Lounge>
 
->>Остальное
->>Фильмы с Рекламой
+>>Jazz, Blues, Soul
+>>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871668.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Риз приезжает в Америку из Индии в поисках лучшей жизни. Но все, что ей удается найти — это работа в небольшом мотеле Tides Plaza. Здесь Риз знакомится с другой работницей по имени Даллас, которая подрабатывает продажей наркотиков и крутит роман с сыном хозяйки мотеля и наркоманом Джимми. Попав под влияние Даллас, Риз решается на кражу, и запускает цепь жестоких (   Читать дальше...   )Производство: США,  Brin de Folie, Om FilmsЖанр: Триллер, криминалРежиссер: Сонейюхи СинхаАктеры: Оливия ДеДжонг, Синтия Никсон, Роберт Арамайо, Гитанджали Тхапа, Самрат Чакрабарти, Розмари Ховард, Шило Веррико, Yvette Lashawn Williams, Алисса Мария Апп, Альберто БониллаПеревод: Двуголосый любительский (LakeFilms) ненормативная лексикаСубтитры: отсутствуютПродолжительность: 01:38:23Реклама: Присутствуют видео, аудио вставки + баннер
+01. Eckard Koltermann - Tango der Nacht
+02. Gerd F. Schumann - You Smell so Good
+03. Maik Mondial - Kletz Fetz
+04. Slinky & P'tit Loup - Danser le swing(   Читать дальше...   )Жанр: Jazz, LoungeПродолжительность: 01:29:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53C80EFD3EE32F103C89FECE16E2C12DB9749BCB
+magnet:?xt=urn:btih:2EEB52E25CA156CBF76245C021EBB831E25F9EAB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,25 +425,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 285269   (870431) от 11.04.2020
+###  Публикация: 1106663   (871667) от 20.02.2017
 
-Вячеслав Шалыгин | Тринадцатый сектор. (S.T.A.L.K.E.R.) [2011] [MP3]
+VA - Iboga Records - Set:26 (2017) [MP3|320 Kbps] <Psy-Trance, Psychedelic>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871667.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вторая Вспышка породила в Зоне еще более страшных монстров, чем предыдущие катаклизмы. И среди них Хозяина - Главного Врага, обладающего могущественным артефактом, открывающим обитателям Зоны проход во внешний мир.Вольный ходок, в прошлом наемник Андрей Лунев, которому совсем недавно удалось спасти все живое в Зоне, еще не знал, что очередное задание генерала Остапенко (   Читать дальше...   )Жанр: ФантастикаЯзык озвучки: РусскийПродолжительность: 13:43:04
+01.  Ace Ventura - Rebirth (Gaudium Remix)  8:24
+02.  Neodyne - Believe  7:42
+03.  Ticon - Mirage  7:37
+04.  Elek3ctii - Sea Of Tranquility  8:38(   Читать дальше...   )Жанр: Psy-Trance, PsychedelicПродолжительность: 02:46:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD21D752F77C7C2898CE02C5708A4787713BC89C
+magnet:?xt=urn:btih:6EDBDE9D4CB612BBE764D2D5275AF63CA7023BD2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -371,28 +454,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374806   (870430) от 11.04.2020
+###  Публикация: 1106291   (871666) от 20.02.2017
 
-Chris Rea - 100% Chris Rea (2020) [MP3|320 Kbps] <Blues, Blues Rock>
+Астрономы обнаружили уникальный пульсар - бинарную систему, состоящую из двух карликовых звезд
 
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
+>>Поговорим
+>>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_871666.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Loving You Again
-02. Ace of Hearts
-03. Gone Fishing
-04. Winter Song(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:57:24
+Ученые-астрономы их Уорикского университета (University of Warwick), Великобритания, обнаружили, что звездная система AR Scorpii (AR Sco), находящаяся на удалении 380 световых лет от Земли и открытая в 1060-х годах, на самом деле представляет собой весьма экзотическую бинарную систему, систему, состоящую из двух звезд. Ранее считалось, что звезда AR Sco является (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F749987DFED59723F53AF99C36F30C1E7CEA4DC
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -400,28 +480,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057669   (870429) от 11.04.2020
+###  Публикация: 1106711   (871665) от 20.02.2017
 
-Cell - Discography 7 Releases (2005-2020) Ultimae Records [FLAC|Lossless|tracks+.cue, tracks] <Psybient, Downtempo, Psychill, Ambient, Progressive Trance>
+Журнал | Добрые советы. Цветы в доме №3 (март 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871665.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Добрые советы. Цветы в доме» — ежемесячный интерактивный журнал для всех, кто увлекается комнатными растениями, любит ухаживать за ними и создавать в своем доме оазисы живой природы. Основная часть журнала — письма читателей, в которых они делятся своим опытом по выращиванию цветов, защите их от болезней и вредителей, обустройству балкона, террасы и зимнего сада, (   Читать дальше...   )Жанр: ЦветоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DD0086243C6017F7C046A7F910424F1094844DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106655   (871664) от 20.02.2017
+
+VA - Vocal House Maniacs Vol.1 (2017) [MP3|320 Kbps] <House, Vocal House>
 
 >>Electronic
->>Psybient, Psychill, Psydub (Lossless)
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871664.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Elevation (Live Edit) (09:03)
- 02. Over The Roof (Live Edit) (06:07)
- 03. Pulse (Live Edit) (08:03)
- 04. Traffic (Live Edit) (09:00)(   Читать дальше...   )Тип издания: CD, WebЖанр: Psybient, Downtempo, Psychill, Ambient, Progressive Trance •
+01.  Beat Addicts vs. C&C Music Factory - Keep It Comin' (Crystal Juice Remix)  6:24
+02.  Midnight Express - Music (feat. Sabrina Johnston) (Jazz Voice & House Pleasure Remix)  7:08
+03.  DJ Lopez & JC - The Colour Inside (Club Mix)  3:49
+04.  Easy Life - Everybody Join The Vibe (Club Mix)  6:20(   Читать дальше...   )Жанр: House, Vocal HouseПродолжительность: 02:07:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DD49AA0FB88F1362D4D5C089D6665BD159FED55
+magnet:?xt=urn:btih:624E9232BF7CF953B77DC5CD496E2BECAFC7DF4B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -429,25 +535,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374857   (870428) от 11.04.2020
+###  Публикация: 1106715   (871663) от 20.02.2017
 
-Джентльмены / The Gentlemen (2019) AC3 2.0 AVO Д. Пучков (Гоблин)
+Журнал | Добрые советы. Цветы в доме №2 (февраль 2017) [PDF]
 
->>Остальное
->>Звуковые дорожки и субтитры
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871663.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Гай Ричи представляет необычную криминальную комедию «Джентльмены» со звёздным актёрским составом. Сюжет рассказывает об американском экспате Микки Пирсоне (Мэттью МакКонахи), который создал невероятно прибыльную наркотическую империю в Лондоне. Появляются слухи, что Пирсон готов отойти от дел, продав свой бизнес. Тут же появляется множество желающих заполучить бизнес (   Читать дальше...   )Производство: США / MiramaxЖанр: Боевик, комедия, криминалРежиссер: Гай РичиАктеры: Мэттью МакКонахи, Чарли Ханнэм, Мишель Докери, Джереми Стронг, Лайн Рени, Колин Фаррелл, Генри Голдинг, Том Ву, Чиди Аджуфо, Хью ГрантПеревод: АвторскийЯзык озвучки: РусскийПродолжительность: 01:53:40
+«Добрые советы. Цветы в доме» — ежемесячный интерактивный журнал для всех, кто увлекается комнатными растениями, любит ухаживать за ними и создавать в своем доме оазисы живой природы. Основная часть журнала — письма читателей, в которых они делятся своим опытом по выращиванию цветов, защите их от болезней и вредителей, обустройству балкона, террасы и зимнего сада, (   Читать дальше...   )Жанр: ЦветоводствоФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC6588C7D348F7967E9F0F7B02701447755B9ACF
+magnet:?xt=urn:btih:C6B105B21962701EBD11EA040177331F4F1B7992
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -455,25 +561,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374543   (870427) от 11.04.2020
+###  Публикация: 1106559   (871662) от 20.02.2017
 
-Grease Dance (2011) [PS3] [EUR] 3.70 [Cobra ODE / E3 ODE PRO ISO] [License] [En] [MOVE]
+VA - 20 Best Of Ambient Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Консольные Игры
->>PS3
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871662.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Grease Dance создана по мотивам фильма Grease (Бриолин) в главной роли с “Джоном Траволтой и Оливией Ньютон-Джон”. В игре используются песни и музыка из фильма, что позволяет всем желающим пережить яркие танцевальные моменты из прославленной кинокартины. Всего в игре более 20-ти песен, они подарили радость не одному поколению влюблённых. Встряхните свои волосы, включите (   Читать дальше...   )Тип издания: LicenseРазработчик: Zoe ModeЖанр: Music, Dance, Rhythm, KaraokeЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+01.  Relaxing Chillout Music Zone nature - Best Of Ambient Chill  3:24
+02.  Sex Music Zone - Sexy Beats (Ambient Soft Music)  3:29
+03.  Beach Party Chillout Music Ensemble - Chill Lounge (Nightlife)  3:11
+04.  Beach Party Chillout Music Ensemble - Ibiza Beach (Wellness Hotel)  3:17(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:06:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ECDAF75193F416A703BFE5480BBCA752CFB28873
+magnet:?xt=urn:btih:67395865511EBD89FF110349EBD0F65D99E4847A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -481,25 +590,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374683   (870426) от 11.04.2020
+###  Публикация: 1106682   (871661) от 20.02.2017
 
-Сердца в Атлантиде / Hearts in Atlantis (2001) WEB-DL [H.264/1080p-LQ] [Open Matte]
+Л. Н. Черенков (отв. ред.) | Концепции буржуазной пропаганды и их критика [Реферативный сборник] (1980) [DJVU, PDF]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871661.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм рассказывает нам историю Бобби Гарфилда, 11-летнего мальчика, который познаёт жизнь в Коннектикуте шестидесятых. Бобби дружит с Тэдом Брутиганом, мужчиной, который снимает комнату в его доме. Их дружба через некоторое время перерастает в отношения отца и сына. Несмотря на это, Тэд скоро начинает понимать, что он наделён особым психическим даром…Производство: США / Castle Rock Entertainment, Village Roadshow Pictures, NPV EntertainmentЖанр: ДрамаРежиссер: Скотт ХиксАктеры: Энтони Хопкинс, Антон Ельчин, Хоуп Дэвис, Мика Бурем, Дэвид Морс, Алан Тьюдик, Том Бауэр, Селия Уэстон, Адам ЛеФевр, Уилл РотхаарПеревод: Дублированный, профессиональный многоголосый, авторскийСубтитры: русские, английскиеПродолжительность: 01:40:56
+В сборнике на материале политико-научной литературы, опубликованной в европейских социалистических странах в 1977-1980 гг., дается развернутая марксистско-ленинская критика наиболее распространенных концепций буржуазной пропаганды и средств массовой информации, намечаются методы борьбы с буржуазной пропагандой, направленной против стран социалистического содружества, (   Читать дальше...   )Жанр: История, политология, психологияФормат: DJVU, PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3D62F2CA784AD835F8C10D79067DA929955B7C5
+magnet:?xt=urn:btih:C480D14D9D4D585C376595033FE0965244839A4C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -507,28 +616,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 302083   (870424) от 27.02.2011
+###  Публикация: 1106485   (871660) от 20.02.2017
 
-VA - Детские песни. 200 детских хитов. (2011) [MP3|128-256 kbps]<Детские песенки>
+Billie Holiday - The Real... Billie Holiday (2011) 3CD [FLAC|Lossless|tracks + .cue] <Jazz Vocal>
 
->>Аудио для детей и родителей
->>Музыка и песни для детей
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871660.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 Марафонец
-002 Я по городу иду
-003 Воспи-пи-тание
-004 Необитаемый остров(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 07:32:27
+Disc 1
+1. Easy Living
+2. All Of Me
+3. God Bless The Child(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 03:49:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4EAD91BAFED9689D9E556B281FDAA9DD4A702BCA
+magnet:?xt=urn:btih:E86F91E21D8E364B4BDBD5019C06F18F0308DDE1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -536,27 +645,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 301530   (870421) от 27.02.2011
+###  Публикация: 1106826   (871659) от 20.02.2017
 
-Книжная серия | Классическая  библиотека приключений и научной фантастики [119 книг] (1996-2000) [FB2]
+Ancestral - Master Of Fate (2017) [MP3|320 Kbps] <Power Metal>
 
->>Художественная литература
->>Многоавторские серии и сборники
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871659.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серию "Классическая библиотека приключений и научной фантастики" можно считать продолжением старой серии "Библиотека приключений и научной фантастики" (БПНФ, "Рамка"), поскольку произведения практически не повторяются. Серию выпускал "Центрполиграф" в 1996-2000 годах.
-
-Замечательные фантастические произведения известных авторов, (   Читать дальше...   )Жанр: Научная фантастика, приключенияФормат: FB2
+01. Back to Life
+02. Wind of Egadi
+03. Seven Months of Siege
+04. Master of Fate(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A3B7055C388A9088FCF2CFB7449D3A4183DBC76
+magnet:?xt=urn:btih:D92B6FB94E39D3ACF0692DD0D3E5FCC831110ACA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -564,25 +674,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 300208   (870410) от 27.02.2011
+###  Публикация: 1496506   (871658) от 18.09.2021
 
-Blackmore's Night - Дискография (1997 - 2010) [MP3|192-320 kbps] <Folk Rock>
+Yoshi & Razner - Transmission Live, Spain (2021-08-28) [MP3|320 Kbps] <Trance>
 
->>Other Styles
->>Folk
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871658.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Folk RockПродолжительность: 20:10:17
+01. DJ Quicksilver - Ameno (Yoshi & Razner Remix)
+02. UCast vs. The Killers - Sympton Brightside (Yoshi & Razner Mashup)
+03. Steve Dekay - Sublime
+04. Miikka Leinonen ft. Kim Kiona - Breath Of The Wild (Metta & Glyde Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:29:21
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:5ACF6C781C56AACAC6DC9FFAF5A460CC332B12C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -590,109 +703,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 301549   (870408) от 27.02.2011
+###  Публикация: 1496640   (871657) от 18.09.2021
 
-Самый лучший фильм 3-ДЭ (2011) DVD5
+Roland Kirk - Roland Kirk's Finest Hour (2001) Verve Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
 
->>3
->>След.
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871657.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Макс Утесов — недооцененный режиссер-любитель. Утесов снимает свои фильмы на любительскую камеру. В это же время российские киноакадемики проводят конкурс «Самый лучший фильм России», в финал которого вышли 7 известнейших кинокартин. До церемонии объявления победителя конкурса пленки с фильмами (все в единственном экземпляре) запираются в сейф. Но Виктор Палыч подкупает (   Читать дальше...   )Производство: Россия, Monument PicturesЖанр: КомедияРежиссер: Кирилл КузинАктеры: Гарик Харламов, Петр Винс, Екатерина Кузнецова, Александр Балуев, Михаил Ефремов, Александр Семчев, Валентин Смирнитский, Денис Яковлев, Константин Соловьев, Денис ЖариковПеревод: Русский ОригиналСубтитры: Русские, Украинские, Эстонские, Латвийские, ЛитовскиеФормат: DVD VideoПродолжительность: 01:37:27
+01. Stompin' Grounds [4:49]
+02. Blue Rol [6:12]
+03. Serenade to a Cuckoo [4:34]
+04. Spring Will Be a Little Late This Year [4:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:00:21
 
 ## Скачать торент
 ```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 301375   (870406) от 27.02.2011
-
-Подборка книг | Внеклассное чтение [900 книг] (2003-2011) [fb2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка книг потрясает - собраны самые интересные (и самые лучшие) книги со всего света для детей и юношества. Да, такой литературой не стыдно воспитывать молодежь.
-
-           Большинство книг хочется перечитывать не раз. Книги собраны в серию, согласно неофициального списка ОЗОНа; главную роль при выборе издания играло наличие иллюстраций (книги, в основном, для молодежи), потом перевод.
-Издательства: АСТ, Астрель, Пушкинская библиотека, Вагриус, Транзиткнига, Азбука-классика, АСТ Москва, ВКТ, ПолиграфиздатЖанр: Художественная литератураФормат: fb2
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998523   (870405) от 19.03.2016
-
-Футбол. Чемпионат Испании 2015-2016. 30 тур. Спортинг (Хихон) - Атлетико (Мадрид). (19.03.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870405.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 марта 2016, суббота. 18:00 МСК
-30-й тур
-
-Стадион: Эль-Молинон (Хихон, Испания) , 24 860 зрителей (83 % при вместимости 30 000)(   Читать дальше...   )Телекомпания: Футбол 2 HDЖанр: СпортПродолжительность: 01:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A8714CC069A3600FB154B40EBAA2D2C1FE2F6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998328   (870404) от 19.03.2016
-
-Центральное телевидение (19.03.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня мы вылавливаем новости в телеэфире и Интернете, обсуждаем в очередях и в блогах, обмениваемся ссылками на интересные видеоролики и фото и не делим новости на «официальные» и «из жизни». Чтобы вызвать цепную реакцию, любая тема должна отвечать единственному требованию — быть интересной. Тот же принцип положен в основу нового воскресного проекта НТВ «Центральное (   Читать дальше...   )Телекомпания: НТВЖанр: ДокументальныйПродолжительность: 00:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7ECFC07CE31C9AC0D9474101973E10D91AC9EC
+magnet:?xt=urn:btih:9868D92F0731B638EC8CC8B5EA326AF717153E28
 ```
 
 https://mybot314.ru/tekegram_catalog/

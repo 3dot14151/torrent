@@ -1,3 +1,113 @@
+###  Публикация: 1278281   (768262) от 26.01.2019
+
+3D модели - 3ddd - Free Chair - Стулья 2019 [Corona|V-Ray|*.max, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник моделей с сайта 3ddd/3dsky.
+Количество моделей: 40шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD40C69B75F5D3782FF69283700F0FF77042B950
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278270   (768223) от 26.01.2019
+
+3D модели - 3ddd - Сборник 3D-моделей 3 [Corona|V-Ray|*.max, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник моделей с сайта 3ddd/3dsky.
+Количество моделей: 21 шт.Формат: Corona|V-Ray|*.max, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4C6DD6EEF5756C185038E983CBF4A7747016ADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213471   (768177) от 17.03.2018
+
+Векторный клипарт - Happy Easter holiday with egg and flower #3 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Пасхи с яйцом и цветами
+9 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CBB239C48DD6405364AC805F38FF7FA2601CCE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213469   (768171) от 17.03.2018
+
+Векторный клипарт - Happy Easter holiday with egg and flower #2 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Пасхи с яйцом и цветами
+9 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EFA943D51407F50BAAB120295F21011887D9FB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213476   (768169) от 17.03.2018
 
 Векторный клипарт - Happy Easter holiday with egg and flower #4 [EPS]
@@ -577,110 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D356E6580657C3A70AE1E16C85002C1593C7E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279301   (766688) от 28.01.2019
-
-Растровый клипарт - Creative Market - Butterfly Illustration Bundle - 1508506 [PSD, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник из 75 красочных старинных бабочек.Формат: PSD, PNGРазрешение файлов: 1500x1500-1582x2048
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C72186665EFB509404477E9F486A94C7B33631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279291   (766678) от 28.01.2019
-
-Стили - GraphicRiver - 20 3D Retro Photoshop Styles asl.Vol.2 - 22813719 [PSB, ASL]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766678.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 3D Ретро стилей для текста.Формат: PSB, ASL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:783BCC9053F23131A439D846FCDE0BA835DA0D88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213948   (766577) от 19.03.2018
-
-Растровый клипарт - Happy Easter #03 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт Пасха для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 131x400-800x800
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9436BF970544B98892A83AE3A38A33FB897C0252
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214023   (766533) от 19.03.2018
-
-Экшены - Creative Market - 20 Sunlights with Flares - 1949486 [ATN, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добавьте красивые эффекты к вашим изображениям, используя наши оптически захваченные солнечные лучи с вспышками для фотографов, особенно свадебных, портретных и семейных фотографов.Формат: ATN, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97D9E4DD1E47D520F0DDE913383DAD42675EF359
 ```
 
 https://mybot314.ru/tekegram_catalog/

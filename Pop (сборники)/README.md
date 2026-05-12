@@ -1,4 +1,120 @@
 https://t.me/izofen
+###  Публикация: 1869527   (1068330) от 07.05.2026
+
+Frontmusic - Italo Disco 80s (2026) [MP3|320 Kbps] <Disco, Instrumental>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep On 90th (2:29)
+02. Love Message From 90s (2:45)
+03. 80s Dance Pop Show (2:11)
+04. 80s Dance (3:10)(   Читать дальше...   )Жанр: Disco, InstrumentalПродолжительность: 01:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16D1307B85D72CDF3B22783417511E82AD6606B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869526   (1068329) от 07.05.2026
+
+Frontmusic - 90s Dance Pop (2026) [MP3|320 Kbps] <Pop, Instrumental>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 90s Classic Eurodance (2:22)
+02. 90s Dance Pop (3:33)
+03. Culture Beat Of Eurodance (3:32)
+04. Love Message From 90s (2:45)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 01:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32CC6ACB7D7D5F05AD6DD65B22B24FA69B51322E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869500   (1068203) от 06.05.2026
+
+Виктор Кирея - Коллекция (2026) [MP3|320 Kbps] <Pop, Instrumental>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ships in Bottles (3:50)
+02. I’m Already Gone (3:31)
+03. The Crossroads (3:45)
+04. Gravity of Love (3:33)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 02:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF3495D849858F983DB82FE992F9391C3B349A66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868879   (1067881) от 03.05.2026
+
+VA - Russian Hits 2020 [MP3|320 Kbps] <Pop, hip-hop, electronic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067881.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:49]. 001-Tim Dian & Eva Harz - Закроем двери
+[2:40]. 0002-Vesna305 - Ватсап
+[2:42]. 003-Кравц & Tony Tonite - Чау чау
+[3:17]. 004-Дима Кэс - Она(   Читать дальше...   )Жанр: Pop, hip-hop, electronicПродолжительность: 05:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5564D2133799EAB3E65F3B5373CD29E01AFAF541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867316   (1066709) от 24.04.2026
 
 Rudolf Kinski Project - XV (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
@@ -630,122 +746,6 @@ VA - Russian Hits 2023 [MP3|320 Kbps] <Pop, hip-hop, electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:473BC30671F667D23120B4B94281FEDCFF0395C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863263   (1063265) от 05.04.2026
-
-VA - Лучшие хиты ,,НАЗАД в СССР,, В современной обработке (2026) [MP3|192-320 Kbps] <Pop, Blues>
-
->>След.
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BEGART music- Снег кружится [04:38]
-02. Music Mixtura- Бегут года [05:04]
-03. Music Mixtura- Ночное такси [05:41]
-04. naTural Blues- Восточная песня [04:31](   Читать дальше...   )Жанр: Pop, BluesПродолжительность: 01:24:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DC9B68392C3D50C939C76B5B2BAE6B036FAB002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863733   (1063201) от 06.04.2026
-
-VA - Euro Hits 2020  [MP3|320 Kbps] <Pop, Dance, Electronic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063201.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:10] . 001-Dua Lipa - Love Again
-[2:07] . 002-R3Hab & Timmy Trumper - 911
-[2:59] . 003-24Kgoldn & Imanbek - Valentino
-[3:29] . 04-DJ Jedy - Sometimes(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 06:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B377689592223553C46A3DF53CC87C5AAF039C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863715   (1063200) от 06.04.2026
-
-Rudolf Kinski Project - XIV (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sugar Ghost (Rudolf Version) (2:40)
-02. Light It Up (2:56)
-03. I Catch Your Bright (Rework) (2:39)
-04. Radio Wave (3:17)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C9266CF65C0E0AEBFDF289D1787528779F56A53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863868   (1063157) от 06.04.2026
-
-VA - ZYX Italo-Disco New Generation Vinyl Edition (2023) [MP3|320 Kbps] <Euro-Disco, Italo-Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Savage - Magic Carillon (Also Playable Mono Remix) (5:30)
-02. Italove - At The Disco (Also Playable Mono Remix) (6:10)
-03. Carino Cat - Passion Of Love (Extended Version) (6:40)
-04. Excitations and Fred Ventura - State Of Confusion (Italoconnection Remix) (6:32)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 04:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D255A278075979A98CC21C1E5DB52B40629EA63E
 ```
 
 https://mybot314.ru/tekegram_catalog/

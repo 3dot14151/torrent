@@ -1,3 +1,29 @@
+###  Публикация: 1802524   (14308) от 17.06.2025
+
+Текстуры - Chroma Supply - Transcend: Glimmering Paint Textures [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 11 текстур мерцающей краски ручной работы на черном фоне.Формат: PNGРазрешение файлов: 3864x6400 - 6000x6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8A226339D8144DEF7953A1026C2D32DC286D28C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802706   (14202) от 18.06.2025
 
 Текстуры - Veila - Metal Flow - Envato - Liquid Metal Background Textures - 6XM23SU [JPG, PSD]
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1B113D726C53F30DCAA81B4F9B74C07036EB4C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805129   (12530) от 04.07.2025
-
-Фоны - Envato - Neon Wave Background - DVMYBAP [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12530.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 фонов Neon Wave, которые идеально подойдут для придания грубого, элегантного штриха любому изображению или дизайн-проекту!Формат: JPGРазрешение файлов: 4500x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A0FE3446BCC297145F06ADA4644A532D15F678
 ```
 
 https://mybot314.ru/tekegram_catalog/

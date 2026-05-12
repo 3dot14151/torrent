@@ -1,3 +1,90 @@
+###  Публикация: 1418137   (351353) от 23.10.2020
+
+Wishbone Ash - Front Page News (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351353.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Front Page News
+A2 Midnight Dancer
+A3 Goodbye Baby Hello Friend
+A4 Surface To Air(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1936BD7C51CAFD46AD48AD09E69728AF3DE41A5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072908   (349829) от 14.11.2016
+
+Святослав Рихтер - Сергей Рахманинов – Тринадцать прелюдий (1985) [WavPack|96/32|tracks|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+Шесть прелюдий из соч. 23
+01. Фа Диез Минор. Largo (№1)  3:50
+02. Си-Бемоль Мажор. Maestoso (№2)  3:26(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F63D89CDCD569479C8D0A620B3130E10F1477FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 841255   (349609) от 06.10.2019
+
+Игорь Тальков - Лучшие песни (2008) [DTS|Lossless]<Авторская песня>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Памяти В. Цоя (4:22)
+02. Сцена (3:49)
+03. Россия (7:29)
+04. Родина моя (6:52)(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED1FDFD474F25BFA47CD2E25CD826E6618FA078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 841277   (349603) от 06.10.2019
 
 Игорь Тальков - Лучшие песни 2 (2008) [DTS|Lossless]<Авторская песня>
@@ -651,93 +738,6 @@ A4 Big Saarinen - We're An American Band(   Читать дальше...   )Жа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCF17B19978E02F061A45469741DBC0D06EC37C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 841967   (327971) от 18.11.2014
-
-Pink Floyd - The Endless River (2014) [DTS 5.1 CD-DA|44.1 /16|image+cue|Blu-ray] <Progressive Rock, Art Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Things Left Unsaid 04:26
-02. It's What We Do 06:14
-03. Ebb And Flow 01:57
-04. Sum 04:49(   Читать дальше...   )Жанр: Art RockПродолжительность: 00:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB8B63FB7200470DDB61935D5DE5D36C76E6D14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 710099   (327320) от 17.11.2015
-
-Святослав Рихтер - П. Чайковский  – Концерт №1 Си Бемоль для фортепиано с оркестром (1973) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Allegro Non Troppo E Molto Maestoso. Allegro Con Sprito  22:04
-Сторона 2
-1. Andantino Semplice  6:44(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83DD8E0C7BA4566AFB6AB201940DCC45AB7F3523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581430   (327217) от 05.10.2022
-
-Э. Колмановский - Белоснежка. Музыкальная Сказка. Запись 1968 г. (1978) [FLAC 1.0|96/24|tracks-side|Vinyl-Rip] <Children's>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белоснежка
-02. Белоснежка (Продолжение 1)
-03. Белоснежка (Продолжение 2)
-04. Белоснежка (Окончание)(   Читать дальше...   )Жанр: Children'sПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BFA8DADB63DACB79693DF52E62629A3E4E7F62F
 ```
 
 https://mybot314.ru/tekegram_catalog/

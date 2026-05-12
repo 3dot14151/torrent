@@ -1,3 +1,152 @@
+###  Публикация: 1240295   (529754) от 10.08.2018
+
+Anastasia - Songs of the Soul (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slipping Away
+02. Spoken from Within
+03. Like Father Like Daughter
+04. Kokkino Garifalo (Classical Arrangement)(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75250D94AD252061CBB8CAAE2854F04D18F12E42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 368373   (529491) от 27.07.2011
+
+Omkara - Let Nothing Remain (2010) [MP3|~264 kbps]<Mantras, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guru Stotram
+02. Om Bhagavan Sri Ramana
+03. Pathless Path
+04. Everything is Shiva
+05. Om Mani Padme Hum
+06. Infinite Dance
+07. Shower of Grace
+08. Heart of FireЖанр: Mantras, New AgeПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C85BE61C6878FF8102EBB8F67C76C6382DFAC31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052282   (529249) от 13.09.2016
+
+Jim Brickman - Soothe, Vol. 1. Music To Quiet Your Mind and Soothe Your World (2015) [FLAC|Lossless|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly [00:05:41]
+02. Mist In The Moonlight [00:05:40]
+03. Seaside [00:04:25]
+04. Celestial Horizon [00:04:40](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D705898CCE388453F5F43C0AE9B6F5280E052BDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052315   (529208) от 13.09.2016
+
+Jim Brickman - Soothe, Vol. 2: Sleep (2016) [FLAC|Lossless|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Setting Sun [00:05:55]
+02. Tranquility [00:05:17]
+03. Exhale [00:04:38]
+04. Slumber Deep [00:05:19](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:53:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E207D2606C9D7A8FCDF9B75C41E2CD8A99D83E74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052361   (529132) от 13.09.2016
+
+Karunesh - Sun Within (2016) [MP3|320 Kbps] <New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aeon (6:44)
+02. Lyria (4:56)
+03. Moola Mantra (8:59)
+04. Desert Traveller (6:24)(   Читать дальше...   )Производство: Oreade MusicЖанр: New Age, WorldПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:629F8E8F7AD9E77F1D691623A6655109B4B5DDA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 820080   (528814) от 10.09.2014
 
 Stefan Grossman - Those Pleasant Days (2004) 2 CD, Compilation [FLAC|Lossless|image+.cue] <Acoustic Guitar, Blues & Jazz Singer, Country Blues>
@@ -600,151 +749,6 @@ Era - The Best Of (2004 - 2013) [FLAC|Lossless] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C306D3B1FCE6FA62B9C671497A226DF1D0CB0F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240433   (524462) от 12.08.2018
-
-VA - Latin Fitness:Summer Edition (2018) [MP3|320 Kbps] <Rumba, Salsa, Brazilian Samba, Reggaeton>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geo Da Silva – Balkano Latino (Radio Edit) 2:54
-02. Noelia, Latin Workout – Candela (Latin Workout Remix) 3:08
-03. Latin Workout – Sacudelo (Workout Mix) 2:47
-04. Lester – Hace Calor (Original Mix) 2:57(   Читать дальше...   )Жанр: Rumba, Salsa, Brazilian Samba, ReggaetonПродолжительность: 01:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E4935F795C0464AE882A08A8AE82C8ECEB090ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312219   (524332) от 08.07.2019
-
-Hildur Gudnadottir - Chernobyl / Чернобыль (Music from the HBO Miniseries) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Door (02:43)
-02. Bridge Of Death (04:44)
-03. Turbine Hall (02:37)
-04. Vichnaya Pamyat (04:07)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E7AC5186F6EBF2519FF714F3C09C9A8CD327B7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258557   (524220) от 08.07.2019
-
-Heilung - Discography 4 Releases (2015-2019) [FLAC|Lossless|tracks+.cue, tracks] <Neofolk, Experimental, Ritual Folk, Rune Singing, Shamanic>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Galgaldr (10:25)
- 02. Norupo (04:18)
- 03. Othan (10:19)
- 04. Traust (09:49)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Neofolk/Dark Folk/Experimental/ShamanicПродолжительность: 01:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:266C6DAF71F001E5814CA54824B430F6B359A6C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313693   (522964) от 10.07.2019
-
-Rondo Classico - Carnevalo (1990) [FLAC|Lossless|image + .cue] <Instrumental, Classical Crossover,  Electronic>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intrada (3:09)
-02. Polka del flauto (3:28)
-03. Una serata nella palude (3:37)
-04. L'allegria (3:23)(   Читать дальше...   )Жанр: Instrumental, Classical Crossover,  ElectronicПродолжительность: 01:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A49FAE302FE5FEFE6EF42F012C5AFE8263AB0F5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313697   (522925) от 10.07.2019
-
-Rondo Classico - Yellow River (2002) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Is This The Way To) Amarillo (3:22)
-02. Yellow River (3:14)
-03. Chirpy Chirpy Cheep Cheep (2:52)
-04. To Whom It Concerns (2:48)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:108277E4086149DD26E3C51924AA4D8C0E10F9DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

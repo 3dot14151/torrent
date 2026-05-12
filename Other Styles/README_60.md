@@ -1,3 +1,119 @@
+###  Публикация: 1281417   (726385) от 23.02.2019
+
+VA - Simply Chillout (2013) Box Set, 10CD [FLAC|Lossless|tracks + .cue] <New Age, Lounge, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более трех лет назад я уже выкладывал на трекере 4-х дисковый сборник с аналогичным названием 2005 года издания. Видимо, откликаясь на многочисленные просьбы трудящихся USM переиздало его, дополнив 6 новыми дисками. Мне показалось интересным  CD09 "Chilled Lennon & McCartney" - он правда то же издавался USM в 2008 году под аналогичным названием, только (   Читать дальше...   )CD01 Classical Chilout
+CD02 Chilled Piano Moods
+CD03 Chiiled Film & TV Thems
+CD04 Chilled Smooth Pop(   Читать дальше...   )Релиз состоялся: 18 февраля 2013 годаЖанр: New Age, Lounge, ChilloutПродолжительность: 10:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2630BFFF5E4F9BEC753F89865DA33EC210120869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022993   (726164) от 04.06.2016
+
+Ramin Djawadi - Варкрафт / Warcraft (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warcraft (01:58)
+02. The Horde (03:17)
+03. Medivh (02:43)
+04. Honor (04:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFB3161AED7FD40DD1C14B1DD2AC5771E66D4941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023199   (726104) от 04.06.2016
+
+Yanni - The Dream Concert: Live from the Great Pyramids of Egypt (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Man's Dream
+02. For All Seasons
+03. Yanni Welcome
+04. Felitsa(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A019B44CDD7A877C3006D08229A4EC6A80D8733
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023012   (726072) от 04.06.2016
+
+Steve Jablonsky - Teenage Mutant Ninja Turtles: Out of the Shadows (Music from the Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Squirrel Formation (03:02)
+02. Shredder (03:38)
+03. Tartaruga Brothers (03:00)
+04. Baxter Stockman (02:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A6DBB8F52BF45108E2088CA6E29C8F0881199A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023023   (725727) от 04.06.2016
 
 Steve Jablonsky - Teenage Mutant Ninja Turtles: Out of the Shadows / Черепашки-ниндзя 2 (Music from the Motion Picture) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -620,122 +736,6 @@ Danheim - Munarvagr (2017) [MP3|320 Kbps] <Dark Folk, Dark Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:150E20635C462E5A4AC6361C207F1859D92860E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 234819   (720826) от 04.08.2020
-
-Pepe & Celin Romero - Famous Spanish Dances (1982) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar Concertos>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Granados: Danzas espanolas, op.37 no.5 "Andaluza" (04:00)
-02. Granados: Danzas espanolas, op.37 no.4 "Villanesca" (05:33)
-03. Granados: Danzas espanolas, op.37 no.2 "Oriental" (04:40)
-04. Granados: Goyescas: Intermedio (04:43)(   Читать дальше...   )Жанр: Instrumental, Guitar ConcertosПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0367653D71AA03379BD5AFA7100A7ED42C932C63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 258033   (720820) от 04.08.2020
-
-Ottmar Liebert + Luna Negra XL - Little Wing (2001) [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agua Fria (Cold Water)	(04:02)
-02. Little Wing			(04:49)
-03. The Girl From Ipanema	(06:31)
-04. Interlude #1: Longing	(01:10)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91FAED298740D8FE93E2FE75A6D9FA01B727816E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129541   (720783) от 29.04.2017
-
-Jeronimo Jonas - Inner Journey to the Real (2017) [MP3|320 Kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Being Resonances
-02. Beyond Shapes
-03. The Silence and the Guitar
-04. Automatic Cosmos(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26465500B9DB1D80EE2CBDC64D5186EF51A710F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 177414   (720743) от 04.08.2020
-
-Santana - The Best Instrumentals (1995) [APE|Lossless|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Samba Pa Ti (C. Santana) (04:36)
-02. Aqua Marine (D. C. Santana - A. Pasqua) (05:31)
-03. Bella (C. Santana - C. Thompson - S. Crew) (04:31)
-04. Flor D'luna (Moonflower) (T. Coaster). (04:50)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F359BDA10C8070A374BF5CD13AADE38F1EF364D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1024553   (716131) от 09.06.2016
+
+VA - Chill Vibes (2016) [MP3|320 кб/с] <Deep House, Electro pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Petit Prince - Demi tour (6:42)
+02. Joachim Pastor - Fever (3:34)
+03. Fhin - But Now a Warm Feel Is Running (5:02)
+04. The Shoes - Give It Away (3:24)(   Читать дальше...   )Жанр: Deep House, Electro popПродолжительность: 01:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:451B575C270CE3A88047A64088B101AF9F22BC87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024499   (716037) от 09.06.2016
 
 VA - Vision Of The Future (Compiled by Breeeze) (2016) [MP3|320 кб/с] <House, Nu-Disco>
@@ -718,35 +747,6 @@ VA - Record Super Chart 19.02.2022 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7502E48E48E748E55CED8107FFFA79BEF6EDA503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130741   (712674) от 03.05.2017
-
-VA - Trance Traveling 88 (Mixed by VNP) (2017) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Daminika - Stupid Hope (Original Mix)  3:27
-02.  ATB feat. Sean Ryan - Never Without You (Original Mix)  5:14
-03.  Aurosonic & Denis Karpinskiy feat. Kate Louise Smith - Heaven (Progressive Mix)  7:00
-04.  Armin van Buuren - This Is A Test (Extended Mix)  4:45(   Читать дальше...   )Жанр: TranceПродолжительность: 04:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:078A586C080DAD1D1DF698ED177E38E448A2EB3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

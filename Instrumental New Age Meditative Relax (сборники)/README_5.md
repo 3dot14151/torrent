@@ -1,3 +1,32 @@
+###  Публикация: 1522891   (755060) от 09.01.2022
+
+Dancing Fantasy - Compilation (2020) [MP3|320 Kbps] <Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Icedrift
+02. Malibu
+03. California Girls
+04. Dancing on a Summernight with YouЖанр: InstrumentalПродолжительность: 03:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68B7B4098750D67A7D502B9F068145FC7B20AAD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018641   (753955) от 21.05.2016
 
 VA - Acoustic Cafe: Relaxing and Easy Listening (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
@@ -713,35 +742,6 @@ VA - Dream Collection. Vol.1 (1996-1999) [MP3|192-320 kbps]<Dream dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A84ACBF083B167B0CFFE6C814C5A548261E29879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024201   (720315) от 07.06.2016
-
-VA - Love Therapy: Romantic Piano and Instrumental (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toni Verde - Heroes of Galaxy - Main Theme
-02. LifeBlood - Essence
-03. Toni Verde - Piano Moods
-04. Josh Freeman - A Cup of Tea(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:970BFB6077868C91A98931D42DE89EBCF31BB7B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

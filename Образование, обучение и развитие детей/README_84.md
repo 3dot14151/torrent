@@ -1,3 +1,31 @@
+###  Публикация: 1699548   (117869) от 13.02.2024
+
+В. В. Дорофейчик, М. А. Силенков | Физика. Сборник задач для 11 класса (2023) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник содержит задачи различных видов и уровней сложности, ответы и справочные материалы. Задания расположены в порядке возрастания сложности.
+
+Адресуется учащимся 11-го класса учреждений образования, реализующих образовательные про-граммы общего среднего образования, изучающим физику на базовом и повышенном уровнях.Жанр: Учебная литература по физике, сборники задач по физикеЯзык: РусскийИздательство: Минск: Национальный институт образованияФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B62F3B74E120030B345DBA00C77DB6DD0A81B51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699408   (117851) от 13.02.2024
 
 О. С. Габриелян, И. Г. Остроумов, Н. С. Пурышева и др. | Естествознание. Учебник для 10 класса (2016) [PDF]
@@ -661,33 +689,6 @@ Watch Me Grow, a groundbreaking series from DK, brings readers ages 5 and up int
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDFE097D03BCA5285F4B0CB62841A2E55A0F00D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734435   (107113) от 03.07.2024
-
-John Woodward | Horses (2014) [PDF] [EN]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107113.jpg" />
-</div>
-
-
-###  Подробнее
-
-For every young horse fan who's ever dreamed of having his or her own pony, comes Horses: The Ultimate Treasury. Age Range: 8 - 12 years
-From wild horses and zebras to working horses like the Clydesdale, Shire, Percheron, and the American Saddlebred, Hackney, and Missouri Fox Trotter, learn about horses from around the world and throughout history. Discover how horses (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDFC34F96A5387E17943946072E25C84C0E49AA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

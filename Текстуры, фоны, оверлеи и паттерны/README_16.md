@@ -1,3 +1,30 @@
+###  Публикация: 1225199   (661734) от 14.05.2018
+
+Текстуры - Creative Market - 35 Glitter Textures - 2121592 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Текстуры - блёстки для наложения на изображения с официальной документацией.
+Автор: LovePhotoMoment.Формат: JPGРазрешение файлов: 4500 x 3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72F1F611922399DC043F8FD60ABB04265598AF4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225220   (661729) от 14.05.2018
 
 Текстуры - Creative Market - Gold glitter and bokeh - 1164920 [JPG]
@@ -657,33 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41093FE5B31001847BF81CE3CD115795AA93D328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226390   (654551) от 21.05.2018
-
-Текстуры - Creative Market - Foil Texture Pack - 1793010 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстуры под фольгу с официальной документацией.
-Автор: Heather Noll DesignФормат: PNGРазрешение файлов: 2500 x 3500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2181F71821E7F34E9D6DF0DC403F6E884D68C86
 ```
 
 https://mybot314.ru/tekegram_catalog/

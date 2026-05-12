@@ -1,3 +1,32 @@
+###  Публикация: 1019393   (749758) от 23.05.2016
+
+Yoshida Brothers - Hishou (2007) [FLAC|Lossless|tracks + .cue] <Folk, World, Instrumental>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude: Hishou
+02. Ibuki (Hishou Version)
+03. Kodo (Hishou Version)
+04. Ringo Bushi(   Читать дальше...   )Жанр: Folk, World, InstrumentalПродолжительность: 01:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64091154F1359423AB165E2376853ACE52128EA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281939   (748058) от 10.02.2019
 
 Yuki Murata - Films (2009) Ricco Label, RE. [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient, Solo Piano>
@@ -751,41 +780,6 @@ Huang Hui - Singing Of Bamboos (2005) [APE|Lossless]<Chinese Instrumental>
 8. Mountain Air in Yimengshan
 9. Rainbow Girls
 10. Jasmine(   Читать дальше...)Жанр: Chinese InstrumentalПродолжительность: 00:52:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 339051   (667334) от 20.05.2011
-
-Butterfly Girls Band - Dancing Skirts in Flying Flowers (2009) [APE|Lossless]<Chinese Ethnic>
-
->>East Asian Music
->>Asian Traditional, Ethnic (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_667334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Instrumental Ensemble Happy Song (4:52)
-02. Sheng Solo Ding Ding Dang (5:59)
-03. Dance Accompaned by Music Small Rainbow Skirt (9:15)
-04. Pipa Solo Lv Yao (6:49)
-05. Alto Fiddle Solo Song of Regions of Rivers and Lakes (4:46)
-06. Bamboo Fluet and Band Three, Five and Seven (4:23)
-07. Pipa and Guzheng Embroidering Girls (5:10)
-08. Chines String Quintet Soaring Dragon (7:15)
-09. Chines String Quintet Pamper Imagination (6:57)
-10. Guzheng Solo Spring Dawn in a Village of She Nationality (4:25)(   Читать дальше...)Жанр: Chinese EthnicПродолжительность: 1:13:55
 
 ## Скачать торент
 ```bash

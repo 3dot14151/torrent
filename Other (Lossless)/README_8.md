@@ -1,3 +1,61 @@
+###  Публикация: 1811433   (16169) от 09.08.2025
+
+VA - The Orient Collective : Ayahuasca (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania - Echoes (4:30)
+02. Private Sense - Desert Lights (Jack Essek Remix) (7:35)
+03. Clive Vaz - Gypsy Prince (6:25)
+04. Martin Hiska - Mahoya (4:10)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:19:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C56DD8C8EEF6AEA60F179E01D2859BF8401602B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803469   (13662) от 23.06.2025
+
+Secret Garden - Secret Summer (2025) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Neo-classical, New Age, Nordic Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invitation (3:58)
+02. Sunshine (4:18)
+03. Session (2:52)
+04. My Land (4:51)(   Читать дальше...   )Жанр: Celtic, Neo-classical, New Age, Nordic FolkПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6CC520A3680399A595E229440383EC67858D950
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811660   (8443) от 11.08.2025
 
 VA - The Orient Collective: Mystic Sands (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>

@@ -1,3 +1,55 @@
+###  Публикация: 921854   (566251) от 30.07.2015
+
+Проекты - VideoHive - Photo Titles [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивые слайды с эффектом призмы.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EEA61D615041DBC984F41159FB5C5F7202212CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922603   (566245) от 30.07.2015
+
+Проекты - VideoHive - In Style [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FEA594D8137E9867016BD969D318A85D71E0140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922587   (566201) от 30.07.2015
 
 Проекты - VideoHive - Beautiful Target [AEP]
@@ -617,61 +669,6 @@ Soccer Zone Broadcast Pack - это свежий стиль для футбол�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48946E94C2D5CE127232909A94A145D0749C41B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234986   (565354) от 08.07.2018
-
-Проекты - VideoHive - LED Neon Screen - 21488559 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стильный, полностью настраиваемый проект для различных видео-презентаций.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5D8498DF7D1C51E7CC9A4BD1377551D33FB1BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 813429   (565187) от 17.08.2014
-
-VideoBlocks - Action Reveal [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Динамичный проект для начала дискотеки, спортивного мероприятия, вечеринки.
-
-Возможности:
- - Requires Adobe After Effects CS4 or higher;(   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0851B811C9874EC9A7F84BAB871E673B2354916F
 ```
 
 https://mybot314.ru/tekegram_catalog/

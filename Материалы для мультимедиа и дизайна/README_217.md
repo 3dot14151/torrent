@@ -1,3 +1,107 @@
+###  Публикация: 1056593   (481112) от 25.09.2016
+
+Шаблоны - GraphicRiver - Email Signature [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблоны для создания различных видов и цветов E-mail подписей.Формат: PSDРазрешение файлов: 600х300
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:029C8FC03F6A6175D24F01B8395C073CE402A61D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056318   (481106) от 25.09.2016
+
+Экшены - GraphicRiver - 1 Click Double Exposure - Photoshop Action [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481106.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Click Double Exposure - экшен с эффектом двойной экспозиции для Вашего творчества.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95A73CE495D8191BA9347445B81D127A92D1D13E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056303   (481104) от 25.09.2016
+
+Шаблоны - GraphicRiver - Abstract Photo Frame Templates V.2 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abstract Photo Frame - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 3000 x 1938 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A151255C5ECDF25B801B15F13F3433B908968A21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056213   (481103) от 25.09.2016
+
+Экшены - GraphicRiver - Dark Light Effect with Gold Silver and Bronze Skin Photoshop Action [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dark Light Effect with Gold Silver and Bronze Skin - экшен для Вашего творчества.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62532C2C883E416CA102365176C92A2B668ED0A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056309   (480974) от 25.09.2016
 
 Шаблоны - GraphicRiver - Double Exposure Photoshop Template - 17075830 [PSD]
@@ -581,118 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93FC3D17FF9B6668FEFCC1FF13C82EF181939E47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546651   (478264) от 13.09.2012
-
-Digital Juice - Swipes! 29: Mixed Bag 3 (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Swipes! v29: Mixed Bag 3 - разнообразные анимированные видео-переходы с альфа-каналом. Этот сборник без особой тематики и он неплох, чтобы начать Вашу видео-коллекцию, так как здесь есть кое-что для всех.
-Swipes! это сборники анимированных видео-переходов с альфа-каналом, которые могут быть использованы в любой программе видеомонтажа. Для каждого ролика предоставляются звуковые эффекты, а начиная с Volume 13 ещё и маски.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E434CB9843EE8D0DEFC66939C1BBCF4E81B76440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546510   (478218) от 13.09.2012
-
-Шаблоны - Photobooks MIX 3 [PSD,PNG,JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивые шаблоны для создания альбомов , Scrapbook - "LOVE"  и набор рамок
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC17D7490A7359F47F57CC15E007B88C1647D33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546644   (478210) от 13.09.2012
-
-Digital Juice - Motion Design Elements Standart 11: Logo Revealers (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice - Motion Design Elements Standart 11: Logo Revealers (Full ISO)
-Название: Digital Juice Motion Design Elements 011: Logo Revealers
-Официальный сайт: Digital Juice
-Homepage: www.digitaljuice.com/products/products.asp?pid=244 (not available)
-Тип раздаваемого: Video FX, Footage
-Разрешение файлов: 1080x1080 to 1920x1080 at 60 fps
-Расширение (тип) файлов: .iso (.mov)Motion Design Elements 011: Logo Revealers - Библиотека анимированных элементов дизайна, предназначенных прежде всего для выделения линейных текстовых блоков. Однако, этот сборник шагает вперёд, расширяя Revealer-концепцию за счёт увеличения размера анимации, которая теперь может быть использована для выделения не только текста, но и логотипов, и другой графики.Область применения для этого вида анимированных элементов выходит далеко за пределы очевидного. Из-за своих больших размеров (более, чем HD), Logo Revealers могут действовать на экране так же быстро и интересно, как полные или частичные видео-переходы. Или же они могут быть уменьшены (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A027567F962BA36A4B94C057685F2E898DC450FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244887   (477835) от 03.09.2018
-
-Экшены - GraphicRiver - Galaxian Photoshop Action - 22392317 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Galaxian - этот экшен фотошоп даёт вашим фотографиям удивительный галактический эффект. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.
-Для достижения наилучших результатов рекомендуется использовать фотографии высокого разрешения в диапазоне 1900px-2500px. Оптимальный диапазон (   Читать дальше...   )Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71FD2546EF16BFD0EAEC74CC4E94EE8B0D77904D
 ```
 
 https://mybot314.ru/tekegram_catalog/

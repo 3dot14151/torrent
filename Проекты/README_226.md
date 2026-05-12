@@ -1,3 +1,56 @@
+###  Публикация: 1405091   (486766) от 28.08.2020
+
+Проекты - VideoHive - Fashion Sale - Store Promo - 28304634 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fashion Sale - Store Promo - - это быстрый, стильный анимированный шаблон After Effects с привлекательным дизайном, современной текстовой анимацией и модными эффектами перехода. Отличный способ продвигать и рекламировать свои новые продукты, специальные предложения, акции и видеоролики о предстоящих событиях. Произведите впечатление на свою аудиторию этим чистым (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FA321207D345D38D59D19B2C8E4B7DA82DEA351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 821849   (485767) от 15.09.2014
+
+VideoHive - Selection Photo & Video (Slideshow) - 6495525 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485767.jpg" />
+</div>
+
+
+###  Подробнее
+
+VideoHive - Selection Photo & Video (Slideshow) проект для создания фото слайд шоу на старой фото пленке
+Проект 2014 годаФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3B5EA3DC9744C2D738C0EB2E788B8364A0F9C11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 821847   (485763) от 15.09.2014
 
 VideoHive - Kino Type - 5745121 [AEP]
@@ -626,58 +679,6 @@ VideoHive - The Wedding Intro 2 свадебный проектФормат: AEP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7FCADB0673C46C0B66C981463E2E75A3DCFC534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 822223   (483562) от 16.09.2014
-
-VideoHive - The Wedding Intro - 132219 [AEP]
-
->>Проекты
->>Свадебные и романтические (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483562.jpg" />
-</div>
-
-
-###  Подробнее
-
-VideoHive - The Wedding Intro свадебный проектФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2C1CB8B7328A5D24F5C42C58DD76C91ADF17CE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 822232   (483546) от 16.09.2014
-
-Проекты - VideoHive - Wedding Studio - 843476 [AEP]
-
->>Проекты
->>Свадебные и романтические (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483546.jpg" />
-</div>
-
-
-###  Подробнее
-
-VideoHive - Wedding Studio свадебный проектФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C2E19468074FC5615C220A68940E9C21307CF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

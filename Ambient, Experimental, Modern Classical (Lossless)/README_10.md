@@ -1,3 +1,32 @@
+###  Публикация: 1145561   (619831) от 26.06.2017
+
+Steve Gibbs - Adrift (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619831.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Passion (03:55)
+2. Evoke (04:58)
+3. Råklipp (03:31)
+4. Patterns (04:49)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:39:72
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F74DE6FDAB5FF639537AD1818D0465318B522CA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036560   (619256) от 21.07.2016
 
 Interference Of Frequencies - The Orphic Continuum (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Downtempo>
@@ -714,35 +743,6 @@ Palta & Ti - Palta Og Ti På Den Tolvte Ø (2018) 12th Isle [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D75D5406945AB0C683D252F4FE2E24C2FEB724DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304328   (565539) от 25.05.2019
-
-Hipnotic Earth - Suspended In Silence (2019) Whitelabrecs [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gentling (04:17)
- 02. After The Rain, Moss (so) Alive (04:20)
- 03. Cascade Of Prisms (04:46)
- 04. Snow Begins To Fall (06:48)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ExperimentalПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:324AEF3F7E15935AA7D3A14680319ABFFDAE9AB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

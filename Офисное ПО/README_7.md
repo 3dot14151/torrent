@@ -1,3 +1,81 @@
+###  Публикация: 1847735   (1052336) от 17.01.2026
+
+Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.14334.20468 (2026.01) (W10 / 11) RePack by KpoJIuK [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2021 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46BDF41C054765AC0BE3462FB222F8D1B2C28EA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847560   (1052163) от 13.01.2026
+
+SoftMaker Office Professional 2024 Rev. S1230.1206 Portable (х64) by 7997 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программный офисный пакет Softmaker Office, основная разработка компании Softmaker GmbH, является отличной заменой для Microsoft Office. Пакет офисных программ в том или ином составе необходим и в организациях и дома на персональном компьютере для улучшения, оптимизации, облегчения процессов документирования, контроля и учета, автоматизации офисной работы. Вы, также (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A077A134AE61E46944EBCB45016B68EB687846A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847561   (1052162) от 13.01.2026
+
+Flip PDF Plus Corporate 7.10.15 Portable by 7997 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flip PDF Plus Corporate - профессиональная версия нашей мощной программы Flip PDF с множеством функций. С помощью Flip PDF можно конвертировать обычный формат PDF в потрясающие буклеты с удивительной покадровой анимацией. Flip PDF предлагает быстрый и легкий способ конвертировать обычные PDF файлы в потрясающие буклеты с эффектом перелистывания страниц и изумительным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:944762F4988A5E62D844818E218270D5307BC54B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847576   (1052151) от 13.01.2026
 
 Adobe Acrobat Pro 2025.001.21078.0 (x86/x64) Portable by 7997 [Multi/Ru]
@@ -60,7 +138,7 @@ PDF-XChange PRO 10.8.2.407 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1051747.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ VueScan Pro 9.8.50 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1050542.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ PDF-XChange PRO 10.8.1.406 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1049572.jpg" />
 </div>
 
 
@@ -598,84 +676,6 @@ Acrobat Pro — это полностью обновленная настоль�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1461B0569B54B6226A45F837ECCCDE5D1A738D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841192   (1047866) от 09.12.2025
-
-Adobe Acrobat Pro 2025.001.20997 (x86/x64) Portable by 7997 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acrobat Pro — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. А с помощью облачных сервисов Document Cloud вы сможете создавать, экспортировать, редактировать и отслеживать файлы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C6FF2C966B613CD5EA1F3713B74BC50CB9BFB46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841261   (1047823) от 10.12.2025
-
-Notepad++ 8.8.9 Final + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Notepad++ - бесплатный редактор текстовых файлов, значительно превосходящий Блокнот по функциональности. Поддерживает синтаксис всевозможных языков программирования, предназначен для работы в операционной системе MS Windows. Этот проект базируется на компоненте Scintilla (очень мощном компоненте для редактирования) написанном на C++ с использованием только Win32 (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD91605BC655148DD1F43C6969AA21E8D1910855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841262   (1047821) от 13.12.2025
-
-Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.17932.20620 (2025.12) (W10 / 11) RePack by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Office LTSC 2024 предоставляет привычный набор приложений, таких как Word, Excel, PowerPoint, Outlook, OneNote, OneDrive и Access, и включает функции, представленные в корпоративных версиях Microsoft 365. Среди нововведений — динамические диаграммы в Excel, улучшенные возможности поиска и создания встреч в Outlook, а также улучшения производительности, безопасности (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8177A58F6F72C1272ED430CDDCFEBB7A3ADCF59
 ```
 
 https://mybot314.ru/tekegram_catalog/

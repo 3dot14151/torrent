@@ -1,3 +1,121 @@
+###  Публикация: 1455942   (1025411) от 20.03.2021
+
+Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига справедливости Зака Снайдера (Original Motion Picture Soundtrack) (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025411.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:18] 01. Rose Betts - Song to the Siren
+[07:57] 02. Tom Holkenborg - A Hunter Gathers
+[00:57] 03. Tom Holkenborg - Migratory
+[01:04] 04. Tom Holkenborg - Things Fall Apart(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E6AD641A9C918892A5672A82278DC447D02FA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455944   (1025266) от 21.03.2021
+
+Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига справедливости Зака Снайдера (Original Motion Picture Soundtrack) (2021) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025266.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:18] 01. Rose Betts - Song to the Siren
+[07:57] 02. Tom Holkenborg - A Hunter Gathers
+[00:57] 03. Tom Holkenborg - Migratory
+[01:04] 04. Tom Holkenborg - Things Fall Apart(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB23EC2836944D8F911C6F32664E09F483D5B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456905   (1024572) от 25.03.2021
+
+Blackmore's Night - Nature's Light (2021) 2xCD, Jараnese Еditiоn [FLAC|Lossless|image + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ренессанс-рок-группа BLACKMORE'S NIGHT, которую создали Ritchie Blackmore и его жена Candice Night, выпустила первый альбом за шесть лет 12 марта 2021 года. Диск под названием "Nature's Light", уже 11-й полноформатник в дискографии BLACKMORE’S NIGHT, издан лейблом earMUSIC.
+
+"История 'Nature's Light' – это история природы, которая является настоящей (   Читать дальше...   )CD - 1:
+01. Once Upon A December (3:10)
+02. Four Winds (3:03)
+03. Feather In The Wind (4:30)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47490688F2F4763C74BFA149873FD5C2BE7424BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457240   (1024563) от 25.03.2021
+
+VA - Romantic Melodies: Classic In Pop (2005) [MP3|320 Kbps] <Pop, Rock, Classical>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ricky King - Mondscheinsonate (3:34)
+02. Francis Goya - Concerto Pour Une Voix (2:55)
+03. Jacques Loussier - Summer Adagio (4:21)
+04. Anthony Ventura - Menuet (3:41)(   Читать дальше...   )Жанр: Pop, Rock, ClassicalПродолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE53F0D514C186EDD66A7DE440084AE599F31196
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457716   (1024209) от 27.03.2021
 
 Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла против Конга (Original Motion Picture Soundtrack) (2021) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
@@ -629,122 +747,6 @@ Benjamin Wallfisch - Mortal Kombat / Мортал Комбат (Original Motion 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B5CE5812DE05A3B3385EACF32E8D250A0041403
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463278   (1020444) от 18.04.2021
-
-Benjamin Wallfisch - Mortal Kombat / Мортал Комбат (Original Motion Picture Soundtrack) (2021) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020444.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:07] 01. Techno Syndrome 2021 (Mortal Kombat)
-[07:15] 02. Hanzo Hasashi
-[02:25] 03. Lord Raiden
-[02:43] 04. Bi-Han(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865EDDCAC71B4E34824CB4E4467D16D1517B24E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463534   (1020308) от 19.04.2021
-
-Bryan Lubeck, Johannes Linstead & Tomas Michaud - We Three Strings (2006) [FLAC|Lossless|tracks + .cue] <Flamenco, Latin, Folk>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johannes Linstead - What Child Is This? (3:26)
-02. Bryan Lubeck - The First Noel (4:15)
-03. Tomas Michaud - Christmas Journey (5:16)
-04. Johannes Linstead - God Rest Ye Merry, Gentlemen (2:41)(   Читать дальше...   )Жанр: Flamenco, Latin, FolkПродолжительность: 00:50:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3726B62918410254B2322118AF9EE1BF5EB3F7C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463530   (1020295) от 19.04.2021
-
-Behzad (Behzad Aghabeigi) - 5 альбомов (1997-2017) [MP3|320 Kbps] <Flamenco, Acoustic Guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rapture of Massy (5:20)
-02. Your Tranquillity Matilda (4:51)
-03. Simmering Souls (6:01)
-04. Gypsy Renaissance (4:42)(   Читать дальше...   )Жанр: Flamenco, Acoustic GuitarПродолжительность: 04:25:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C97D8AEB95819004DD1C683171C349B9AC1137C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464295   (1019975) от 21.04.2021
-
-Gandiva - All Your Grace (2020) [FLAC|Lossless|WEB-DL|tracks] <World, Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surjya Debata
-02. All Your Grace
-03. Nijhum Rate
-04. Aum Govindaya Nama(   Читать дальше...   )Жанр: World, MantrasПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:732EB8DA94AC57E17857F1F4423A0591C54095F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

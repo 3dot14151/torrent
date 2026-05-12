@@ -751,6 +751,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358622   (585081) от 03.07.2011
+
+VA - Pure Spirit Of Relaxation 3CD Boxset (2005) [MP3|320 kbps]<Meditativ, Relax, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_585081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три альбома красивой атмосферной музыки для расслабления ума, тела и души. Послушайте все три, чтобы достигнуть полного расслабления.01. Soothing Sea Of TranquilityЖанр: Meditativ, Relax, New AgeПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6982A4BBD9D6BA6626BEA63CD1F88BC2671FCDDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918951   (584880) от 17.07.2015
 
 Zhang Yi - Strings Of Love (2015) [MP3|320 кб/с]<New Age>
@@ -773,35 +799,6 @@ Zhang Yi - Strings Of Love (2015) [MP3|320 кб/с]<New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:838FADBACC1869545B4F00341217D74C1BF0445F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919429   (584030) от 18.07.2015
-
-Marcus Viana - Pleiadian Connections (2015) [MP3|320 кб/с]<New Age, Instrumental, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orion Calls
-02. No Tempo
-03. Pleione
-04. A Fonte das Estrelas(   Читать дальше...   )Жанр: New Age, Instrumental, MeditationПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC8A15BC90C44DDF365129D6EBF5EC833AE0535A
 ```
 
 https://mybot314.ru/tekegram_catalog/

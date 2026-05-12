@@ -1,3 +1,107 @@
+###  Публикация: 1029258   (684051) от 25.06.2016
+
+Экшены - GraphicRiver - Photoshop Action Bundle 2 [ATN, ABR, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photoshop Action Bundle 2 - сборник из 4 экшенов для Вашего творчества.Формат: ATN, ABR, PNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0317D314D1825822CDB39CAF3548E9C03BE715B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029260   (684040) от 25.06.2016
+
+Экшены - GraphicRiver - Ambrotype Vintage Photo Effect Photoshop Action [ATN, PSD, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ambrotype Vintage Photo Effect - превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, PSD, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EAEA8A9A4833639656932AC5BA5F32FBD37168B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029001   (684039) от 25.06.2016
+
+Шаблоны - GraphicRiver - Art Photo Frame [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Art Photo Frame - Превосходный шаблон для Вашего творчества. Многие оценят его по достоинству.Формат: PSDРазрешение файлов: 3000×2000 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A1A5A6719F77FE46D4C926C142B4461A9C7DE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029112   (684037) от 25.06.2016
+
+Шаблоны - GraphicRiver - 3D Puzzled Mock-Up [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684037.jpg" />
+</div>
+
+
+###  Подробнее
+
+3D Puzzled Mock-Up - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 2500×2000 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDEB38209216B7565E6487E0DFDF283C34B6C881
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535493   (683967) от 07.03.2022
 
 3D print - Gambody - Pyramid Head - Диорама [STL]
@@ -593,113 +697,6 @@ Most Wanted Actions Bundle - сборник из трёх экшенов для 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6CDC57720722AEBF10902D3F1D052ADE444AE53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029330   (682123) от 26.06.2016
-
-Экшены - GraphicRiver - Manga Effects Action [ATN, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Manga Effects - экшен для Вашего творчества.Формат: ATN, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3FC1CFFE3D42CD5B8C48CAE51597618BEA1D505
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535823   (682097) от 08.03.2022
-
-3D print - Artisan Guild - Welcome Box - DnD Miniatures [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начальный набор моделей для игры в DnD от Artisan Guild (дается при покупке любого из наборов, или подписки на patreon). Содержит базовых героев и врагов, несколько элементов интерьера, а также несколько бюстов. В комплекте вы найдете:
-- все вышеперечисленные файлы для печати
-- аналогичные файлы, но с поддержками
-- последнюю версию настольной системы GUILD, которая (   Читать дальше...   )Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:619C4103A24E0AC55F66BF1A26C6D6D40B2D7C20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029333   (682068) от 26.06.2016
-
-Экшены - GraphicRiver - Porcelain Blast Photoshop Action[ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Porcelain Blast - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA5E6DFE01BF17E613AF7F32F47407D9363708A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029498   (682063) от 26.06.2016
-
-Экшены - GraphicRiver - Mosaic Stained Glass Photoshop Action [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mosaic Stained Glass - экшен для Вашего творчества.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956DF3A71CDE2065B23225665C768B6E273B6046
 ```
 
 https://mybot314.ru/tekegram_catalog/

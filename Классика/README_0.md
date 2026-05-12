@@ -1,3 +1,61 @@
+###  Публикация: 1446909   (1032263) от 11.02.2021
+
+VA - Winter Mood - Sweet Melancholic Piano Music for a Winter Snowy Day (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Classical Romance - Just Romance (04:28)
+02. Melancholic Piano - Piano Song (04:01)
+03. Lolita Drome - Song for Kissing (03:53)
+04. Levon Oran Wind - Winter Sleep (04:00)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37728AF0107821FBE50609EE8FE5C355C76DAB34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446927   (1032261) от 11.02.2021
+
+R.Strauss - Also sprach Zarathustra (2019) [FLAC|Lossless|image + .cue] <Classical orchestral>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Also Sprach Zarathustra, Op. 30, TrV 176
+01. 1. Einleitung (Sonnenaufgang) [0:01:50.18]
+02. 2. Von Den Hinterweltlern [0:03:43.09]
+03. 3. Von Der Großen Sehnsucht [0:02:08.70](   Читать дальше...   )Жанр: Classical orchestralПродолжительность: 01:25:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E90E3999452C924EC7435322885A2A5AA0767D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414966   (1029937) от 21.02.2021
 
 NeoBarock – J.S. Bach: Metamorphose (2019) Ambitus [FLAC 2.0|44.1/24|tracks|WEB-DL] <Classical>
@@ -691,64 +749,6 @@ Pièces En Ré Mineur (11:48)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A98079315A74AFCBDC3BCD6579D93EDEEF0C4CA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467787   (1017526) от 05.05.2021
-
-Изысканная элитарность. «Созвездие хитов. Классика» - J.S. Bach, Beethoven, Bizet, Brahms, Wagner, Vivaldi, Глинка, Grieg, Liszt, Massenet, Paganini (2008) [FLAC|Lossless|tracks + .cue] <Classic ...
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рихард Штраус – Так говорил Заратустра (01:23)
-02. Эдвард Григ – В пещере горного короля (Пер Гюнт) - Сюита No. 1 (02:29)
-03. Никколо Паганини – Кампанелла. Концерт No. 2 для скрипки с оркестром (08:26)
-04. Антонио Вивальди – Времена года - Зима (03:29)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:18:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023D4B211DA25BF2CFB32D3E615E073EB98DD3D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468927   (1016760) от 10.05.2021
-
-Maria Grinberg - Beethoven - Piano Sonatas 18, 19, 20, 21, 22 (2006) [FLAC|Lossless|tracks] <Chamber, Piano, Sonata>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Sonata no. 18 in E-flat major, op. 31 no. 3
-01 (1) Allegro
-02 (2) Scherzo. Allegretto vivace
-03 (3) Menuetto. Moderato e grazioso(   Читать дальше...   )Жанр: Chamber, Piano, SonataПродолжительность: 01:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D0D2E8EFC1E79BA73324E2FCE873D0EBC9DCDE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

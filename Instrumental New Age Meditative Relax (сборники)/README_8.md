@@ -1,3 +1,32 @@
+###  Публикация: 1229299   (627819) от 05.06.2018
+
+VA - Relax & Massage (2018) [MP3|256-320 Kbps] <Relax, Massage, New Age>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wise Man, Traditional Song, The World Of Yoga - Om Asa Toma (Original Mix)
+02. Gomer Edwin Evans - Inner Beauty With ZEN
+03. Thors - Peaceful Island
+04. Marcus Viana - O Hoje e a Eternidade(   Читать дальше...   )Жанр: Relax, Massage, New AgeПродолжительность: 08:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77437FC715D550B0ADDB83DAC20C1C814130BDDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144556   (627369) от 22.06.2017
 
 VA - New Age Compilation (2017) [MP3|320 Kbps] <New Age>
@@ -721,32 +750,6 @@ VA - Relaxing Lounge Music For Your Sleeping Moments (2016) [MP3|320 Kbps] <Down
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46A1BCA2A8C1DE2C6444E898FF594F097772BBF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541550   (583895) от 12.05.2019
-
-VA - Guitar Mania Vol.01-23 (1999-2004) [MP3|320 кб/с]<Instrumental / Surf / Rock'n'Roll>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Instrumental / Surf / Rock'n'RollПродолжительность: 01:11:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D7E0489F073EF8D49C0135FA19EE363647C88EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

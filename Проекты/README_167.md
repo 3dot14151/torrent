@@ -1,3 +1,56 @@
+###  Публикация: 1291981   (648282) от 28.03.2019
+
+Проекты - VideoHive - Baby Slideshow - 23495063 [AEP]
+
+>>Проекты
+>>Детские (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648282.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Baby Slideshow» - стильный интереснейший детский проект для создания элегантного фотоальбома на рождение ребёнка.
+Многие оценят по достоинству.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E17D73155F22E87B3F73E5AF4F83CDC6CACA948
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292211   (648275) от 28.03.2019
+
+Проекты - VideoHive - Parallax Opener - Slideshow - 16069868 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вместе с проектом наполните свои фотографии новым смыслом, придав им объём и рельефность.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8C50EB57F330BE5C717A668E5BD91391F4387DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 799347   (647803) от 25.06.2014
 
 VideoHive – Butterflies Logo Reveal - 3282067 [AEP]
@@ -622,58 +675,6 @@ Dance Cube - видео-заставка для оформления промо-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D100BAC4865E1E5A721961EC85C2600AC59B8051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032396   (645439) от 07.07.2016
-
-Проекты - VideoHive - Clean Flip Logo - 5988691 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clean Flip Logo - простой, элегантный, чистый показ вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:380A2611B41370AC98856624CB18CE83BABB83A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032342   (645335) от 07.07.2016
-
-Проекты - VideoHive - Magical Particles Vortex Logo Reveal - 5086083 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания демонстрации логотипа. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02D011C7BDAB4B364402EEB18AD3EC619FD135C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

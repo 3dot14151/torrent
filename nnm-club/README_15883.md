@@ -1,48 +1,22 @@
-###  Публикация: 1169044   (404050) от 26.09.2017
+###  Публикация: 561376   (406244) от 17.10.2012
 
-Танцы (2017.09.23) HDTV [H.264/1080i] (сезон 4, выпуск 6)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Танцы 4 сезон, в очередном сезоне любимого миллионами танцевального проекта нас ждет противостояние полов, потому что Егора Дружинина больше нет в числе членов жюри. Его место заняла знаменитый хореограф Татьяна Денисова. С появлением нового судьи будут связаны крупные изменения новых деталей проекта. В проекте окажутся хореографы Татьяны, которые станут трудиться (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 01:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF20FA264DEBCAF7DDD384842803A044C23767C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169094   (404049) от 26.09.2017
-
-Amazing Slider Enterprise 6.6 RePack by вовава [Ru/En]
+Nature Wallpapers (15.10.12) [Wallpapers]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406244.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Amazing Slider Enterprise - профессиональная программа, которая позволит пользователям создать красивые слайд-шоу и презентации, которые потом можно легко экспортировать в Dreamweaver, WordPress и другие HTML редакторы. Amazing Slider поддерживает фото и видео YouTube. Таким образом, пользователи могут также создавать видео-галереи высокого качества. В распоряжении (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C5B4FB2F179D80C683B0792D9DB04CDB8F14065A
+magnet:?xt=urn:btih:DDC4FFD3BCBD337286FE1BBE6F96D1065307A8FE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169088   (404048) от 26.09.2017
+###  Публикация: 561412   (406243) от 17.10.2012
 
-ScreenFlow 7.1 [Multi]
+Gilrs Wallpaper (16.10.12) [Wallpapers 16+]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406243.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ScreenFlow  - создаем свои скринкасты
-Бывает, нужно записать видео с экрана для каких-либо ознакомительных целей, либо объяснить непонятливому товарищу, как и что делается в его свежекупленном маке. Именно тогда и встает вопрос — как это сделать? Вот тут ScreenFlow и раскрывается во всем своем великолепии.
-
-Простая, но крайне мощная программа для захвата и записи (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25 сентября 2017Разработчик: Telestream, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Французский и Японский
+Обои для рабочего столаРазрешение файлов: 1680х1050 - 3000х2000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69FA0920CE97159CC9ECCAD0F75DFAAA206B13FF
+magnet:?xt=urn:btih:FD9AE38A614B0D32348FF9E81D467CB34B9BEFA0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,63 +50,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169031   (404047) от 26.09.2017
+###  Публикация: 559890   (406241) от 17.10.2012
 
-Aesop Rock & Homeboy Sandman - Triple Fat Lice (2017) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Rap>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_404047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pins and Needles (prod. by Cohenbeats) (2:53)
-02. Comfy (prod. by Oh No) (3:17)
-03. Pizza and Burgers (prod. by Ben Boogz of 2 Hungry Bros) (3:45)
-04. Yoohoo (prod. by Quelle Chris) (4:29)(   Читать дальше...   )Производство: Rhymesayers EntertainmentЖанр: Hip-Hop, RapПродолжительность: 00:17:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563434   (404025) от 22.10.2012
-
-Trouble Tribe - Trouble Tribe (1990) [MP3|320 кб/с]<Hard Rock | Glam Rock>
+VA - All Colours Of Deep (2011) [MP3|320 кб/с]<Drum and Bass>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406241.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Tattoo (4:09)
-02.  Here Comes Trouble (5:07)
-03.  Gimme Something Sweet (4:02)
-04.  In The End (4:39)
-05.  Back To The Well (4:26)
-06.  Boys Nite Out (4:29)
-07.  Tribal Beast (1:09)
-08.  Red Light Zone (4:35)
-09.  (Angel With A) Devil's Kiss (3:29)
-10.  Dear Prudence (4:06)(   Читать дальше...   )Жанр: Hard Rock | Glam RockПродолжительность: 00:50:30
+01. Mage - Cosmic Station
+02. Aaron Bond - Face The Truth
+03. High Feel - Clone
+04. Nemanoe - Movement In Uncertainty
+05. Kasper & TekSketch - ReEntry
+06. Mage & DJ Ike - Visions Of Love
+07. Nelver - Grand Case
+08. Nelver - Flatline (Nelver Remix)
+09. Beatchemist - I Can't Explain It
+10. White Fang - ConcealedЖанр: Drum and BassПродолжительность: 01:01:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CAE36A7D389AFF1994498AF448729AF85D55ED5F
+magnet:?xt=urn:btih:28ED36309E90BCB452AAEB2AB0E1BCA583D75279
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,34 +85,397 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563356   (404024) от 22.10.2012
+###  Публикация: 560862   (406240) от 17.10.2012
 
-VA - In Da Club Vol.66 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
+VA - Tranceffect 33 (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ill Listen (Original Mix) - Armin van Buuren feat. Ana Criado
+02. Amsterdam (Original Mix) - Orjan Nilsen
+03. K Ta (Original Mix) - Andy Moor
+04. From Bad To Worse (Original Mix) - I5land Vs.Matt Pincer
+05. New Born (Original Mix) - Tom Colontonio & Orla Feeney
+06. Plify (Original Mix Edit) - Ram
+07. Sirius (Ikerya Project Remix) - Eddie Lung
+08. Galactica - Nick Rowland
+09. Everblue (Adam Foley Remix) - Michael Lee
+10. Seek The Shore (Next DJ ILNY Mashup) - Sandeagle & Electribe vs Amanda Wilson(   Читать дальше...   )Жанр: TranceПродолжительность: 01:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03467B36D490303036E6C2F8CB7E575D731F9643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561578   (406238) от 17.10.2012
+
+[Wallpapers] HQ Wallpapers №56
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406238.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HQ Wallpapers №56
+Название: HQ Wallpapers №56
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1172EAB0E85F1A98F24528672CE1F8589DB8074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560744   (406237) от 17.10.2012
+
+Butterfly - Favorite Colors Episode 052: 1 Year Anniversary Special (06.10.2012) [MP3|320 кб/с]<Progressive, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glenn Morrison -  I See You In Me (Original Intro Mix)
+02. Matt Bukovski feat. Tiff Lacey -  Swept Away (Original Mix)
+03. Velvetine feat. Aruna -  The Great Divide (Soundprank Remix)
+04. Protoculture -  Perpetual Motion (Original Mix)
+05. Phillipo Blake & EDDY feat. Nika -  We Stroll Together (Alex Tasty Remix)
+06. Ralphie B -  The Holy Grail (Original Mix)
+07. Stoneface & Terminal -  Gallery Of Sound (Club Mix)
+08. Bobina -  The Space Track (Andrew Rayel Stadium Remix)
+09. Tenishia -  Where Do We Begin (Andrew Rayel Remix)
+10. Menno De Jong -  Guanxi (Original Mix)(   Читать дальше...   )Жанр: Progressive, TranceПродолжительность: 01:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94275FC8E5D0ADAB1BC11C76D48B37955BC20A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561400   (406234) от 17.10.2012
+
+Wallpapers Fantasy (15.10.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B028D04FF3A90ADFD3B5D8668825141829F561B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561331   (406232) от 17.10.2012
+
+Reel People - 10 Years Of Soulful Bliss (2012) [MP3|320 кб/с]<Deep House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Star (feat. Tony Momrelle)
+02. Can't Stop (feat. Angela Johnson)
+03. It Will Be (feat. Tony Momrelle)
+04. Butterflies (feat. Dyanna Fearon)
+05. Outta Love (feat. Omar)
+06. Golden Lady (feat. Tony Momrelle)
+07. The Light (feat. Vanessa Freeman)
+08. Alibi (feat. Darien)
+09. Second Guess (feat. Jag)
+10. The Rain (feat. Sharlene Hector)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FFF2BD3A33943C0C7011E6905A5FE89E655996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561706   (406230) от 17.10.2012
+
+Журнал | Формула ремонта №2 [март 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Информационный журнал о дизайне, строительстве и ремонте. Состоит из редакционных статей с комментариями специалистов на данную тему, демонстрации интерьеров дизайнеров, тест-драйвов и мастер-классов от хендмейкеров. Кто, как не мы можем рассказать, что ремонт в доме можно делать с удовольствием!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97239A06DA76F0DEE8FBE0D660BE45BBE83C83DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561381   (406227) от 17.10.2012
+
+HQ Wallpapers for a desktop (15.10.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1D650D8B0F42153FC2A3109DD989860FB7902BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559933   (406224) от 17.10.2012
+
+VA - dBridge & InstraMental - Fabriclive 50 (2010) [MP3|320 кб/с]<Drum and Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riya - Seems Like
+02. Instra-mental - From the Start
+03. Stray - Pushed
+04. Dan Habarnam - Nu Este Roz
+05. Vaccine - Ochre
+06. ASC - Starkwood (Consequence Remix)
+07. Consequence - Lover's Shell
+08. Distance - Sky's Alight (Dub)
+09. Alix Perez - Self Control
+10. Genotype - Distorted Dreams / Meleka - Go (Accapella) - Meleka(   Читать дальше...   )Жанр: Drum and Bass, DubstepПродолжительность: 01:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35EF509AB2D33C862E7580CF0509FFCA6C653105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559928   (406222) от 17.10.2012
+
+VA - Danny Wheeler Presents - The Brazil Project (2010) [MP3|128 - 320 кб/с]<Drum and Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406222.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Laranjeiras - Azymuth (Danny Wheeler Remix)
+2. Juntos Mais Uma Vez - Azymuth (Danny Wheeler Remix)
+3. Sem Pressa - Alex Malheiros and Banda Utopia featuring Sabrina Malheiros (Danny Wheeler Remix)
+4. 4 Eyed Viper - Alex Malheiros and Banda Utopia featuring Sabrina Malheiros (Danny Wheeler Remix)
+5. Vibrasom - Sabrina Malheiros (Danny Wheeler Remix)
+6. Copa A Noite - Alex Malheiros and Banda Utopia featuring Sabrina Malheiros (Danny Wheeler Remix)
+7. Nao Quero Nem Saber - Sabrina Malheiros (Danny Wheeler Remix)
+8. Butterfly - Azymuth (Danny Wheeler Remix)
+9. Maracateura - Sabrina Malheiros (Danny Wheeler Remix)
+10. Deixa a Nega Gingar - Clara Moreno (Danny Wheeler Remix)(   Читать дальше...   )Жанр: Drum and BassПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0C52C63BA832C7ABAE2350C59EAD064EAF2D8F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561563   (406221) от 17.10.2012
+
+Журнал | Здоровье в доме №41 [2012] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406221.jpg" />
+</div>
+
+
+###  Подробнее
+
+О печени уже писали. И читатели знают, что от нее зависит здоровье всего организма. Но все равно многие не на шутку рискуют печенью. Бьют по ней ежедневно! Алкоголем, жирной или фастфудовской едой, токсичными веществами (в быту их полно!) и лекарствами.
+То, что печень современного человека нуждается в защите, уже не секрет. Так чем же ее защитить? Правильным питанием. Включите в рационе продукты из 5 основных групп: злаки, молочные продукты, овощи и фрукты, а также жиры и белки (чтобы определить суточную долю белка в граммах, умножьте свой вес на 0,8). Пейте от 1 до 2 литров жидкости в день. И посвящайте минимум 30 минут физическим нагрузкам. При работе с химикатами используйте маску и перчатки, проветривайте помещение. Будьте осторожны со спиртным. А если вам назначены лекарства, попросите врача также посоветовать вам гепатопротекторы (средства для защиты печени).
+И еще - не злитесь, а лучше улыбнитесь!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B784310AB13680C04D5BC8ED3C92436BE3D026BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561682   (406218) от 17.10.2012
+
+Журнал | Народный лекарь №19 [октябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал создан для тех, кто заботится о своем здоровье, ведёт здоровый образ жизни и интересуется как традиционными, так и народными методами лечения и профилактики различных заболеваний. В каждом номере – авторские статьи, интервью с ведущими специалистами в области фитотерапии, гомеопатии и народной медицины, а также письма читателей с советами и рецептами.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F79B023C9975DD5DD4EA3FECD8239D6602CD9C21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561399   (406214) от 17.10.2012
+
+Desktop Wallpapers (16.10.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CDB4372CD8D803C4612BDBE5E586D06B8F88EA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561419   (406212) от 17.10.2012
+
+VA - Deep+   Vol. 5 (2012) [MP3|320 кб/с]<Deep House(Tech House,Vocal House)>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406212.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Various - Earth Hour (Club Mix)
-002. Rex Mundi - Interstate Of Lightning (Original)
-003. Susana feat. Julian Vincent - Fall In Deep (Alexander Popov Remix)
-004. Ralphie B - Delphi (Original Mix)
-005. Ridgewalker feat. El - Find (Andy Moor Remix)
-006. Ruben De Ronde - Timide (Andrew Rayel Remix)
-007. Tucandeo - Lockdown (Big Room Mix)
-008. Tritonal & Sibicky - Suzu (Ben Gold Remix)
-009. Wellenrausch - Sanctified (Original Mix)
-010. Tenishia & Ruben de Ronde - Story Of Life (Julian Wess & Mike Carey Dub Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:54:23
+01. Alloise - Love Me Or Leave Me (Anturage & Amnesia Haze Dual Sided Mix) (4:56)
+02. Andrew Bayer - You (8:08)
+03. Biotones - My Little Inner World (Original Mix) (6:12)
+04. Kasper Bjorke - Bohemian Soul feat. Laid Back (Adana Twins 'On A Cloudy Day' Remix) (7:05)
+05. Brian Berg, Voxhoff - Have It All (Original Mix) (6:51)
+06. Bunte Bummler - The Hunger (feat. Daniel Wilde)(Betoko Remix) (7:16)
+07. Calippo - When Freddy's Done (Original Mix) (5:49)
+08. Chocolate Avenue - see dem boys (original mix) (7:06)
+09. Chocolate Puma - Destiny feat. Colonel Red (Lorenzo Kurizu Remix) (7:25)
+10. Chris James feat. Ria Moran - Song For Her (Audiojack's Dub for Ra) (6:09)(   Читать дальше...   )Жанр: Deep House(Tech House,Vocal House)Продолжительность: 04:30:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:209F9E21F0160512E48D20BF657ED52FEA067703
+magnet:?xt=urn:btih:EFE8B05A60F3A080F4771ECECBA730C52DA4F698
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -178,25 +483,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 564058   (404023) от 22.10.2012
+###  Публикация: 561441   (406204) от 17.10.2012
 
-Леонид Смирнов | Эра Броуна [2008] [FB2]
+Artworks by BossLogic [Графика]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406204.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мир сошел с ума. Животные обрели разум, а люди – паранормальные способности… Каждый получил способность переселяться в чужое тело – и безнаказанно творить все, что пожелает… Дети заговорили на странном, непонятном для взрослых языке… С гор спустились монстры, считавшиеся легендой… Кто спасет нас? Кто остановит Эру Броуна – эру хаоса и безумия?!Формат: FB2
+Artworks by BossLogic
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90F80288B19E16E2E077E066DD6A7E7776C0BB8E
+magnet:?xt=urn:btih:69D41B9DEF3229B17AD454C88DD989E884FDC375
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -204,448 +509,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 562272   (404021) от 22.10.2012
+###  Публикация: 561728   (406202) от 17.10.2012
 
-[Wallpapers] Нравятся! Сотня № 078 (1920х1080-2560х1600)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
-Большое спасибо неизвестным авторам этих работ.
-Хотя на вкус и цвет...Разрешение файлов: от 1920х1080 до 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CCE1CFFD21448D8607EAF70C6BBD3C0371F5F99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563930   (404019) от 22.10.2012
-
-VA - Хитовый Бум Осень (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404019.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eros Ramazzotti - Un Angelo Disteso Al Sole
-002. Khaled feat. Pitbull - Hiya Hiya
-003. Leona Lewis - Glassheart
-004. Rawanne feat. Toni Tonini - Millionaire (Radio Edit)
-005. Pashtet - Уколы Совести (OST Карпов)
-006. Жека Баянист - Bara Bara Bere Bere (Russian Version Club Mix)
-007. Sandra N. - Obsession (Radio Edit)
-008. Xonia - Remember (Radio Edit)
-009. Влад Соколовский - Мир Сошёл С Ума
-010. Pitbull feat. TJR - Don't Stop The Party(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:13:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3DF67C8F929C1629629ACBAB79A9425924E4F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563729   (404018) от 22.10.2012
-
-Журнал | Домой. Интерьеры плюс идеи №4 [апрель 2010] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание рассказывает о самых интересных тематических выставках, о новинках техники, материалов, мебели и аксессуаров, знакомит с принципами их выбора, проводит тесты бытового оборудования.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6E0EF853F7B4EC9A4C908A150F274CFCE82FCF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563933   (404017) от 22.10.2012
-
-VA - Супер новая двухсотка хитов 50/50 (2012) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404017.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Полина Гагарина - Нет
-002. Akon - America's Most Wanted
-003. Anton Liss feat. Вика Маскова - Прощай (Radio Edit)
-004. Justin Bieber feat. Nicki Minaj - Beauty And A Beat
-005. Жанна Фриске - Навсегда (ChinKong Production Mix)
-006. Pitbull - Sube Las Manos Pa Arriba
-007. J.S.T. - Электронный Вальс (Radio Mix 2012)
-008. R.I.O. feat. Nicco - Party Shaker (Video Edit)
-009. Archi-M и Андрей Леницкий - Клавиши Души
-010. Usher - I.F.U(   Читать дальше...   )Жанр: PopПродолжительность: 12:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A431BFA8E00A3B75F299447A6D493B78BAE527FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563888   (404016) от 22.10.2012
-
-Журнал | Рыболов профи №10 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всеукраинский журнал для рыболовов, издающийся на русском языке. Основан в 2006 году.
-Журнал «Рыболов профи», это журнал не только о тех, кто превратил рыбалку из увлечения в профессию, но и о тех, кто стремится постичь все тонкости этого особого способа общения с миром, стать профессионалом своего дела.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0073118518F4AA0EFA40EC533D213C207F307755
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563735   (404014) от 22.10.2012
-
-Журнал | Домой. Интерьеры плюс идеи №2 [февраль 2010] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание рассказывает о самых интересных тематических выставках, о новинках техники, материалов, мебели и аксессуаров, знакомит с принципами их выбора, проводит тесты бытового оборудования.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F9D6AF3341B991DB7482A887EFA8D4D3573D7B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563731   (404012) от 22.10.2012
-
-Журнал | Домой. Интерьеры плюс идеи №3 [март 2010] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание рассказывает о самых интересных тематических выставках, о новинках техники, материалов, мебели и аксессуаров, знакомит с принципами их выбора, проводит тесты бытового оборудования.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FDCAA7C827F43C00C8889A142D4083A63CF5413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563944   (404010) от 22.10.2012
-
-VA - Хит Сезона Love Radio Русский (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404010.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Samo'L - Двигаем Телами
-002. Потап и Настя - Улелето
-003. Виктория Дайнеко - Дыши
-004. VITA - Вставай!
-005. Саундмания - До встречи в скайпе
-006. Roma Kenga - Наш Бой Окончен
-007. Девушки Эйнштейна - Шуга
-008. El Ray & Марина Алиева - Вселенная Любви
-009. Milena & Murzin Denis - В эту ночь
-010. Оксана Ковалевская - А Девочке Хочется(   Читать дальше...   )Жанр: PopПродолжительность: 5:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75E28B40E9FA1635C1654D5F751D58A9FAB6818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169109   (404006) от 26.09.2017
-
-Autograph - Buzz (2003) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break A Sweat
-02. Shake The Tree
-03. She's The Reason
-04. Fed Up With Bein' Down(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08D2153DA64CB942839BC1AA4B0860E4C0F94C59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169277   (404005) от 26.09.2017
-
-Ногу свело! - Ватрушки (2017) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404005.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ВатрушкиЖанр: RockПродолжительность: 00:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:042B0ACEDA0ED199477447A5E0D15102ED012E1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169111   (404004) от 26.09.2017
-
-Растровый клипарт - Poser #21 [PNG]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_404004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт девочка (Poser) на прозрачном фонеФормат: PNGРазрешение файлов: 198x323-1230x1844
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169041   (404003) от 26.09.2017
-
-Love Is / Comedy Club / Comedy  Woman (2017.09.22) HDTV [H.264/1080i-LQ] (выпуск 6)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404003.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Love is» — это экшен, мелодрама, триллер, но прежде всего комедия, снятая по стандартам Голливуда и Болливуда. Сочная качественная картинка, киношные спецэффекты и реалистичные декорации ставят проект ТНТ особняком, позволяя говорить о рождении нового жанра — кино-скетчком. «Love is» — это пять разных историй о пяти совершенно непохожих друг на друга женщинах. Единственное, (   Читать дальше...   )Телекомпания: ТНТЖанр: Юмор, ТВ-ШоуРежиссер: Рустам ИльясовСубтитры: ОтсутствуютПродолжительность: ~ 00:23:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC71E305537576D3FB251B7EA01AAAE7268D17C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169113   (404002) от 26.09.2017
-
-Растровый клипарт - Герберы, лилии и хризантемы [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт цветы на прозрачном фонеФормат: PNGРазрешение файлов: 182х467-3497х2811
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41601E7494857BB198F65133926C1694C2F273B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169125   (404001) от 26.09.2017
-
-Растровый клипарт - Autumn Gold #2 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт осень золотая на прозрачном фонеФормат: PNGРазрешение файлов: 219х700-2273х2662
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4348D4E519907BADDF65922782C44E7A9C69C8BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169104   (404000) от 26.09.2017
-
-Растровый клипарт - Set Birds [PNG]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_404000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт птицы на прозрачном фоне (32 шт)Формат: PNGРазрешение файлов: 671х781-8000х6651
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169193   (403999) от 26.09.2017
-
-И.Н. Хмельнов, Э.М. Чухраев | Бунтующий флот России. От Екатерины II до Брежнева (2015) [FB2, EPUB]
+Р.А.Шмаков (глав.ред.) | Дельфины служат флоту [1998] [PDF]
 
 >>Научная и техническая литература
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406202.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В богатой и разнообразной истории российского флота есть особые страницы, связанные с его участием в различных протестных движениях, мятежах, восстаниях и революциях, которых в России всегда хватало. И военные моряки часто оказывались в них в передовых рядах и играли особую роль. Это необычные и важные события, которые органически и навсегда вплетены в общую яркую (   Читать дальше...   )Жанр: Военная история, История флотаФормат: FB2, EPUB
+Сборник статей, посвященный истории создания и деятельности научно-экспериментальной базы Военно-Морского Флота на Черном море в районе Севастополя. База была создана для проведения исследований в натурных условиях по гидродинамике, гидроакустике, бионике и включала в себя экспериментальные лаборатории, специальные полигоны и единственный в Советском Союзе дельфинарий, в котором были выполнены уникальные эксперименты с дельфинами. В базе были проведены многочисленные исследования на крупномасштабных буксируемых и автономных моделях; база обеспечивала проведение испытаний на экспериментальной подводной лодке-лаборатории проекта 1710, которые были прерваны из-за распада Союза.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B98492ADE21B4105179E20A5CE8A4BB9BDAFAC4
+magnet:?xt=urn:btih:EEA6BE0FD4040534DDE97A5B0D58B018DF42775B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -653,78 +535,227 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169219   (403998) от 26.09.2017
+###  Публикация: 561731   (406200) от 17.10.2012
 
-М.А. Герд | Реакции и поведение собак в экстремальных условиях (1976) [FB2, EPUB]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403998.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются разработанные автором методы исследования некоторых вегетативных явлений, деятельности нервной системы, эмоционального состояния и поведения собак. Сон, позы, движения и звуки используются как показатели их состояния. Многие явления описываются, систематизируются и оцениваются количественно.
-Показаны различные способы тренировки собак находиться (   Читать дальше...   )Жанр: Биология, ГенетикаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7286F69987125E55B0CAF5E55F745871A0E608FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169124   (403997) от 26.09.2017
-
-Т.В. Скиба | Лучшие загадки для малышей (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загадки - это отличное средство без всякой подготовки и совсем без усилий активно заняться с ребенком, одновременно развивая его сообразительность, эрудицию, фантазию и чувство юмора.Жанр: ДосугФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B49EB4928DD14DC32171085838760BFAFDBFDF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169127   (403996) от 26.09.2017
-
-Журнал | Школа гастронома №5 (290) (2017) [PDF]
+Журнал | Энциклопедия здоровья №18 [сентябрь 2012] [PDF]
 
 >>Журналы
->>Кулинарные журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406200.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал для тех, кто любит готовить. В каждом номере - множество полезной и интересной информации: советы и тонкости приготовления блюд от известных шеф-поваров, кондитеров, кулинарных блогеров; практическая информация о продуктах, которые используются в рецептах, а также о приправах, гарнирах и напитках, которые с ними идеально сочетаются. Мастер-классы сопровождаются (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+Это издание своего рода настольная энциклопедия здоровья, в каждом выпуске которого вы найдете информацию посвященную лечению и профилактике наиболее распространенных заболеваний.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:139E1052384E291DE2A427C2796EB98017FC2BAF
+magnet:?xt=urn:btih:7F0A34BC7698DAE5476B827F05ECE4D551F39105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561700   (406199) от 17.10.2012
+
+И.К.Антонова | Марксизм вне политики. Источники, генезис и структура работ Маркса и Энгельса по естествознанию [2004] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406199.jpg" />
+</div>
+
+
+###  Подробнее
+
+В работе дан философско-текстологический анализ химических, геологических и других эксцерптов Маркса, а также его математических рукописей. Изложению данных вопросов предшествует исследование места естествознания в философском и экономическом наследии Маркса на основе достижений современной философии, текстологии и методологии науки. Отдельная глава посвящена анализу работ Энгельса по вопросам философского обобщения естествознания.  В научный оборот вводятся ранее не исследованные рукописи Маркса и Энгельса. Рукопись написана в результате работы автора над подготовкой и рецензированием томов Полного собрания сочинений Маркса и Энгельса на языках оригинала (МЭГА).Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F71B031E129F634BA91CD67B4282094FD7F49C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560775   (406196) от 17.10.2012
+
+Tiesto - Club Life 289 (14.10.2012) [MP3|192 кб/с]<House / Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hour 1:
+01. Gossip - Move In The Right Direction (Kaz James Remix)
+02. Jordy Dazz & Dannic vs. Rihanna - Where Has Fuego Been? (ID Remix)
+03. Jensby - Foldback
+04. Lenny Kravitz vs. Leon Bolier - Are U Gonna Go Us (Dannic Mashup)
+05. Hard Rock Sofa & Squire feat. Max'C - Just Can't Stay Away
+06. Felix Da Housecat feat. Miss Kittin - Silver Screen Shower Scene (Brainless Bootleg)
+07. Tommy Trash & A-Trak - Tuna Melt
+08. Sebastian Ingrosso & Tommy Trash - Reload
+09. EITRO - Character?(   Читать дальше...   )Жанр: House / Electro HouseПродолжительность: 01:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF91368A8719144DF5AF3AD082F7DAA5B1DCA44D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561635   (406195) от 17.10.2012
+
+Газета | Вятская правда № 233 [15 октября 1921] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Читайте в номере:
+— Промышленный кризис в Англии;
+— Наша внешняя торговля;
+— Достижения на хозяйственном фронте;
+— Борьба с голодом;
+— В Вятке: Пленум Губисполкома
+и др. материалы.
+
+В номере 2 страницы, собственный скан.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A32CA692BBD4DF5366627CE559973C16BA25B3EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561534   (406194) от 17.10.2012
+
+О.В.Черенин | Шпионский Кенигсберг [2012] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена деятельности спецслужб Германии, Польши и СССР на территории Восточной Пруссии в 1920-1940-е годы. Был ли ректор Кенигсбергского университета агентом советской разведки? Какую роль сыграл японский консул в Кенигсберге в освещении хода подготовки Германии к нападению на Советский Союз? Какую работу проводил источник советской разведки "Люкс" в окружении гауляйтера Эрика Коха? На эти и другие вопросы читатель получит ответ, прочитав эту книгу.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:692AADB78281F7758365CC5D31760A6B64B50FB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561444   (406190) от 17.10.2012
+
+Artist Zhu Haibo [Графика]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Artist Zhu Haibo
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F05C6BCE048EAFEABB64B64E9C821F230F782DCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560831   (406186) от 17.10.2012
+
+Ящерица / Marmoulak (2004) [H.264] DVDRip [PER/EN,FR sub]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реза Marmoulak, главный герой, вор известный в криминальных кругах за его способность к лазанию по стенам зданий (из-за которого он и получил свое прозвище, "Marmoulak", или "ящерица" на персидском языке).
+В самом начале фильма, он арестован и обвинен в вооруженном ограблении, преступлении, которого, как раскрывается на протяжении фильма, он не совершал. Тем не менее, он приговорен к пожизненному заключению, и встретил в тюрьме жестокого надзирателя, который говорит, что его целью является "сделать из Резы человека" и, чтобы заставить его покаяться, так что он будет "принят на небеса силой", если это необходимо.Жанр: Драма, КомедияРежиссер: Камал ТабризиАктеры: Parviz Parastui, Бахрам Ибрахими, Shahrokh Foroutanian, Farideh Sepah Mansour, Мидех ТахмасебиПеревод: ОтсутствуетЯзык субтитров: Английский, французскиеПродолжительность: 1:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B4AC654C385D1C3AC14C5F2BC286E4E3D07D678
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561124   (406184) от 17.10.2012
+
+Газета | Восточно-Сибирская правда № 228 [27 сентября 1959] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406184.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Восточно-Сибирская правда» — общественно-политическая и деловая газета Иркутской области. Первый номер газеты (до 1930 года — «Власть труда») вышел 12 января 1918 года. В настоящее время — независимое средство массовой информации, учредитель ЗАО "Газета «Восточно-Сибирская правда». В просторечии — «Восточка».
+
+В номере 4 страницы, собственный скан.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD7EEF0A04D4B5E935D1588FCAF27D82307289E
 ```
 
 https://mybot314.ru/tekegram_catalog/

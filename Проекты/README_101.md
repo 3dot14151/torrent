@@ -1,3 +1,55 @@
+###  Публикация: 1200327   (796077) от 20.01.2018
+
+Проекты - VideoHive - Alert - 21034132 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alert - простой шаблон, позволяющий создать для вашего продукта красивое превью. Очень прост в использовании.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E43350C327DBAC508A07A00C7EC45A04EDDAE06D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200240   (796075) от 20.01.2018
+
+Проекты - VideoHive - Website Presentation - 21050362 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Website Presentation - это проект, который можно использовать для рекламы и продвижения вашего сайта, в него входят 13 изображений, в которых вы можете показать ваш сайт с разных сторонФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33F106794D2928E0E572426BB157FE409DCF256C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011558   (796054) от 28.04.2016
 
 Проекты - VideoHive - Elegant Stripes Opener [AEP]
@@ -625,60 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF78C8B5FAB7E937F1BDD26FA291FE6E8479456C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012206   (794456) от 30.04.2016
-
-Проекты - VideoHive - Cinematic Parallax [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слайд шоу.
-Проект для использования в After Effect.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E5EC5980C00B858D61784D4DF7C1C7D2BF9C5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012254   (794454) от 30.04.2016
-
-Проекты - VideoHive - Big Titles Pack - 15078771 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Титры для Вашего творчества.
-Проект для использования в After Effect.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E68256198CE901B919E093A604091049733578E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

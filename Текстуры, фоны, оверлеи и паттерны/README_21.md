@@ -1,3 +1,29 @@
+###  Публикация: 1835139   (250563) от 05.11.2025
+
+Оверлеи - Envato - Blue Light Circles Overlays - TYBQANP [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оверлеи из 15 кругов синего света.Формат: JPGРазрешение файлов: 5000x3333
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B25D3E66525BE3BFDE726CA4A1F5C559E7CF1E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835147   (250562) от 05.11.2025
 
 Текстуры - Creative Market - Plastic Wrap Overlay Textures - 291194318 [PNG, FIG]
@@ -650,33 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12C2465D663A9509AF1A35875AE2809331072BC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642928   (210172) от 30.06.2023
-
-Текстуры - freeject.net - Glued Paper [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210172.jpg" />
-</div>
-
-
-###  Подробнее
-
-48 текстур бумаги с эффектом клея на стене
-Paper with Texture effect glue on the wall, you can use to create a poster design to make it look more real. You can also use to create mockup designs. Or just simply texture the design to make it look cooler. Glued paper texture created especially for you who like the style of dirty design, street design, hypebeast design, (   Читать дальше...   )Формат: JPG, PNGРазрешение файлов: 3204 x 4484
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA31C5CC6396D833E6365C3AC3C53C3151239DDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

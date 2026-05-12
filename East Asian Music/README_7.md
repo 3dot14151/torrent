@@ -1,3 +1,32 @@
+###  Публикация: 1546035   (604429) от 25.04.2022
+
+Dexcore - Metempsychosis (2020) 2CD, Extra [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Deathcore, J-Rock>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604429.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Dead Sea
+2. Mistake
+3. above the Clouds
+4. A.S.H(   Читать дальше...   )Жанр: Metalcore, Post-Hardcore, Deathcore, Progressive, J-CoreПродолжительность: 2CD, 02:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A27A70E2610BBBE0F654772A889EA41CD86CBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546336   (604288) от 25.04.2022
 
 Saber Tiger - Paragraph V (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy, Power, Progressive Metal>
@@ -720,35 +749,6 @@ Jerico's Law — 16 альбомов (2010-2019) Touhou Instrumental /Doujin/ [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E314996001A6CD0F5F238E210A8C1C3F8ECE02C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047291   (549881) от 29.08.2016
-
-Infinity of Sound - Girls on the Moon (2016) [MP3|320 Kbps] <K-Pop, Traditional, Covers>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dolphins
-02. I'm Your Cat
-03. Girls on the Moon
-04. Dreaming(   Читать дальше...   )Жанр: K-Pop, Traditional, CoversПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2475CF6D2016A4BF8DD76017E8E45EFDE81DE574
 ```
 
 https://mybot314.ru/tekegram_catalog/

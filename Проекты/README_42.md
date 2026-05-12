@@ -1,3 +1,56 @@
+###  Публикация: 864587   (919603) от 29.01.2015
+
+Проекты - VideoHive - Diamond Glitter Titles - 7576415 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Refraction - проект для создания титра в драг камнях.
+Многие оценят по достоинству.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB597F11DEDF58AC127C832488DA0514CF822E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 864598   (919508) от 29.01.2015
+
+Проекты - VideoHive - School Chalkboard v.1.0 - 4228561 [AEP]
+
+>>Проекты
+>>Детские (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд-шоу на школьную тематику.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B45A82E5342E1BF981F9041411A2F94A63CA2A5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096540   (918930) от 24.01.2017
 
 Проекты - VideoHive - 3D Stylish Slideshow [AEP]
@@ -623,59 +676,6 @@ Grunge Vintage Slideshow Titles - проект с большим количес�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DB65624E6A492D6611C3E4C7F9FCC0036D49A75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367285   (916976) от 15.03.2020
-
-Проекты - VideoHive - This is my story - 8501238 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916976.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Memories» - стильный элегантный проект для создания винтажного слайд шоу собранного в стиле "по волнам воспоминаний".
-Многие оценят по достоинству.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7651E69362376B734FD3E1A92715D3039E156AF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367331   (916946) от 15.03.2020
-
-Проекты - ProShow Producer - White Christmas 2020 [PSH]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивое слайдшоу на новогоднюю тему. Дерзайте!Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15CF3D1CF843C0BB4A3D30B85072E7630AAB4479
 ```
 
 https://mybot314.ru/tekegram_catalog/

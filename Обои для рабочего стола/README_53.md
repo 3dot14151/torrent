@@ -1,3 +1,29 @@
+###  Публикация: 546204   (480214) от 12.09.2012
+
+Логотипы Windows, Linux, Apple и пр. (12.09.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E0BA85CE5D10D7D17B3C82396CBC153C200E6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938769   (479882) от 19.09.2015
 
 Обои - Реки 14 [JPG]
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A09C605FBCC8D4CD97D0A601A17F2139CCB23BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547672   (472164) от 16.09.2012
-
-HQ Wallpapers by KSV (15.09.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8719535B31F4385B146D6C2579CB60C46B142A3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

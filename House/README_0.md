@@ -1,3 +1,61 @@
+###  Публикация: 1858120   (1060101) от 09.03.2026
+
+VA - Déepalma Spotlight: Dilby (Extended Club Versions) (2026) [MP3|320 Kbps] <Progressive House, Melodic House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dilby & nineteen79 - Lift Me Up (Extended Mix) [6:11]
+02. Dilby & Lakyn - Feeling Good feat. Lakyn (Extended Mix) [6:44]
+03. Dilby - Passing Notes (Original Mix) [7:02]
+04. Dilby & DNCN - The Station (Original Mix) [6:48](   Читать дальше...   )Жанр: Progressive House, Melodic House, Deep HouseПродолжительность: 01:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD847E9FC8A80B7ACB38AA374FB7019C5BE71218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857959   (1059972) от 08.03.2026
+
+VA - DEEP HOUSE RELAX 2026: The Pulse (2026) [MP3|320 Kbps] <Deep House, Organic House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Kay & M-Sol DEEP - Bohemian Dreams (Original Mix) [3:23]
+02. Dio S & M-Sol DEEP - Autumn Leaves (Original Mix) [6:40]
+03. Proluction & M-Sol DEEP - I Regret (Original Mix) [5:37]
+04. Mikhail Talanov & M-Sol DEEP - Airflow (Original Mix) [6:52](   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8803B913E58524653A984EBB00B870948B6AA9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857773   (1059805) от 07.03.2026
 
 VA - Ibiza Spring 2026 (Deep-House Smoothies from the Heart) (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
@@ -687,64 +745,6 @@ Disc 1 (02:55:30)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9F0BFD22BBC6D5779158B7700EDFE4AF0644596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845071   (1050325) от 29.12.2025
-
-VA - Happy New Year Party 2026 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic - SSONDA 02:43
-02. 90bangerz - Para Ri Para Ra 02:05
-03. JLUIS - Universe 03:10
-04. Stephan F - Supernova 03:04(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03D49C1A617F0A511C5EFCB19CECB9FB8582177F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843274   (1049225) от 19.12.2025
-
-VA - Armada Music Year Mix 2025 (2025) Extended Versions [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juan Magan, Brando & Eleni Foureira – Truth or Dare (Extended Mix) (03:12)
-02. Nadia Ali, Iro & Summer Is Calling – Almost Home (Extended Mix) (04:55)
-03. Audien, Shallou & Rosie Darling – Bittersweet feat. Rosie Darling (Extended Mix) (03:48)
-04. Edward Maya, Valentino Indy & Klavdia – Back To BlueЖанр: Dance, Club, House, ElectronicПродолжительность: 08:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71420EEDCE3830CE63D05BDAA96296A8D49043CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

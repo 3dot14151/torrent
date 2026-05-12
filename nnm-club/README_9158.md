@@ -1,25 +1,25 @@
-###  Публикация: 1133118   (696790) от 11.05.2017
+###  Публикация: 1288357   (697779) от 10.03.2019
 
-Александр Дюмин - Золотые хиты - Golden hits (2008) [FLAC|Lossless|image + .cue] <Шансон>
+Moss Covered Technology - Southern Points (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Ambient, Drone>
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697779.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Показания невиновного
-02. Сказочная беседка
-03. Друзья
-04. Зараза, брось!(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:00:25
+1 	A Shared Sudden Sun 	4:45
+2 	West Of Seatown 	6:54
+3 	Coastal Light 	6:16
+4 	To Protect You 	5:08(   Читать дальше...   )Жанр: Electronic, Ambient, DroneПродолжительность: 00:51:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71B274D6FD70063FF69DB7BEC6E335DF6596A31E
+magnet:?xt=urn:btih:CD829C29D014B0CC1D88FA4B50FEA4CEA668F332
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133029   (696789) от 11.05.2017
+###  Публикация: 1288152   (697778) от 10.03.2019
 
-Debian GNU/Linux 8.8 Live Jessie (free + nonfree) [i386] 14xDVD
+П. Н. Баташев | Ленская забастовка [Воспоминания председателя Центрального бюро стачечного комитета] (1933) [DJVU]
 
->>Linux, Unix и другие ОС
->>ОС Linux
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697778.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект Debian с радостью сообщает о восьмом обновлении своего стабильного выпуска Debian 8 (кодовое имя "jessie"). Это обновление в основном содержит исправления проблем безопасности стабильного выпуска, а также несколько корректировок серьёзных проблем. Рекомендации по безопасности опубликованы отдельно и указываются при необходимости.  Выпуск включает (   Читать дальше...   )
+Ленская забастовка вспыхнула в 1912 г., когда рабочее движение переживало лишь первые признаки подъема. Несмотря на героические «всенародные классовые битвы 1905—1907 гг.», революция была подавлена, рабочие и крестьянские массы были разбиты. Помещики-крепостники остались у власти.Жанр: История, политология, публицистикаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDF4009181096B15ED16BCCEB59BEE163D14AFC2
+magnet:?xt=urn:btih:3D607AC4993487FE5D2AA6AAA502B3C040AA9C4E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133076   (696788) от 11.05.2017
+###  Публикация: 1288243   (697777) от 10.03.2019
 
-Наталья Александрова | Шашлык из козла отпущения (2017) [FB2]
+VA - Aerobic Dance Latino 2019 [MP3|320 Kbps] <House, Club, Dance>
 
->>Художественная литература
->>Боевики, Детективы, Триллеры
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697777.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Детектив Надежда Лебедева, как и положено герою классической драмы, снова на распутье. Долг и чувство зовут ее в противоположные стороны. Долг требует остаться дома с мужем и котом, потому что муж и особенно кот для каждой порядочной домохозяйки – это святое. А инстинкт сыщицы толкает в провинциальный Козодоев, где без нее, Надежды, никто, конечно, не справится с (   Читать дальше...   )Жанр: Иронические детективыФормат: FB2
+01. Various Artists - Aerobic Dance Latino 2019 - 1 Hour Non Stop Music Mix For Aerobics, Step & Workout - (One Hour Continuous Mix)
+02. Luka J Master;Carlo M - Vem (feat. Regina Saraiva) (Sanny J Mix)
+03. Sapienza;Ruly Rodriguez - Asere K Bola (Andry J Remix)
+04. Luigi Pilo;Miky Vibes - Ando (Extended Mix)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:32:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67BC550924A6535226FE91CA7F927E876FAF0BA4
+magnet:?xt=urn:btih:EE381CD243EFE194BBD93041AB808CC32BE31DF0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,28 +82,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133137   (696787) от 11.05.2017
+###  Публикация: 1288247   (697776) от 10.03.2019
 
-Jackie Evancho - Two Hearts (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Vocal Pop>
+2Do 2.5.9 [Multi/Ru]
 
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697776.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Caruso
-02. Attesa
-03. How Great Thou Art
-04. Mama(   Читать дальше...   )Жанр: Classical Crossover, Vocal PopПродолжительность: 01:01:47
+2Do делает реальным совершенно иной подход к управлению задачами. Благодаря чрезвычайно простому интерфейсу, и универсальному и гибкому набору мощных функций, программа позволяет сосредоточиться на том, что наиболее важно для вас: вашей жизни. 2Do невозможно использовать неправильным образом и, в отличие от других программ, он не заставляет вас придерживаться определенной (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.09.2018Разработчик: Beehive InnovationsПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58B025A1FD4D75FC3C047409632DD5758C0063D0
+magnet:?xt=urn:btih:26AB7897D54A01349C87725CEE02557DF7BA6103
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,25 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474890   (696786) от 11.05.2017
+###  Публикация: 1288295   (697775) от 10.03.2019
 
-Долгие проводы (1971) DVDRip
+Биатлон. Чемпионат Мира 2019. Эстерсунд (Швеция). Женщины. Спринт 7,5 км (2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697775.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Саша был смыслом ее жизни. Теперь, когда сын подрос, у нее появилось больше свободного времени и она позволила чуткому Николаю Сергеевичу ухаживать за собой. После летней поездки сына к отцу она стала замечать в Саше перемены. Тайком прочитав письмо его отца, она узнала, что сын хочет уехать.Производство: Одесская киностудияЖанр: ДрамаРежиссер: Кира МуратоваАктеры: Зинаида Шарко, Олег Владимирский, Татьяна Мычко, Юрий Каюров, Светлана Кабанова, Лидия Драновская, Лидия Базильская, Марчелла Чеботаренко, Игорь Старков, Елена КоваленкоПродолжительность: 01:29:54
+08 марта 2019 года, пятница. 18:15 МСК
+53-й Чемпионат Мира по биатлону 2019 года. Эстерсунд (Швеция)
+Женщины. Спринт 7,5 км
+Стадион:  Национальная биатлонная Арена "Эстерсунд" (Эстерсунд, Швеция)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:28:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB3AD80415169F4ECB23612E63D98964407AA089
+magnet:?xt=urn:btih:D2F5EBFCC3FCCE568115435307EFDA4ECEC67ECF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,141 +137,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133287   (696784) от 11.05.2017
+###  Публикация: 1288110   (697774) от 10.03.2019
 
-Вечер с Владимиром Соловьевым (2017.05.11) SATRip
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696784.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Мы ставили задачу сделать программу для умного, неравнодушного зрителя, которая позволит обсуждать актуальные проблемы в разных форматах: от интервью "один на один" до "круглого стола". Надеемся, она будет такой же острой, как политическое ток-шоу "Поединок". Но если в "Поединке" сталкиваются две полярные точки зрения, (   Читать дальше...   )Телекомпания: РоссияЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 02:25:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82DFB61BCCB3E9875DE072F49B56B62C0076F4B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133150   (696783) от 11.05.2017
-
-Roy Buchanan - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Evil (live)
-02. Too Many Drivers
-03. Black Autumn
-04. That Did It(   Читать дальше...   )Жанр: Blues RockПродолжительность: 05:02:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:153AEA7DC18F3F4A434E1AA4297B702A6B7B0285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133044   (696782) от 11.05.2017
-
-Leftfield - Leftism 22 (1995) Remastered & Remixed, 2017, Sony Music, 2CD [MP3|320 Kbps] <Electronic, Leftfield, Progressive House, Breaks>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Leftfield — английский электронный дуэт, состоящий из Пола Далей (Paul Daley) (работал также в проектах The Rivals, A Man Called Adam и Brand New Heavies) и Нила Барнса (Neil Barnes) основанный в 1989 году в Лондоне. Первоначально под именем Leftfield Нил Барнс выпустил сингл «Not Forgotten», но несколько позже к нему присоединился Пол Далей. Под этим псевдонимом (   Читать дальше...   )01. Release the Pressure (Adrian Sherwood Mix) (4:56)
-02. Afro Left (Hodge & Peverelist Mix) (6:20)
-03. Melt (Quiet Village Mix) (7:50)
-04. Song of Life (BodyJack Mix) (8:51)(   Читать дальше...   )Жанр: Electronic, Leftfield, Progressive House, BreaksПродолжительность: 02:23:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5554A37105C2B8718D4CC7F06A3ACC909D4EB5A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133109   (696781) от 11.05.2017
-
-VA - Мурка - 4 18 жиганских хитов русского шансона (2008) [FLAC|Lossless|image + .cue] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696781.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. А. Звинцов - Любви дурман
-2. А. Дюмин - Волчица
-3. М. Шуфутинский - На Колыме
-4. М. Гулько - Красная масть(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA321220AC3FFE362B61E5DD2AD4A973AE58B151
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133117   (696780) от 11.05.2017
-
-VA - Kiss FM TOP 40: Май (2017) [MP3|320 Kbps] <House, Club, Dance>
+VA - Record Super Chart 577 (2019) [MP3|320 Kbps] <House, Club, Dance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697774.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Platon feat. Joolay - Last (Radio Edit)  3:32
-02.  Ed Sheeran - Shape Of You (Holderz Remix)  4:07
-03.  Armin van Buuren & Garibay feat. Olaf Blackwood - I Need You (Extended Club Mix)  5:30
-04.  Raving George - You're Mine (DJ Antonio & Astero Club Remix)  4:43(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:55:48
+01. Calvin Harris & Rag'n'Bone Man - Giant (3:47)
+02. Ilkay Sencan - Do It (3:51)
+03. Sofi Tukker & ZHU - Mi Rumba (3:20)
+04. Mark Ronson feat. Miley Cyrus - Nothing Breaks Like A Heart (3:40)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:46:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1D9900C4ED12DEA324452E5378E08AE52770B69
+magnet:?xt=urn:btih:5CD756BAEDB6ABEA217FD21EB76CBBD964C62B85
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -276,28 +166,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133216   (696779) от 11.05.2017
+###  Публикация: 1288172   (697773) от 10.03.2019
 
-VA - Best Chillout Vol.29 (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
+Zaklon - Viatry Karačunavaj Nočy (2017) [MP3|320 Kbps] <Black Metal>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697773.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. AK - Memories (Original mix) 3:17
-002. Alex Greenhouse, Julia Cage - I Don't Know  (Chillout Mix) 3:45
-003. AnimoEx - Depth 6:07
-004. Antonio - Emotion (ft. Charles) (Endless R Remix) 3:36(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 07:06:20
+01. Štorm skonu časoŭ (7:35)
+ 02. Karačun (7:10)
+ 03. Kroŭ voŭčaje nočy (7:11)
+ 04. Viatry skruchi (11:14)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:59:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:659275FAFBDCE6C18EAF37296535300D5EBC7B9D
+magnet:?xt=urn:btih:7A07CC48EB014FF264C3BC96FA2FDEB1B8735D9A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -305,25 +195,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133059   (696778) от 11.05.2017
+###  Публикация: 1288047   (697772) от 10.03.2019
 
-Соль. Кипелов (07.05.17) WEBRip [H.264/720p-LQ]
+Sheryl Crow - C'mon, C'mon (2002) [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock>
 
->>Документалистика и Телепередачи
->>Музыкальные шоу
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697772.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ведущий шоу Захар Прилепин - человек с четко выраженной позицией, очевидно, что ему есть, что сказать людям. Каждая программа начинается с обозначения Прилепиным темы, которая для широкого зрителя является ключевой в текущем информационном поле. Ведущего и музыкальных гостей в студии, по словам самого Прилепина, объединит "яркость, талант, взрывоопасность в (   Читать дальше...   )Телекомпания: РЕН ТВЖанр: ТелепередачаПродолжительность: 01:37:09
+1 	Steve McQueen 	3:24
+2 	Soak Up The Sun 	4:52
+3 	You're An Original 	4:34
+4 	Safe And Sound 	4:29(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:56:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE156B4AD11AC7D9570A4F2AA6D2D0E348F0CDCB
+magnet:?xt=urn:btih:28C57BBA62C2F6B53221A34C5AC0CEB68F77314C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -331,280 +224,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133142   (696777) от 11.05.2017
+###  Публикация: 1287976   (697771) от 10.03.2019
 
-Jackie Evancho - Two Hearts (2017) [MP3|320 Kbps] <Classical Crossover, Vocal Pop>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caruso
-02. Attesa
-03. How Great Thou Art
-04. Mama(   Читать дальше...   )Жанр: Classical Crossover, Vocal PopПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83FCA86A17C360C91E008058CA0BA3EE438FF2BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133276   (696776) от 11.05.2017
-
-Экстаз / Extasis (1996) DVDRip [H.264] [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Робер, безрассудный 25-летний парень, выдумывает безумный план с другом Максом и своей девушкой Лолой — они ограбят свои семьи и убегут из дома. После того, как Макса арестовывают во время одного из ограблений, Робер выдает себя за него и успешно обманывает давно живущего отдельно состоятельного отца Макса, чтобы тот дал денег на тюремный залог. Но план троицы идет (   Читать дальше...   )Производство: Испания | Tornasol FilmsЖанр: Драма, КриминалРежиссер: Мариано БарросоАктеры: Хавьер Бардем, Федерико Луппи, Сильвия Мунт, Дэниэл Гузман, Лейре Беррокаль, Альфонсо Луссон, Гильермо Родригез, Карлос Лукас, Хуан Диаз, Элиа МуньосПеревод: Авторский (одноголосый закадровый) А.АлексеевСубтитры: Oтсутствуют
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB6E8BA04D26730EE2375269A2FB3AFDBBC30410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133132   (696775) от 11.05.2017
-
-Appassionante - Nell'aria (2017) [MP3|320 Kbps] <Pop, Classical, Crossover, Vocals>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Quanti inverni
-03. Find Me
-04. Amami(   Читать дальше...   )Жанр: Pop, Classical, Crossover, VocalsПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC1EC5134244A35BAA5F4310917F48D0B25825F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027466   (696768) от 19.06.2016
-
-Футбол. Чемпионат Европы 2016. Группа F. 2-й тур. Исландия - Венгрия (18.06.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696768.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 июня 2016, суббота. 19:00 МСК
-Группа F. 2-й тур
-
-Стадион: Велодром (Марсель, Франция) , вместимость: 67394(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Юрий Розанов, Михаил Поленов)Продолжительность: 01:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABFB17D68752DBA2B7DC0898A99240214395EFFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027538   (696767) от 19.06.2016
-
-Футбол. Чемпионат Европы 2016. Группа F. 2-й тур. Исландия - Венгрия (18.06.2016) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696767.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 июня 2016, суббота. 19:00 МСК
-Группа F. 2-й тур
-
-Стадион: Велодром (Марсель, Франция) , 60 842 зрителя (90 % при вместимости 67 394)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортПродолжительность: 01:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1845D1A1734BD47A8706A17601F93EBD7F9026E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027529   (696766) от 19.06.2016
-
-Футбол. Чемпионат Европы 2016. Группа E. 2-й тур. Бельгия - Ирландия (18.06.2016) IPTV [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696766.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 июня 2016, суббота. 16:00 МСК
-Группа E. 2-й тур
-
-Стадион: Матмут-Атлантик (Бордо, Франция) , 39 493 зрителя (92 % при вместимости 43 000)(   Читать дальше...   )Телекомпания: Матч Футбол 1 HDЖанр: СпортПродолжительность: 02:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90F807EFFB4CF92359A57CAD7551C6F8A98BF433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027502   (696765) от 19.06.2016
-
-Футбол. Чемпионат Европы 2016. Группа F. 2-й тур. Португалия - Австрия (18.06.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696765.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 июня 2016, суббота. 22:00 МСК
-Группа F. 2-й тур
-
-Стадион: Парк де Пренс (Париж, Франция) , 44 291 зритель (91 % при вместимости 48 713)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Константин Генич, Александр Шмурнов) / ИнтершумПродолжительность: 01:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B45558DCF9583CA8D3ED2AF416DEC073ED5489B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027643   (696764) от 19.06.2016
-
-Глеб Паншин | Веселая дорога (1975) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повествование ведется от первого лица, школьника Тимки Ерохина, который под воздействием товарищей меняет свое отношение к физкультуре.Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66537A0F7C639977BD6F2E45B579A350ECC5EDD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027476   (696763) от 19.06.2016
-
-KakaoTalk 2.2.1.1211 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696763.jpg" />
-</div>
-
-
-###  Подробнее
-
-KakaoTalk – это быстрое и многогранное приложение-мессенджер. Отправляйте сообщения, фото, видео, голосовые записи и ваши местоположения бесплатно. Общайтесь ещё веселее с помощью множества смайликов и набора стикеров.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:833282A0480BBFC730BD27808A7CF4B866B603FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027645   (696762) от 19.06.2016
-
-Bernie Senensky - Homeland (1991) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+Dave Peabody & Regina Mudrich - Some Of These Days (2019) [MP3|320 Kbps] <Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697771.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.New Life Blues [06:29]
- 02.Leira [09:29]
- 03.Guys And Dolls [07:07]
- 04.Falling [05:43](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:15:18
+01. She Caught The Train 03:13
+02. Nobody Knows You When You're Down And Out 02:57
+03. Everybody Loves My Baby 01:39
+04. Picture The Blues 04:01(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBD13F8C2FC6972163F1525BB0086596E002BD81
+magnet:?xt=urn:btih:C31955D74ECD9478F181A336F44732F776FF12D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -612,25 +253,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027561   (696761) от 19.06.2016
+###  Публикация: 1288321   (697770) от 10.03.2019
 
-Меган Маккаферти | Вторая попытка (2007) [FB2, RTF, DOC, TXT]
+Журнал | Ирэн №1 (2019) [PDF]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Журналы
+>>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697770.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Наблюдательная, впадающая в депрессии девочка-подросток Джессика Дарлинг проходит через суровые эмоциональные испытания последнего года учебы в Пайнвилльской средней школе. Ее покой смущает не только загадочный Маркус Флюти, но ее лучшая подруга Хоуп, которая живет в другом штате. Помимо всего прочего родители Джессики против ее выбора колледжа, а беременность старшей (   Читать дальше...   )Жанр: Детская литератураФормат: FB2, RTF, DOC, TXT
+Первый в России журнал, посвященный французской вязаной моде, представленной уникальными разработками французских модельеров и дизайнеров, а также производителей пряжи. Каждый номер демонстрирует эксклюзивную коллекцию вязаной одежды для каждого сезона, выполненную из высококачественной элитной пряжи. Силуэты элегантны, детали точны. Все модели, публикуемые в журнале (   Читать дальше...   )Жанр: вязаниеФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4945C3CC83620E2594F93253B0F13B573368C98
+magnet:?xt=urn:btih:0827DE13F050E6BB1134E4942C3AF78F95D21D0F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -638,25 +279,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027387   (696760) от 19.06.2016
+###  Публикация: 1287748   (697769) от 10.03.2019
 
-Катарина Киери | Совсем не Аполлон (2012) [FB2, TXT]
+VA - ASOT 900 Pre Party @ Poema RAW, Utrecht (2019-02-23) [MP3|256-320 Kbps] <Trance, Progressive House>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697769.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лауре пятнадцать. Она учится в школе, болтает обо всем на свете с лучшей подругой, из чувства протеста продолжает по детской традиции покупать конфеты по субботам и совсем не хочет казаться взрослой, как многие ее одноклассницы. Но однажды случается непредвиденное: на школьном собрании она знакомится с Андерсом Страндбергом. Он совсем не Аполлон, не идеал красоты, (   Читать дальше...   )Жанр: Детская литература, Современная романтическая проза, Скандинавская литератураФормат: FB2, TXT
+1. JD Love B2B Will Renville @ Elevation Audio Pres. ASOT 900 Pre-Party, Club Poema Utrecht, Netherlands 2019-02-23 (00:47:30):
+
+01. Sasha - Xpander (Intro)
+02. Terk Dawn - Barent Blue (Mongoto Remix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 05:24:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57C03DE0CCE71A51B6FAFC33DAF540B80BF63396
+magnet:?xt=urn:btih:B5F9BBB340D84B09A5015CA2D83FCD046FBB811A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,25 +308,361 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 673673   (696759) от 28.06.2013
+###  Публикация: 1288231   (697768) от 10.03.2019
 
-Девушка с календаря / Calendar Girl (2011) WEB-DLRip [VO]
+Feinstein - Hail And Farewell A Tribute To Ronnie James Dio (2017) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697768.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - A Prophet Is Born (2:10)
+ 2 - March of the Elves (0:31)
+ 3 - Give It to Them Hard (3:32)
+ 4 - Chasing Rainbows (4:33)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A2A160A09F7850275951F137F7926E44118C2D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288279   (697767) от 10.03.2019
+
+File Juicer 4.73 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697767.jpg" />
+</div>
+
+
+###  Подробнее
+
+File Juicer - уникальная программа, позволяющая извлекать мультимедийные документы, вложенные в другие файлы. Утилита находит и извлекает изображения, видеоролики, звуки и текст следующих форматов: PNG, PDF, JPEG, JP2, GIF,, BMP, WMF, EMF, PICT, TIFF, Flash, Zip, MOV, WAV, MP3, HTML, AVI , MPG, WMV, MP4, AU, AIFF или текстовые файлы.
+
+File Juicer может быть использован (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.03.2019Разработчик: Echo OneПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C89A562CA734A1FFD776A17B4064F789C66215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288140   (697766) от 10.03.2019
+
+Pam Tillis - Homeward Looking Angel (1992) [FLAC|Lossless|tracks + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697766.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 	How Gone Is Goodbye 	3:15
+2 	Shake The Sugar Tree 	3:09
+3 	Do You Know Where Your Man Is 	3:46
+4 	Cleopatra, Queen Of Denial 	3:12(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8920FEFA2BD2335C89DB4242852CAE6E62DDEACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288154   (697765) от 10.03.2019
+
+А. А. Строков (ред.) | Уроки истории неопровержимы (1964) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697765.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Некоторые современные империалистические деятели, — говорил в докладе о 45-й годовщине Советских Вооруженных Сил Министр обороны СССР Маршал Советского Союза Р. Я. Малиновский, — с раздражением вспоминают наши напоминания о прошлом. Но что поделаешь? Страниц правды из истории не вычеркнешь!»
+
+Настоящая книга — это еще одно напоминание об уроках минувшей войны. Измышлениям (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B4C882B832B419C041F4150715BC194CC197F6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287990   (697764) от 10.03.2019
+
+U96 - Out Of Wilhelmsburg (2007) Centaurus [FLAC|Lossless|tracks + .cue] <Electronic, Trance, Euro House, Synthpop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. DJ Put On The Red Light (Feat. Das Bo) (Single Mix) (3:41)
+ 02. Underwater (3:38)
+ 03. Ist Das Mein Leben (3:58)
+ 04. Light Up My Life (3:49)(   Читать дальше...   )Жанр: Electronic, Trance, Euro House, SynthpopПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5DF22039FA3E778746CA51C10E1CB3443E88B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288312   (697763) от 10.03.2019
+
+Биатлон. Чемпионат Мира 2019. Эстерсунд (Швеция). Женщины. Спринт 7,5 км (2019) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697763.jpg" />
+</div>
+
+
+###  Подробнее
+
+08 марта 2019 года, пятница. 18:15 МСК
+53-й Чемпионат Мира по биатлону 2019 года. Эстерсунд (Швеция)
+Женщины. Спринт 7,5 км
+Стадион:  Национальная биатлонная Арена "Эстерсунд" (Эстерсунд, Швеция)Телекомпания: Первый КаналЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A39F663636B2C27DF34D2194B123EB8EF493CAF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287811   (697762) от 10.03.2019
+
+VA - ASOT 900 After-Party @ Poema RAW, Utrecht (2019-02-24) [MP3|320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697762.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Sixth Sense Live @ ASOT900 After Party, Poema RAW 24/02/19:
+01. Ace Da Brain - Time
+02. Chakra - Home (Above & Beyond Remix)
+03. Blank & Jones - Nightclubbing (Wippenberg remix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 04:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:040D8136EE01A8D864DF91AEA09EDE46375FB31C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287946   (697761) от 10.03.2019
+
+Cris Velasco - Clive Barker's Jericho (2007) Soundtrack [MP3|~245 Kbps (V0)] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крис Веласко хорошо известен по его совместными саундтреками с Сашей Дикисияном, например Dark Messiah, John Woo's Stranglehold, Hellgate: London и многими другими. Но когда у Криса подворачивается возможность написать что-либо без своего лучшего друга, он пытается воспользоваться ею сполна (правда, всё равно приходится просить его о помощи). Самостоятельно он написал (   Читать дальше...   )1. Legend of the Firstborn (1:57)
+2. The Coloseum (2:55)
+3. Lichthammer (1:50)
+4. Path of the Righteous (2:19)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:29:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75E737FFDDFD727EB7564C784B0F89F819C364D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 794401   (697740) от 08.06.2014
+
+Отель «Гранд Будапешт» / The Grand Budapest Hotel (2014) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает об увлекательных приключениях легендарного консьержа Густава и его юного друга, портье Зеро Мустафы. Сотрудники гостиницы становятся свидетелями кражи и поисков бесценных картин эпохи Возрождения, борьбы за огромное состояние богатой семьи и… драматических изменений в Европе между двумя кровопролитными войнами XX века.Жанр: комедия, детектив, приключения, криминалПродюсер: Уэс Андерсон, Джереми Доусон, Стивен РейлсВ ролях: Рэйф Файнс, Тони Револори, Сирша Ронан, Эдриан Броуди, Уиллем Дефо, Ф. Мюррэй Абрахам, Джуд Лоу, Эдвард Нортон, Джефф Голдблюм, Харви КейтельПеревод: Профессиональный (дублированный)Язык субтитров: Русский, АнглийскийПродолжительность: 01:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B79E2BE7CCA6A90559932E6A65E9FAD402F62692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 794169   (697737) от 08.06.2014
+
+Смертельная битва: Защитники Земли / Mortal Kombat: Defenders of the Realm (1996) 2xDVD5 (Сезон 1, Серии 13 из 13)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697737.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Смертельная битва: Защитники Земли» (англ. Mortal Kombat: Defenders of the Realm) — мультсериал, создан на основе сюжета игр-файтингов Mortal Kombat (главным образом Mortal Kombat 3, но с некоторыми заимствованиями из Mortal Kombat II). Мультсериал создан компаниями Threshold Entertainment (работавшей над созданием обоих полнометражных фильмов) и Film Roman. Премьера (   Читать дальше...   )Жанр: Рисованная анимация, ПриключенияРежиссер: Майкл ГогуэнПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 02:13:01 + 01:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42710145D15412D49255894DD1721012EDAB82ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 732609   (697732) от 08.06.2014
+
+Предчувствие / Восприятие / Perception (2013) WEB-DL [H.264/1080p-LQ] (Сезон 2, Серии 1-14 из 14) To4ka
+
+>>Зарубежные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор Дэниел Пирс — талантливый, но эксцентричный нейрофизиолог, которого пригласили в ФБР для оказания помощи в расследовании наиболее сложных дел. Доктор Пирс работает в тесном сотрудничестве с Кейт Моретти, его бывшей студенткой, которая и завербовала его для работы с Бюро. Также в команде есть Макс Левики — ассистент доктора Пирса и Натали Винсент — его лучший (   Читать дальше...   )Жанр: Драма, криминал, детективРежиссер: Грег Биман, Кеннет Биллер, Крис МисианоАктеры: Эрик МакКормак, Рэйчел Ли Кук, Келли Роуэн, Эрджей Смит, Джонатан Скарф, Кристофер Чен, Лиза Бейнс, Джимми Беннетт, Бриджет Риган, ЛеВар БёртонПеревод: Многоголосый закадровый, любительский - To4kaОзвучка: группа "Частная Практика"Продолжительность: ~ 00:42:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0700F8138A905FC39AA55B5FC2FE80B5E4A0F186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 793301   (697729) от 08.06.2014
+
+Смерть среди айсбергов / Кит - Убийца / Orca: The Killer Whale (1977) BDRip [1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Капитан Нолан никогда не задумывался о том, какой непоправимый вред он наносит живой природе. Он просто отлично выполнял свою работу. Он делал то, что у него получалось лучше всего, - он убивал. Выходил в море и убивал китов. Однажды он вытащил из воды самку-китиху. Она погибла, а вместе с ней погиб и ее не успевший родиться детеныш.
+Трагедия произошла на глазах (   Читать дальше...   )Жанр: Драма, ТриллерРежиссер: Майкл АндерсонАктеры: Ричард Харрис, Шарлотта Рэмплинг, Уилл Сэмпсон, Бо Дерек, Кинен Уинн, Роберт Кэрредин, Скотт Уолкер, Питер Хутен, Уэйн ХэффлиПеревод: Дублированный (СССР), Двухголосый закадровый (Инис), Авторский (Горчаков)Язык субтитров: РусскиеПродолжительность: 01:32:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E1D833860651F75611760A50326C58EC4E6AEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 794248   (697726) от 08.06.2014
+
+Водный мир / Waterworld (1995) BDRip [H.264/720p-LQ]
 
 >>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697726.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В Филадельфии декабрь. Пока все готовятся к праздникам, творческий городской маньяк начинает поиски финальной 12-ой девушки, чтобы закончить свой кровавый «календарь». Убийца обещает, что последняя жертва будет особенной и не похожей на остальных. Возможно на эту роль подойдёт некая Ари, официантка местной закусочной.Производство: США / Calendar Girl: The Movie, Double Windsor FilmsЖанр: Ужасы, Мелодрама, КомедияРежиссер: Дерек ЛиндеманАктеры: Корбин Бернсен, Гилберт Готтфрид, Брайан О’Хэллоран, Крис Рааб, Джессика Чоп, Аль Сноу, Мэттью Наду, Брайан Галлахер, Тэмми Жан, Мохаммед Дж. АлиПеревод: Любительский одноголосыйЯзык субтитров: ОтсутствуютПродолжительность: 01:38:35
+В далеком будущем полярные снега растаяли, покрыв всю Землю водой. Авторы погружают нас в фантастический мир немногочисленных людей, живущих на воде, где самым дорогим являются пресная вода, земля, еда, сигареты и т. п.
+«Курильщики» убивают, грабят, обращают в рабство — используют двигатели внутреннего сгорания. Все остальные пытаются выжить, кто как может, а Кевин (   Читать дальше...   )Производство: США / Davis Entertainment, Gordon Company, Licht/Mueller Film Corporation, Universal PicturesЖанр: Фантастика, Боевик, ПриключенияРежиссер: Кевин Рейнольдс, Кевин КостнерАктеры: Кевин Костнер, Деннис Хоппер, Джинн Трипплхорн, Тина Мажорино, Майкл Джитер, Джек Блэк, Ким Коутс, Чайм Джирафи, Рик Авилес, Р.Д. КоллПеревод: Многоголосый, двуголосый, авторскийПродолжительность: 02:15:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:231DD67C9A972389404F11DC476A89794E59AEAF
+magnet:?xt=urn:btih:18B59A7B922779985A519C98A5054AE1B05D3AAC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -690,29 +670,53 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 673820   (696754) от 28.06.2013
+###  Публикация: 792885   (697722) от 08.06.2014
 
-Seiken no Blacksmith / The Sacred Blacksmith / Божественный Кузнец [2009, TV, 12] BDrip 720p raw
+Прощай, любимая (2013) SATRip (сезон 1, серии 1-8 из 8)
 
->>Аниме с субтитрами
->>Аниме (HD)
+>>Отечественные сериалы
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697722.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Когда-то этот мир сотрясала Война Нарушенного Завета, где с людьми сражались демоны. Ценой огромных жертв они были изгнаны, но… несколько лет спокойствия ничего не решили, в чем на горьком опыте убедилась Сесилия Кэмбелл – молодой рыцарь из вольного торгового города Хаустаун. В первом же серьезном бою ее фамильный меч сломался, а спас ее неизвестный парень, владеющий настоящей японской катаной. Незнакомец, к тому же, оказался не простым кузнецом, а наследником великого мастера. Правда, Люк Эйнсуорт (так его звали) остался глух к настойчивым просьбам Сесилии починить ее меч или сковать новый, но кто может долго противиться красивой и настойчивой девушке?
-
-А потом, как и положено, начались приключения, схватки с демонами, путешествие с капризной принцессой, скелеты в шкафу, срывание покровов с темного прошлого и все, что положено в фэнтезийном аниме. Угадайте, чего не хватает? И это тоже будет!
-
-© Hollow, World ArtЖанр: приключения, фэнтези, эттиРежиссер: Хидака МасамицуПродолжительность: 12 серий по 25 мин
+В одном из московских парков находят труп 40-летней женщины. По мнению следствия, ее смерть наступила по естественным причинам, поэтому уголовное дело не заводится. Однако муж погибшей, банковский аналитик и бывший математик Сотников, уверен: его жену убили.
+Отчаявшись найти поддержку у органов, он начинает собственное расследование. Не имея никакого отношения ни (   Читать дальше...   )Жанр: ДетективРежиссер: Алена ЗванцоваАктеры: Константин Лавроненко, Полина Агуреева, Александра Урсуляк, Александр Гришин, Евгений Антропов, Роза Хайруллина, Евгения Дмитриева, Глеб Подгородинский, Дмитрий Куличков, Аглая Шиловская, Яна Сексте, Игорь Гордин, Тимур Бадалбейли, Вячеслав Чепурченко, Лидия Байрашевская, Яна Гладких, Арина Нестерова, Юрий Борисов (II), Арина ЖивоваПродолжительность: ~ 00:47:00 / серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A31109E7634A031CE86D5279712756E51843E995
+magnet:?xt=urn:btih:0E285D0F1653E39620101C5081B1E9824D6951B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402893   (697720) от 16.08.2020
+
+Диана Соул | Семь грехов лорда Кроули (2020) [EPUB]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опасаясь за свою жизнь, я вынуждена скрываться под монашеской рясой. Но судьба – коварная штука, и я оказалась в одной карете с тем, кого считаю своей главной угрозой – лордом Кроули.
+Этот нахальный подлец едет на собственную свадьбу с принцессой, и ему очень нужна монашка, способная отпустить грехи и исполнить древний обряд очищения. Иначе не видать ему короны как (   Читать дальше...   )Жанр: Любовное фэнтезиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97DD6B9E000487E7482B636169C7D36489BD09A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

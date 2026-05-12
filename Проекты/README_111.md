@@ -1,3 +1,56 @@
+###  Публикация: 1013399   (777503) от 04.05.2016
+
+Проекты - VideoHive - Lightlines | Slideshow - 14100480 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайдшоу. Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:193D82CF63736990B48ECC63140AFEE1D02EB7BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013388   (777499) от 04.05.2016
+
+Проекты - VideoHive - Photo Slideshow - 14422824 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания эффектного слайд шоу.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE05AD025D23C17A88EEA89E596028EEDBCB89A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013423   (777490) от 04.05.2016
 
 Проекты - VideoHive - Atmospheric Slideshow - 13494191 [AEP]
@@ -620,58 +673,6 @@ Sport Logo Reveal Pack - спортивный энергичный проект 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F51C6DB3863A74453438ADE4195DA222B781496F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014050   (776645) от 06.05.2016
-
-Проекты - VideoHive - Business of the Future – Modern Corporate Presentation [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Business of the Future – Modern Corporate Presentation - "Бизнес будущего - Современная Корпоративная презентация" - это хороший шаблон для презентации компании. Среди основных преимуществ: модный дизайн, модульная структура, позволяющая дублировать, переставить или удалить сцены, и что еще более важно - дружественный интерфейс для конфигурации проекта. (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D55FE4C0D5367761DB5117BCA43E289CC6E71EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014315   (776374) от 07.05.2016
-
-Проекты - RocketStock - Contempo [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Контемп - простой, чистый, и целенаправленный характер идеального слайд-шоу, чтобы продемонстрировать свои фотографии.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4CA65150FC39459B93292D01AA9F58889705676
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1869934   (1068573) от 
+
+VA - Poolside Lounge 2026 (Deep Strips 5/8/26 ) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zvana - Not Your Angel (2:46)
+02. N.E.O.N - More Than This (3:09)
+03. Lino Tenerife - Losing Myself Tonight (4:13)
+04. Anton Ishutin - Be My Lover (Afro House Mix) (3:18)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7DAAB077933ADF2033CF443FE7F1CC81FFF1F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1866761   (1066268) от 21.04.2026
 
 VA - Afro Summer Hits (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -717,35 +746,6 @@ VA - Afro House Winter Dance Hits 2026 (SSL Music) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D40D36169B660A14DB7B7AB0A97D739DD544A562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856122   (1058768) от 26.02.2026
-
-VA - Blue Twilight EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Moonswinger - Preset 1 04:56
-02.Emanuele Pertoldi - Feedback Theory 08:03
-03.Unknown Artist - Untitled 02:16
-04.Foquus - Untitled 06:16(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 00:29:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD4632C9991834DDC29F3E65D3556B5960BCF00A
 ```
 
 https://mybot314.ru/tekegram_catalog/

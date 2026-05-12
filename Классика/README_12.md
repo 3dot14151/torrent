@@ -1,3 +1,61 @@
+###  Публикация: 1000187   (860711) от 24.03.2016
+
+Annie Moses Band - The Art Of The Love Song (2016) [MP3|320 кб/с] <Classical Crossover, Pop>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Evergreen
+02 La vie en rose / Honeysuckle Rose
+03 And I Love Her
+04 The First Time(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 01:01:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D3ADF5F3B8E846013C598875D65CA4811661F67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000025   (860709) от 24.03.2016
+
+Teresa Berganza, Plácido Domingo, London Symphony Orchestra - Georges Bizet: Carmen (1978) released on CD 1987, 3CD [FLAC|Lossless|tracks + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude - ACTE I (3:31)
+02. N° 1 Introduction : Sur la place chacun passe (2:10)
+03. N° 1 : Regardez donc cette petite (4:10)
+04. N° 2 Marche et Choeur des gamins : Avec la garde montante (2:34)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 02:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:419D1D4C5FAB06311FE53612EEE78ECFDBE100EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000215   (860708) от 24.03.2016
 
 VA - Magical World Of Melodies. The Most Beautiful Romantic Symphonies (1995) 3CD
@@ -687,64 +745,6 @@ Concerto for violin, strings & continuo No. 1 in A minor, BWV 1041
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE2D07D3C63B1C2D48BF8C6464740CAC32483622
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000881   (855412) от 27.03.2016
-
-Gershwin - I Got Rhythm, Concerto in F, Rhapsody 2, Preludes, Cuban Overture (Haas, De Waart, Inbal) (2006) [FLAC|Lossless|tracks] <Classical, Concerto>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 I Got Rhythm, variations for piano and orhestra
-Piano Concerto in F major
-02 (1) Allegro
-03 (2) Adagio(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BC7C8BE97AC7233DB27BE04A133D1BF642A468C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001132   (855410) от 27.03.2016
-
-Liszt Ferenc Chamber Orchestra - Vivaldi: Lute Concertos & Trios (1978) LP [FLAC|Lossless|tracks] <Classical, Baroque>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855410.jpg" />
-</div>
-
-
-###  Подробнее
-
-D-dur Concerto Lantra, Vonoszenekarra Es Csembalora. F. XII.No.15
-01. I. Allegro giusto   03:55
-02. II. Largo    05:02
-03. III. Allegro    02:17Жанр: Classical, BaroqueПродолжительность: 00:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A077B6E4E1C45B4B932E949DEAB3D907CC00E64
 ```
 
 https://mybot314.ru/tekegram_catalog/

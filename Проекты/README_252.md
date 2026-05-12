@@ -1,3 +1,56 @@
+###  Публикация: 947807   (415316) от 18.10.2015
+
+Проекты - VideoHive - Corporate Financial Presentation [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания презентации "Корпоративные финансы".
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25385132607E9A8B344CE2E03C3BAC3185E3F751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251787   (415156) от 02.10.2018
+
+Проекты - VideoHive - Urban TV wall - 239196 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень интересный и забавный шаблон. В нарисованном на кирпичной стене телевизоре показываются видео-ролики. Проект подойдет для различного рода телевещаний или презентаций.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59AC7DDA0D53CD5DC7E1F4E1E01D95A71C29D0C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251623   (415070) от 02.10.2018
 
 Проекты - VideoHive - Color Explosions Stomp Opener - 21842558 [AEP]
@@ -630,60 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1C38F1BE619C65294A0BE1840E7B3D2D4DD8427
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948059   (413167) от 19.10.2015
-
-Проекты - VideoHive - Sound Glitch - Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для эффектного представления логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768C71A1859F2B01DE1C8DDD01D3A28DB343037F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948366   (413166) от 19.10.2015
-
-Проекты - VideoHive - Gamer Trailer [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания вступительных титров к Вашему фильму.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE8C427DDDF79A431C26BDF907BAE732D622422F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,118 @@
+###  Публикация: 544671   (486411) от 09.09.2012
+
+Tarja Turunen - Act 1 (2012) BDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486411.jpg" />
+</div>
+
+
+###  Подробнее
+
+‘Act I‘ представляет собой первый концертный диск, запечатлевшим выступления экс-вокалистки NIGHTWISH Tarja Turunen в ее роково-металлической обработке - вероятно, ее самый захватывающий выпуск когда-либо. Основное содержание было снято и записано на шоу в Росарио в Аргентинском Teatro El Crculo, проходившим 30 и 31 марта соответственно в красивом и захватывающем духе театральной постановки.
+С его тщательно продуманным tracklisting,01. If You Believe
+02. Anteroom Of Death
+03. My Little Phoenix
+04. Dark Star
+05. Naiad
+06. Falling Awake
+07. I Walk Alone
+08. Orpheus Hallucination / Orpheus In The Underworld09. Little Lies (band jam)
+10. Little LiesЖанр: Symphonic MetalПеревод: ОтсутствуетПродолжительность: 01:48:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243869   (486075) от 30.08.2018
+
+Концерт ко дню ВМФ России на Дворцовой площади (29 июля 2018 года) WEB-DLRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию представлен концерт, посвящённый дню Военно-Морского Флота России, который прошёл на Дворцовой площади 29 июля 2018 года.Производство: Телерадиокомпания «Петербург»Жанр: Музыка, КонцертыСубтитры: ОтсутствуютПродолжительность: ~03:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A0DF4D967CB252FC69C508B682677DD1AC62972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244056   (485854) от 30.08.2018
+
+Александр Розенбаум в БКЗ "Октябрьский" (29.07.2018) WEB-DLRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Александра Розенбаума в Большом Концертном Зале "Октябрьский",
+посвящённый дню Военно-Морского Флота России.Производство: Телерадиокомпания «Петербург»Жанр: Музыка, КонцертыРежиссер: Геннадий Шагаев (БКЗ), Ядвига ЗакржевскаяСубтитры: ОтсутствуютПродолжительность: 02:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE02FD8AF778B50DD0EA643130568A5634C22CA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243831   (485749) от 30.08.2018
+
+Океан Эльзы. Концерт ко Дню Независимости Украины / Океан Ельзи. Концерт до Дня Незалежності України (24.08.2018) WEB-DL [H.264/720p-LQ] [UKR]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485749.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 августа, в День Независимости Украины, группа Океана Эльзы дала большой концерт после почти годичного перерыва на НСК Олимпийский в Киеве.
+Концерт длился более 4 часов, его посетили 100 тысяч человек.Производство: ТК 1+1Жанр: концертПеревод: ОтсутствуетЯзык озвучки: украинскийСубтитры: отсутствуютПродолжительность: 03:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4432FC9250C2DA6E26EC3CC2591B1AE802BD922F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 384409   (485105) от 05.09.2011
 
 Legends of Jazz with Ramsey Lewis, Vol. 2, 3 (2006) 2хDVD5
@@ -600,122 +715,6 @@ David Gilmour - Europejska Stolica Kultury Wroclaw Part.1 (2016) HDTV [H.264/108
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEBAAF3817A8D8BA2CADA1E4F03C28A5584F0263
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546313   (478713) от 13.09.2012
-
-Colonia - Laz za laz (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD31AF4D92BB77CF39A254A5CFF1A920F092E46B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546179   (478696) от 13.09.2012
-
-Igor Garnier feat. Malena - Feel Desire (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8500FADF8AB7E7CF25A86D22D37AA4E73ABCB2F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 384818   (478526) от 08.09.2011
-
-DJ VJ Magrao Videomix Volume 10 (2011) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летний мегамикс бразильского ви-джея Magrao01 - DJ VJ Magrão - Introdução 2011 Parte 2
-02 - Adele - Rolling In The Deep
-03 - Rihanna - California King Bed
-04 - Flo Rida & Akon - Who Dat Girl
-05 - DJ Antoine, Timati Feat.Kalenna - Welcome To St. Tropez
-06 - Jean Roch, Flo Rida & Kat DeLuna - I\'m Alright
-07 - Far East Movement - Rocketeer
-08 - Tiko\'s Groove & Gosha - I Don\'t Know What To Do
-09 - Katy Perry - Last Friday Night (TGIF)
-10 - Jessie J & B.O.B - Price Tag(   Читать дальше...   )Жанр: Pop, Club, DanceРежиссер: DJ VJ MagraoАктеры: разные исполнителиПродолжительность: 1:09:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82DA292DEB42BC15FFEA15C25D82A1EB1CE346A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701115   (478384) от 17.09.2013
-
-Madonna: The MDNA Tour (2013) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Virgin Mary (Intro)
-02. Girl Gone Wild
-03. Revolver
-04. Gang Bang(   Читать дальше...   )Производство: США, Live Nation Global TouringЖанр: Pop, DanceРежиссер: Дэнни ТуллПеревод: ОригиналЯзык субтитров: ОтсутствуютПродолжительность: 01:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A36D0773D737057B167CEBF879C419C3A7DDC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

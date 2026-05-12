@@ -1,3 +1,115 @@
+###  Публикация: 1493105   (899001) от 01.09.2021
+
+Векторный клипарт - Trash Cans and Cleaning Utenstils [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+мусорные баки и чистящие средства
+5 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A4C092679532FE8B4AB99DD9CDACCFA2F308C7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493091   (898999) от 01.09.2021
+
+Векторный клипарт - Vector Animal Collection #9 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+животные
+25 AI +PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50DDAF02C98130EC00B88BFD7D1A141237FCF0CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493094   (898998) от 01.09.2021
+
+Векторный клипарт - Vector Animal Collection #10 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+животные
+25 AI +PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F034DF481830557A3C4AB97E1E276735DDEDD3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493096   (898994) от 01.09.2021
+
+Векторный клипарт - Vector Animal Collection #12 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+животные
+25 AI +PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C8D00156504C8F7B1D5F536167ADB8C1C366151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493117   (898926) от 01.09.2021
 
 Векторный клипарт - Seamless Floral Borders 54 [AI]
@@ -584,113 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4297DC7BFA2BCF82B0F2D3764897F3854472F1D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100536   (897336) от 05.02.2017
-
-Best Service - Chris Hein Solo Strings Complete v1.0 [En]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chris Hein Solo Strings Complete - Полная коллекция струнных инструментов,таких как : Solo Violin - Скрипка, Solo Viola - Альт, Solo Cello - Виолончель и Solo ContraBass - Контрабас . Каждый инструмент содержит свыше 10 000 семплов ,имеет 38 артикуляций , 4 типа легато и 8 динамических слоевЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:924DC95CC670C19E58FAB18228415D19937E1EBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100924   (897279) от 05.02.2017
-
-Экшены - GraphicRiver - Glossy Plastic Photoshop Action [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Glossy Plastic - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:953EAD748F5CC707B59991FAA4ED099F6A562DD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100914   (897269) от 05.02.2017
-
-Экшены - GraphicRiver - Mixed Graphics Photoshop Action [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mixed Graphics - экшен для Вашего творчества.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BB01DB6C0E6A1AD980B342C600D3C3C9BCBF9F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091756   (897256) от 05.02.2017
-
-Шрифты - Astakhov Gzhel-2 / Астахов Гжель-2 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Количество / Штук: 2
-Разработчик: D. Astakhov
-
-Поддержка кириллицы: Есть (Русская, Украинская, Белорусская, Молдавская)(   Читать дальше...   )Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38C268D1C2CCACF19131C08CAB2B99F85EA0FDE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

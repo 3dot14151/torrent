@@ -1,3 +1,55 @@
+###  Публикация: 1114885   (829455) от 16.03.2017
+
+Проекты - VideoHive - Hypnotic II [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hypnotic II - воодушевляющий проект с быстрым и мощным ритмом. Придайте дополнительной энергии вашем видеошедеврам.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E0DDD21A99956D28708F0980A8312718F93204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114848   (829448) от 16.03.2017
+
+Проекты - VideoHive - Electric Logo - 19551097 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Electric Logo - отличная анимация для логотипов с применением эффектов электрических разрядов.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3B22BD67312C78D6352BD6CD1DF952232B79656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114863   (829445) от 16.03.2017
 
 Проекты - VideoHive - Foliage Alphabet - 16562797 [AEP]
@@ -629,60 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCD18687ACE3C18DC2FFCBC8FA8052006746873B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006434   (828480) от 11.04.2016
-
-Проекты - VideoHive - Slideshow Pack 3 in 1 - 11126579 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828480.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 проекта для создания фото-видео слайдшоу. Используются в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C88B1C256037C5CEA7EC84EDD74268062BDD6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006214   (828387) от 11.04.2016
-
-Проекты - VideoHive - Fast Slideshow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fast Slideshow - это стильный, современный, позитивный проект, подходящий для быстрого вступления, презентаций, портфолио, короткого динамичного слайд-шоу.
-Проект хорошо организован. Вы можете легко изменить длительность путем дублирования или удаления сцен.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83C0FBB5E8DBEAD1F348C2CD9AEAAEC024E39C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

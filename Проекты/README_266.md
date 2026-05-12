@@ -1,3 +1,55 @@
+###  Публикация: 1070580   (366296) от 07.11.2016
+
+Проекты - Pond5 - Fashion Slide - 63420703 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fashion Slide - Проект для создания модного слайд-шоу. Это очень стильный шаблон. Надеюсь, вы найдете его полезным?Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D9C163D3BBFAAB949F42E53FD775DE9B7B86667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070557   (366293) от 07.11.2016
+
+Проекты - VideoHive - Inspired Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Inspired - Проект для создания вдохновляющего фото-видео слайдшоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D8BA9CAC4CB194B8F6B8CF9048E350ED87844C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070549   (366291) от 07.11.2016
 
 Проекты - VideoHive - Titles Design Multi-Purpose - 18000862 [AEP]
@@ -627,59 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9EB1101A79AA4604F5F688EAE538E6207650B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177040   (364788) от 24.10.2017
-
-Проекты - VideoHive - 3D Photo Slideshow - 16148913 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364788.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D Photo Slideshow - шаблон для After Effects, который поможет легко создать тематическое слайд шоу, демонстрирующее ваши фото или видео, ритмично следующие за музыкальным сопровождением.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9134B05DAE7CCB20841B51E9B0A2A60DF751AE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951085   (364731) от 28.10.2015
-
-Проекты - VideoHive - Happy Birthday Ecard - Inkman - 263184 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для Дня рождения с рисованным человечком.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3390500430C15E0FAF08E278C12503DCC5A2C635
 ```
 
 https://mybot314.ru/tekegram_catalog/

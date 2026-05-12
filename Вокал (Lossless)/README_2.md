@@ -1,3 +1,38 @@
+###  Публикация: 523424   (616896) от 16.07.2012
+
+Henry Purcell – Songs of Welcome and Farewell: Suzie Leblanc, Barbara Borden et al, Tragicomedia, Stephen Stubbs & Erin Headley (1680-1695)/2001, Warner Classics/[FLAC|Lossless]<Vocal>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616896.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Welcome, viceregent of the mighty king, Z 340
+(Welcome song for Charles II, 1680) 12:28
+2. O dive custos Auriacae domus, Z 504
+(Elegy on the death of Queen Mary, 1695) 06:28
+3. Raise, raise the voice, Z 334
+(Ode for St. Cecilia`s Day, ca.1685) 12:28
+4. O let me ever, ever weep
+(The Plaint from “The Fairy Queen”, Z 629, 1692) 07:29
+5. Incassum, Lesbia, rogas
+(The Queen`s Epicedium) – Elegy on the death of Queen Mary, Z 383, 1695 07:32(   Читать дальше...   )Жанр: VocalПродолжительность: 01:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B75BBF97B23FB35C40F7DEDFD0C0CA4E09EA0AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148160   (604203) от 05.07.2017
 
 Wolfgang Amadeus Mozart - Le Nozze di Figaro - (Безумный день, или Женитьба Фигаро) (2003)(2CD) [FLAC|Lossless|image + .cue] <Opera, Classical>
@@ -726,34 +761,6 @@ Anna Netrebko - 3 альбома (2006-2009) [FLAC|Lossless]<Classical, Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8E001D7E5633F381BF5BCC5E280DD861DD87DBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566870   (394862) от 31.10.2012
-
-Giuseppe Verdi - La Forza del destino (1986) 3CD [FLAC|Lossless]<Classical, Romantic Period, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, Romantic Period, OperaПродолжительность: 01:03:51 - CD1
-01:06:19 - CD2
-00:33:44 - CD3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D19348A8E80AB079D586D72EE20EA95084191F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,76 @@
+###  Публикация: 942181   (456081) от 30.09.2015
+
+VA - Acoustic Chill Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Acoustic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zara James - Just Can't Get Enough
+02. Karizma Duo - Wake Me Up
+03. Anjali Joseph - May It Be
+04. Alice Lamb - Gravity(   Читать дальше...   )Жанр: Downtempo, Chillout, AcousticПродолжительность: 00:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E047635B7BA5664C72F9280C3B0AABAB8E0CBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548724   (456065) от 23.09.2012
+
+VA - Ploom Boom: Pause - mixed by dj Alex Cosmo (2008) [MP3|320 кб/с]<Electro House, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk # 1
+Продолжительность:  01:00:59
+
+1. Groovestylerz – Proove Your Love (2-4 Grooves Remix)
+2. Klaas vs Unknown – Right On Time (Electrosila Bootleg Mix)
+3. Dj Sket - Rock The Punguin (bootleg)
+4. Yanou – Children Of The Sun (R.I.O. Remix)
+5. Brad Hed – Girls & Boys (Vandalism Vocal mix)
+6. Jakarta – One Desire (Mondotek Remix)
+7. Dj Antoine – Entourage (Original mix)(   Читать дальше...   )Жанр: Electro House, HouseПродолжительность: 01:04:11
+1. 2 Special feat. Lena Boo - Look Into My Eyes (DJ Lutique Rmx)
+2. Rihanna – Take a Bow (Seamus Haji & Paul Emanuel Club Mix)
+3. Basto! feat. I-Fan - Savior (Extended Mix)
+4. Simioli & Marchesini – Love Is An Angel
+5. Delinquent Feat Kcat - My Destiny (Wideboys Remix)
+6. Kid Massive - Take My Hand (Kevin Sunray Mix)
+7. Le Tompe feat. Jenny Casparius - Tell Me (original mix)
+8. Potbellez - Don t Hold Back (Out Of Office Remix)
+9. Alex Barattini – Real Emotion (Edition Club Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58570E5A8F0700D374D9F256ADDDB872932682C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408348   (455999) от 12.09.2020
 
 VA - Soul Romantic R&B (2020) [MP3|320 Kbps] <R&B, Soul, Hip Lyric>
@@ -702,64 +775,6 @@ VA - Royal Summer Lounge (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32FFBE12B20CC8220D65C55BE3ACA6223B265C70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163186   (452697) от 04.09.2017
-
-VA - House Mania:Top 100 DJ (2017) [MP3|320 Kbps] <House, Electro House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452697.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cj Sprut - Paradise Bays
-002. PlusMinus - Love Is the Way (MIME Remix)
-003. Dan Winter vs. Yastreb - Don't Stop Push It Now
-004. Herobust vs Corti & LaMedica & Andry J - Dirt Heater Tea(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 09:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A088D51CD48856C8620FCE45607ECCC3F0DFEF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163271   (452613) от 04.09.2017
-
-VA - Bass Generation (2017) [MP3|320 Kbps] <Drum & Bass, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452613.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 3D Stas - Grab Run (Remaster)
-002. Dabin - Hold (ft. Daniela Andrade)
-003. Echos - Silhouettes (Feels Remix)
-004. Freqax - Meant to Believe (Intro)(   Читать дальше...   )Жанр: Drum & Bass, DubstepПродолжительность: 08:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3FC56F50AA30669C8810EC05654372989414A51
 ```
 
 https://mybot314.ru/tekegram_catalog/

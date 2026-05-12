@@ -1,3 +1,73 @@
+###  Публикация: 515819   (654165) от 27.06.2012
+
+Johann Sebastian Bach – Oboe Concertos: VA Swedish Chamber Orchestra oboe Alexei Ogrintcouk, Authentic instruments (1713-1730)/2010, BIS BIS-SACD-1769/[FLAC|Lossless]<Oboe>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto in F major for oboe, strings and b.c. 18:58
+Reconstructed from BWV49 and BWV169
+Arranged and edited by Hermann Tottcher and Gottfried Muller (Sikorski)
+1. I. Allegro	07:29
+2. II. Siciliano	05:07
+3. III. Allegro	06:12
+Concerto in D minor for oboe, strings and b.c. 11:40
+Reconstructed from BWV 35 and BWV156 Reconstruction by Arnold Mehl (Edition Kunzelmann)
+4. I. Allegro	05:25
+5. II. Adagio	03:00(   Читать дальше...   )Жанр: OboeПродолжительность: 01:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10CD257BB91EF9A055E8C2E575B112EEBD00A539
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515845   (654163) от 27.06.2012
+
+VA - Современное звучание Мировой Классики (2012) [MP3|320 kbps]<Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bizet - Carmen (Habanera)
+02. Bizet - Carmen (Mauriat)
+03. Bizet - Giselle (Papetti)
+04. Bizet - March (Mae)
+05. Bizet - Pearl fishers duet (Zamfir)
+06. Paganini - Capriccio (Last)
+07. Vanessa Mae - Bach Street Prelude
+08. Vanessa Mae - Can Can (You)
+09. Vanessa Mae - Classical Gas
+10. Vanessa Mae - Con Tradanza(   Читать дальше...   )Жанр: ClassicalПродолжительность: 07:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8B8A1000EA0E59B20FFBE82A614BF6E65BF3316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516010   (651160) от 29.06.2012
 
 Elina Garanca - 3 альбома (2007-2010) [MP3|320 кб/с]<Classical>
@@ -694,70 +764,6 @@ Daniel Harding, Deutsche Kammerphilharmonie – Beethoven: Overtures (1999) [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96B41630A3A193573893EA9AA00DFB3E3C9F478F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144231   (629224) от 21.06.2017
-
-The London Promenade Orchestra - Johann Strauss' Greatest Hits (1992) Compilation, Remastered [FLAC|Lossless|image + .cue] <Classical, Instrumental>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Blue Danube Waltz (9:15)
-02. Die Fledermaus Overture (7:45)
-03. Pizzicato Polka (2:34)
-04. Perpetual Motion (3:00)(   Читать дальше...   )Жанр: Classical, InstrumentalПродолжительность: 01:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8973DD276C970F2932B4267411CAC5E92D50C10D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521075   (626751) от 11.07.2012
-
-Johann Sebastian Bach–Messe h-moll Mass B Minor BWV 232: VA La Petite Bande Collegium Musicum van de Nederlandse Bachvereniging conductor Gustav Leonhardt, Authentic instruments (1985)/1990, DHM GD ...
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626751.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1Жанр: VocalПродолжительность: 00:56:23
-Credo
-1. Chorus – Credo in unum Deum 2:27
-2. Chorus – Patrem omnipotentem 2:03
-3. Duetto (soprano & alto) – Et in unum Dominum 4:55
-4. Chorus – Et incarnatus est 3:15
-5. Chorus – Crucifixus 2:51
-6. Chorus – Et resurrexit 4:02
-7. Aria (basso) – Et in Spiritum Sanctum 5:34
-8. Chorus – Confiteor 5:09(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:133E1E2F0841FE94766ECD9042B7826A14DF210B
 ```
 
 https://mybot314.ru/tekegram_catalog/

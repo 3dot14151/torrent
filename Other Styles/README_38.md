@@ -1,3 +1,119 @@
+###  Публикация: 1007258   (819323) от 16.04.2016
+
+Mark Knopfler & Evelyn Glennie - Altamira (2016) [MP3|320 кб/с] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Altamira (2:59)
+02. Maria (3:34)
+03. Dream Of The Bison (2:53)
+04. By The Grave (2:01)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBA6A4AACA0B93ACD032C947E18CA36B1178E12B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382458   (819271) от 11.05.2020
+
+Bruce Kurnow - Peaceful Sunset (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819271.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Peaceful Sunset 03:28
+2. The Light in Your Eyes 02:50
+3. Midnight Tide	04:49
+4. Shenandoah 04:15(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E7EBC1404288828CDE9ECF97E600C129C67EB99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382226   (819134) от 11.05.2020
+
+Jim Brickman - Blessed (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819134.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. How Great Thou Art
+2. Were You There
+3. Abide With Me
+4. Come You Thankful People(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB21548112705D139D2864A38023E4C764AD6034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382605   (819115) от 11.05.2020
+
+Danheim - Runagaldr (2018) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk, Ambient Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runatal (Danheim & Sigurbodi) (6:05)
+02. Egilsson (5:49)
+03. Feikinstafir (3:55)
+04. Fella (3:12)(   Читать дальше...   )Производство: Danheim Self-releasedЖанр: Dark Folk, Nordic Folk, Ambient Folk, Viking MusicПродолжительность: 00:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED4FDDCB6B5B963CDE730DE49785DBE0F212BDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117154   (819093) от 22.03.2017
 
 Canda & Guru Atman - Healing Yoga Mantras (2017) [MP3|320 Kbps] <New Age>
@@ -627,122 +743,6 @@ VA - Peaceful Night Instrumental Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36026D76084CDEF2205226031308E64CB2DA2958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008282   (815700) от 18.04.2016
-
-VA - Los clasicos argentinos Tango - Vol.10  - Alfredo De Angelis: El tango alegre (1996) [MP3|128 кб/с] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carlos Gardel - Senda florida
-02. Nelly Omar - Sus ojos se cerraron
-03. Oscar Alonso - Sueno de juventud
-04. Alfredo De Angelis y su Orquesta - Cuando llora la milonga(   Читать дальше...   )Жанр: TangoПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E40CB4E360653BEC60386CACF5B55F78766BF56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197488   (815691) от 07.01.2018
-
-VA - Cocktail Piano Romance (1999) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dennis Wilson Quartet — Misty (3:36)
-02. The Ronnie Price Quartet — Mack The Knife (3:51)
-03. The Dennis Wilson Quartet — Autumn Leaves (2:21)
-04. The Frank Horrox Quintet — Moonglow (2:15)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B46E42ACE253A17C7DF41CD4FF707C5D02DAECA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197190   (815687) от 07.01.2018
-
-Richard Clayderman - Zeit Zum Traumen (1984) [FLAC|Lossless|image + .cue]<Pop, Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woman In Love 2:28
-02. I Have A Dream 3:08
-03. Bright Eyes	2:52
-04. Hey Jude 2:44(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 00:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D70B3326D56FBDD06007108ECB89780A7A74D7EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117506   (815476) от 24.03.2017
-
-Rejean Paquin - Erotic Music (2006) [MP3|320 Kbps] <New Age, Enigmatic, Erotic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Preleminaries (8:52)
-02. Act 1 (5:43)
-03. Act 2 (5:40)
-04. Act 3 (6:05)(   Читать дальше...   )Жанр: New Age, Enigmatic, EroticПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9ED2A7BDA9B3D2DD98A4939F0EC40E764DEBF49
 ```
 
 https://mybot314.ru/tekegram_catalog/

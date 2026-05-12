@@ -1,3 +1,108 @@
+###  Публикация: 1036318   (620849) от 20.07.2016
+
+Экшены - GraphicRiver - Colorful Impressionist Painting Photoshop Action [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Colorful Impressionist Painting - новый взгляд на Ваши фотоснимки.
+С данным экшеном обработка ваших фото значительно ускорится.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C269E77E9BBCC33BCD73B69376D2814922C652F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036473   (620845) от 20.07.2016
+
+Шаблоны - GraphicRiver - Fast 3D Generator [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fast 3D Generator - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 3000x2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0261C7838700F39CBE06FDD7F1DB1BA7EC89905D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036420   (620840) от 20.07.2016
+
+Экшены - CreativeMarket - Flowers Vintage Photoshop Action [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flowers Vintage - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57B35300FC43F8A5E63146BEAA64AA99670E8C8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230019   (620644) от 09.06.2018
+
+3D модели - Daz 3D - Сборник 3D моделей #13 [DUF, EXE]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор 3d моделей для DAZ 3D - из 50шт, категории Clothing, People, Animation, Structures.Формат: DUF, EXE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D37561B078BFD28B0EBAC61752BDD60D9CFC5CB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522044   (620388) от 14.07.2012
 
 Растровый клипарт - Анатомия человека [JPG]
@@ -577,110 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:510A6887DD128E8415D85CF64561160268B1883C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036981   (617049) от 22.07.2016
-
-Экшены - GraphicRiver - Cartoon Photoshop Action [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cartoon - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48219BDFFAECD68E7DC5688160EEAD5DD01416FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037068   (616948) от 22.07.2016
-
-Фоны - CreativeMarket - 50 Polygons Backgrounds [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616948.jpg" />
-</div>
-
-
-###  Подробнее
-
-50 полигональных фонов в JPG для вашего творчества.Формат: JPGРазрешение файлов: 3000X2000 px/300 dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44C67C61A1442D90F4E5E711650BC5EC14018A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037232   (615577) от 23.07.2016
-
-Шаблоны - CreativeMarket - Devices - Mockups V04 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615577.jpg" />
-</div>
-
-
-###  Подробнее
-
-6 PSD-файлов с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования. В пару кликов мышкой вставьте свои фото для достижения нового эффекта отображения.Формат: PSDРазрешение файлов: 3000x2000px\300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A418423C77552C113E2BF92FF55D1A490EB4FCE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037195   (615576) от 23.07.2016
-
-Шаблоны - CreativeMarket - Devices - Mockups V02 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615576.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 PSD-файлов с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования. В пару кликов мышкой вставьте свои фото для достижения нового эффекта отображения.Формат: PSDРазрешение файлов: 4000x2560 px\300 dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:782B26FCEA2339D2DD082DB96C7B27754FB732EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

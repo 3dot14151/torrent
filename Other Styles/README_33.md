@@ -1,3 +1,116 @@
+###  Публикация: 1110809   (850184) от 04.03.2017
+
+Marco Beltrami - Logan / Логан (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Titles (02:21)
+02. Laura (02:25)
+03. The Grim Reavers (01:33)
+04. Old Man Logan (02:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 0:00:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:595CFD36D93865E8B4B64F99FBDDBAA18AD048EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110989   (850183) от 04.03.2017
+
+Armik - Enamor (2017) [FLAC|Lossless|image + .cue] <Flamenco, Acoustic guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enamor
+02. Lost Love
+03. La Guitarra De Oro
+04. Santa Cruz(   Читать дальше...   )Жанр: Flamenco, Acoustic guitarПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40B781535AA047CC603B968E8ABF029BC22B53D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377748   (850089) от 23.04.2020
+
+Aesop Rock - Freedom Finger (Music from the Game) (2020) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Beats, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Play Dead (3:22)
+02. KOWP (3:39)
+03. Drums On The Wheel (3:45)
+04. Play Dead (Instrumental) (3:22)(   Читать дальше...   )Производство: RhymesayersЖанр: Hip-Hop, Beats, SoundtrackПродолжительность: 00:22:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02AF0ABB1CF8684B2A376F8AD114E566FAADBEB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001739   (850049) от 30.03.2016
+
+Estas Tonne - Internal Flight (Guitar Version) 2013 [FLAC|Lossless|tracks] <Folk, World, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Internal Flight.Estas Tonne (guitar version)Жанр: Folk, World, InstrumentalПродолжительность: 01:04:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E10FDE8C013F42787F3595953E6CB7C0067D52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499169   (849649) от 01.10.2021
 
 Diaspora - Meditation (1998) [MP3|320 Kbps] <Native American, Ethnic>
@@ -629,119 +742,6 @@ VA - Yoga Balance: Asian Traditional Music for Meditation, Yoga Pilates, Relaxed
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92D12D4464A1BACF30241ABAB2E63081EED9E5D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112341   (843110) от 08.03.2017
-
-Dan Gibson's & Donald Quan - Asian Spa (2004) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The True Path
-02. Watery Illumination
-03. Infinite Journey
-04. Euphoric Balance(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5A37D755F917F4A4F8FE6599C5D3BB65F373A8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309349   (842302) от 15.03.2011
-
-Реальные пацаны (2011) [MP3|320 kbps]<Pop/Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842302.jpg" />
-</div>
-
-
-###  Подробнее
-
-2011Жанр: Pop/SoundtrackПродолжительность: 02:11:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:013FBE6FE7A6618C1AF0F26C11B1F2D1921A86D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 771895   (842009) от 30.03.2014
-
-VA - Simply Anti Stress /4CD/ (2010) [FLAC|Lossless]<New age, Chillout, Nature sounds>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842009.jpg" />
-</div>
-
-
-###  Подробнее
-
-(7:26) 1. Akash Asher - Far From The City
-(7:46) 2. Saffron Sounds - Warm Embrace
-(7:23) 3. Perry Wood - Crown - Oneness
-(8:01) 4. Karma Soundz - Inner Depth(   Читать дальше...   )Жанр: New age, Chillout, Nature soundsПродолжительность: 01:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CCC2C8F08AE717AB31829302D8FE3BE80E67D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002793   (841702) от 04.04.2016
-
-Sacred Earth - Breathing Space (2014) [FLAC|Lossless|tracks] <New Age, Relax, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grounded    09:31
-02. Bliss    07:25
-03. Breathing Space    08:06
-04. Jai    08:55(   Читать дальше...   )Жанр: New Age, Relax, MeditativeПродолжительность: 00:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAD34DB1ABE4D0B35AB9EBF89332220F680015F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

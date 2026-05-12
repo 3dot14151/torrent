@@ -1,3 +1,67 @@
+###  Публикация: 1413638   (407991) от 04.10.2020
+
+VA - Beatport Progressive Trance: Sound Pack #181 (2020) [MP3|320 Kbps] <Progressive Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407991.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Norni & Natalie Gioia - By Your Side
+002. Tom Colontonio - Paradigm Shift
+003. Arc In The Sky - Vainqueur
+004. Alexander Gagarin - Still Believe (Radio Mix)(   Читать дальше...   )Жанр: Progressive Trance, ElectroПродолжительность: 09:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D469DA901CBDB51790CDD3D0A2FFDE97A9BEC40F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559334   (407562) от 14.10.2012
+
+VA - Mega Cut Dreams (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. System F - Out Of The Blue 06:41
+02. Svenson.. Gielen - The Beauty Of Silence 09:18
+03. Out Of Grace - Anglia (Anglia Remix) 06:39
+04. Armin Van Buuren And Orjan Nilsen-Belter (Mix Cut) (Original Mix) 05:52
+05. Mauro Picotto - Proximus (With Adiemus) 05:39
+06. Ernesto Vs Bastian - Dark Side Of The Moon 08:07
+07. Yahel.. Eyal Barkan - Voyage (12 Version) 06:24
+08. Ziziki - Steve Brian Remix 06:09
+09. Andrew Rayel-550 Senta (Mix Cut) (Aether Mix) 05:47
+10. Sensation - The Anthem 2002 (Radio Edit) 02:46(   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB5A10C3D4CD74C50A20560FA19FC33A504ECBFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 559301   (407533) от 14.10.2012
 
 VA - FreeFall Again (2012) [MP3|320 кб/с]<Trance>
@@ -749,64 +813,6 @@ Sandra - 25 Best Songs (2012) [MP3|218 - 275 кб/с]<Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FDC62E4D3187CF4D444C4A7847844ECFA5AE11A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 713015   (403204) от 19.10.2013
-
-A-ha - 25 Best Songs (2012) [MP3|320 кб/с]<Synthpop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take On Me 1985
-02. The Sun Always Shines On TV 1985
-03. Hunting High And Low (7'' Remix) 1985
-04. Scoundrel Days 1986(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:46:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9FB3374D1D229CEF5D97DF95248235EDF12FF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712438   (403175) от 19.10.2013
-
-Alphaville - 25 Best Songs (2012) [MP3|243 - 320 кб/с]<Synthpop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big in Japan 1984
-02. Sounds Like a Melody 1984
-03. For a Million 1989
-04. Jerusalem 1986(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6927DEAD487AEB1542D5D0070875ABBC5C84F0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

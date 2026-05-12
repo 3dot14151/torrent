@@ -1,3 +1,30 @@
+###  Публикация: 1223182   (679286) от 02.05.2018
+
+Текстуры - Creative Market - Digital papers marble effect - 1868948 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные цифровые текстуры с официальной документацией.
+Автор: la petite pruneФормат: JPGРазрешение файлов: 3602 x 3602
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BCC8DB8F98FEA76D44751BD42AC6C39A2ECB55A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223032   (679273) от 02.05.2018
 
 Текстуры - Creative Market - Marble Paper Textures Vol.3 - 1487162 [JPG]
@@ -654,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3713A20DC27A4579D8D7C6F52185850578D34C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223655   (669545) от 07.05.2018
-
-Фоны - Envato Elements - Colorful Marble Ink Backgrounds 1 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные фоны.Формат: JPGРазрешение файлов: 6000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D3175049BF0328A1402B1540E6EEBB22D468B2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

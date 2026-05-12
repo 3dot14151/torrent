@@ -1,99 +1,21 @@
-###  Публикация: 1479563   (1009596) от 24.06.2021
+###  Публикация: 1478733   (1010216) от 20.06.2021
 
-Андрей Добров | Смертельный лабиринт (2021) [MP3, Борис Клейнберг]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009596.jpg" />
-</div>
-
-
-###  Подробнее
-
-1844 год. После смерти знаменитого русского баснописца Ивана Крылова его лечащий врач Федор Галлер неожиданно для себя оказывается втянут в опасную интригу. Чтобы добыть бумаги «Нептунова общества», в котором более века состояли высшие аристократы империи, он должен пройти лабиринт, напичканный смертельными ловушками, построенный еще Абрамом Ганнибалом – «арапом (   Читать дальше...   )Жанр: Исторические детективыПродолжительность: 10:17:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17056DFF33215DD30449BECAD4D64295B9CE3249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479457   (1009595) от 24.06.2021
-
-Shaded Explorer - Harmonic Growth (2020) Pregnant Void [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Experimental, Field Recording>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brainroot (05:17)
- 02. Pneuma (04:32)
- 03. Omeostasi (07:08)
- 04. The Human Vector (08:18)(   Читать дальше...   )Жанр: Ambient, Dub Techno, Experimental, Field RecordingПродолжительность: 01:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E119883015477D6048CAE57B8B6370E1617D0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479557   (1009594) от 24.06.2021
-
-Евгения Кретова | Покрова Ахерона (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простить предательство друга, принять врага, побороть страх – только первые шаги на пути Скорби. В этой схватке не будет победителей. В ней нет пути назад, не стоит рассчитывать на милосердие. Госархив Коклурна раскрыл тайну имплементации и подарил Единой галактике надежду на спасение. Но пробужденный враг слишком силен и опасен. Он – тот, кого далекие предки считали (   Читать дальше...   )Жанр: Боевая фантастика, Детективная фантастика, Космическая фантастикаПродолжительность: 17:15:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E5CAC72783D481F112348A61563A1F04B70FD12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479460   (1009593) от 24.06.2021
-
-А.Г. Горюнова (сост.) | Основание семейной жизни. Размышления и советы архимандрита Иоанна (Крестьянкина) (2021) [FB2, EPUB]
+Subset - This Quiet Earth (2021) [FLAC|Lossless|tracks + .cue] <Techno, Dub Techno>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010216.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вступая в брак, каждый человек мечтает о счастливой семье, строит самые радужные планы. Почему же так часто счастье разбивается о быт, о житейские невзгоды, о непонимание? Эта книга составлена из советов старца архимандрита Иоанна (Крестьянкина) о том, на каком основании возможно построить и сохранить хорошую семью, чтобы совместная жизнь мужчины и женщины, и вместе (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+01. This Quiet Earth (8:50)
+02. The Rivers Are Dry (8:18)
+03. Waking World (9:06)
+04. Time As A Theme (6:56)(   Читать дальше...   )Производство: Greyscale – GRSCL17Жанр: Techno, Dub TechnoПродолжительность: 01:11:00
 
 ## Скачать торент
 ```bash
@@ -105,25 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479561   (1009592) от 24.06.2021
+###  Публикация: 1478603   (1010215) от 20.06.2021
 
-Евгения Кретова | Код имплементации: 40 ((Книга 2)(Часть 1-2)) (2021) [MP3]
+Футбол. Чемпионат Европы 2020. Групповой этап. Обзор матчей (19-20.06.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010215.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кажется, справедливость восторжествовала. Кажется, разоблачены все, кто хотел гибели Единой галактики и пересмотра существовавшего в ней порядка. С событий «Навигатора из Нерюнгри» прошло 8 дней. В приграничном секторе один за другим появляются «летучие голландцы» – безлюдные корабли, управлявшиеся земными экипажами. Кто стоит за нападениями: мстительная Креонида (   Читать дальше...   )Жанр: Боевая фантастика, Детективная фантастика, Космическая фантастикаПродолжительность: 14:25:59
+Чемпионат Европы по футболу 2020 года. Обзор матчей. 2-й тур. 8-9й день (19-20.06.2021)Телекомпания: Матч!Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:23:53 + 00:25:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2F76E6800655C94250BB6CE2C850E9A1204D52B
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,57 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479601   (1009591) от 24.06.2021
+###  Публикация: 1478635   (1010214) от 20.06.2021
 
-DVS NME - The Electro Manifesto (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strike Wave (04:54)
- 02. Red Scare (04:47)
- 03. Commanding Heights (04:52)
- 04. Relative Form (04:39)(   Читать дальше...   )Жанр: Electro, IDM, AcidПродолжительность: 01:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE720C426DA90E64A35AD92D1C9E173E9E1DB92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479354   (1009590) от 24.06.2021
-
-VA - Euphoric Progressive Trance (2021) [MP3|320 Kbps] <Progressive Trance>
+VA - Beat Splash: Psy Trance Mixtape (2021) [MP3|320 Kbps] <Psy, Goa Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010214.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Cole Twains - Beyond Time
-002. Nadi Sunrise - Between You And Me
-003. Jay Del Mar - Odyssey
-004. Veselin Tasev - Before Sunrise(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 10:24:24
+01. Grady G - United States
+02. Distorted Forest - A Missed Call
+03. Sixsense - Blow
+04. Impulser And Zenix - Fly(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 09:11:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18BCDC41AD07D662D632B4A79570C660E04C3D2A
+magnet:?xt=urn:btih:2EE4CB01F02FF0A38AC8815CF86EA35D89DAD44D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -189,86 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479345   (1009589) от 24.06.2021
+###  Публикация: 1478616   (1010213) от 20.06.2021
 
-VA - Beatport Tech House: Sound Pack #302 (2021) [MP3|320 Kbps] <Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009589.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jon Snow - What Is House
-002. Deetron - Count On Me
-003. Ron Flatter - Jolie Culotte
-004. Franksen - Wait Now(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 12:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB124DACF113C562BD727FD2AABF4A7127D25D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479352   (1009588) от 24.06.2021
-
-VA - Beatport Disco House: Sound Pack #304 (2021) [MP3|320 Kbps] <Funky, Disco House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009588.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Probably Shouldnt - Canon
-002. Mirko Hirsch - You're Just
-003. Jerem A - Always Too Much
-004. DJ Skip - Fallin N Love(   Читать дальше...   )Жанр: Funky, Disco House, ElectroПродолжительность: 09:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:369246D5C5F181AB50F7865E18AAB1281B242C10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479603   (1009587) от 24.06.2021
-
-Smyglyssna - Departures (2001) Vertical Form [FLAC|Lossless|Vinyl|tracks] <Leftfield, IDM, Ambient, Minimal>
+Hologram - The Great Divide (2001-2007) (2020) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Experimental>
 
 >>Electronic
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010213.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Gazebo (03:36)
- 02. What's That Smell? (03:07)
- 03. Suburban Rooftops (04:04)
- 04. Night Sea (04:05)(   Читать дальше...   )Жанр: Leftfield, IDM, Ambient, MinimalПродолжительность: 00:24:44
+01. The Great Divide (01:58)
+ 02. Elements (06:15)
+ 03. Sephiroth (07:22)
+ 04. Ion (03:30)(   Читать дальше...   )Жанр: IDM, Ambient, ExperimentalПродолжительность: 00:50:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0AF92963152CDA6FD6EB6FB5831801D015F7BA3
+magnet:?xt=urn:btih:56999B551F32B56E3C45F0034F9698372CBE0D59
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -276,28 +111,506 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479490   (1009586) от 24.06.2021
+###  Публикация: 1478418   (1010212) от 20.06.2021
 
-VA - You're In My Heart: Acoustic Love Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Mattias Roos - It Goes On And On (2020) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bring It On (Radio Edit) - 03:20
+02. River Of Love - 03:17
+03. Masterpiece (Remix) - 05:12
+04. Rising To The Top - 03:53(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:02:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478469   (1010211) от 20.06.2021
+
+The Genotype - Neuromancers (2021) [FLAC|Lossless|WEB-DL|tracks] <Modern Melodic Death Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cybernetic Revolt [04:17]
+02. Synthetic Revelations [05:13]
+03. The Maze Of Infinity [04:07]
+04. Corroding Time [04:41](   Читать дальше...   )Жанр: Modern Melodic Death MetalПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478657   (1010210) от 20.06.2021
+
+Марина Ясинская | Восьмирье. 32 августа. Книга 1 (2021) [MP3]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попрощавшись с летом, Вика возвращалась домой 31 августа привычной дорогой и после небольшого происшествия вдруг обнаружила себя в незнакомом месте. Толком не поняв, что произошло, она очутилась в Ово, полном загадок и волшебства. Ово – часть Восьмирья, которое когда-то было единым, но теперь состоит из миров-осколков, разделенных густым мрачным туманом.
+Утром наступает (   Читать дальше...   )Жанр: Детская литература/СказкаПродолжительность: 03:28:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478602   (1010209) от 20.06.2021
+
+Paul Desmond - Milestones Of A Jazz Legend (1950 - 1962) 10CD, 2019, The Intense Media [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010209.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 - Desmond & Paul Desmond feat. Don Elliott:
+01. A Garden In The Rain [2:49]
+02. Soon [2:18]
+03. Winky [2:57](   Читать дальше...   )Жанр: CoolПродолжительность: 09:57:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478630   (1010208) от 20.06.2021
+
+VA - Generate Dance Party: Tech House Mix (2021) [MP3|320 Kbps] <Techno, Tech House, Electro>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010208.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jason Hodges - Day In Paris
+002. Renato Cohen - Fall Down
+003. Back Squad - Body Swag
+004. Rods Novaes - Lembu(   Читать дальше...   )Жанр: Techno, Tech House, ElectroПродолжительность: 09:29:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478660   (1010207) от 20.06.2021
+
+Анастасия Строкина | Совиный волк (2021) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анастасия Строкина «Совиный волк» – увлекательная музыкальная философская сказка замечательного детского писателя.
+В основе сюжета лежит история маленькой героини – дочки летчика, живущей в военном городке на Крайнем севере. У девочки нет друзей, а полярными ночами ей бывает особенно грустно. Главная героиня повести знакомится с вымышленным персонажем – совиным волком (   Читать дальше...   )Жанр: Детская литература/СказкаПродолжительность: 02:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C4F1492FFFA8ECC137AC1531D94A20840821C86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478701   (1010206) от 20.06.2021
+
+Туутикки Толонен | Бука. Нежданные гости. Книга 3 (2021) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третья книга финской серии «Бука», получившей множество наград и переведенной на 27 языков!
+Если ты родился в семье Хеллемаа, как Хилла, Каапо и Майкки, о спокойной жизни можешь забыть! По ночам муравьи приносят Майкки письма в кровать, а в корзине с грязным бельем прячется от ведьм зеленое существо. Говорящий халат сначала прощается навсегда, а потом и вовсе замолкает. (   Читать дальше...   )Жанр: Детская литература/Сказка/ПриключенияПеревод: с финского. Переводчик: Евгения ТиновицкаяПродолжительность: 04:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45F1C9C479C6847F49E91485A9F29B4A0730F357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478503   (1010205) от 20.06.2021
+
+Caliban - Elements (2018) [FLAC|Lossless|image + .cue] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is War (3:03)
+02. Intoxicated (4:08)
+03. Ich Blute Fur Dich (3:58)
+04. Before Later Becomes Never (4:15)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0471A601DA68AD4C88ED1380391516DF60D9112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478611   (1010204) от 20.06.2021
+
+Microsoft Edge 91.0.864.54 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Edge – кроссплатформенный веб-браузер на базе Chromium с поддержкой Windows 10, 8.1 и 7. Отличается высокой скоростью работы, хорошей производительностью и совместимостью со всеми современными веб-стандартами. Microsoft Edge – это скорость, производительность и совместимость со всеми вашими любимыми сайтами и расширениями. Начните работу с браузером так, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C54FC3F9FDCEB1A9A78F7C90FBDCC61FDE3023A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478698   (1010203) от 20.06.2021
+
+Inkipak - Inkipak (2021) Mighty Force [FLAC|Lossless|WEB-DL|tracks] <IDM, Breaks, Electro, Acid>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eight Thirty Seven (08:34)
+ 02. Fragment (06:48)
+ 03. Unobtainable (06:00)
+ 04. Live In Hope (05:39)(   Читать дальше...   )Жанр: IDM, Breaks, Electro, AcidПродолжительность: 01:16:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0017B37C5EB9D1ADCCFC1EA07F2D3576DD811D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478609   (1010202) от 20.06.2021
+
+VA - Spring White Pop Session (2021) [MP3|320 Kbps] <Pop, Dance, Lyric>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010202.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Taylor Swift - Long Story Short
+002. Baekhyun - Disappeared
+003. Jaap Reesema - Nu Wij Niet Meer Praten
+004. Gloria Estefan - Abriendo Puertas(   Читать дальше...   )Жанр: Pop, Dance, LyricПродолжительность: 11:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A245BD0C1E615FE24A4E94C666FCA92735C2BA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478571   (1010201) от 20.06.2021
+
+Футбол. Чемпионат Европы 2020. Групповой этап. Группа F. 2-й тур. Венгрия - Франция (2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты Европы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Европы по футболу 2020 года. Группа F. 2-й тур. Венгрия - Франция. 19 июня 2021, суббота. 16:00 МСК
+СУДЬЯ Оливер Майкл (Нортумберленд, Англия)
+Судья на линии 1: Бэрт Стюарт (Англия)
+Судья на линии 2: Беннетт Саймон (Англия)(   Читать дальше...   )Телекомпания: Россия 1HDЖанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E72EE38DE170F8C0AB607F03E7A93BF4E0942728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478634   (1010200) от 20.06.2021
+
+Lane 8 - Summer 2021 Mixtape (2021-06-15) [MP3|320 Kbps] <Deep House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010200.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ID - ID
+2. ID - ID
+3. Peer Kusiv feat. Johanson - Bring You Back
+4. Massane - Genova(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 04:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEDD7D87BBB2A2E19AFFD17632554B2907ABD9D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478666   (1010199) от 20.06.2021
+
+Анне-Катрине Вестли | Папа, мама, бабушка и восемь детей в Дании (2021) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Норвежская писательница Анне-Катрине Вестли, придумавшая истории про дом, где растут сразу восемь мальчиков и девочек, популярна во всей Европе, наверное, не меньше, чем знаменитая Астрид Линдгрен. Герои её книг – люди простые, но очень симпатичные: добрые, честные, трудолюбивые. Взрослые здесь не теряют умения относиться с юмором к себе самим и друг к другу, какие (   Читать дальше...   )Жанр: Детская литература/Проза/ПриключенияПродолжительность: 02:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92AACA7092B3BA32D665C5117724A1561AAA7A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478400   (1010198) от 20.06.2021
+
+Living Dead Girl - Exorcism (2021) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Alive [00:03:32]
+02 Beautiful [00:03:31]
+03 Give Up [00:04:14]
+04 Exorcism [00:03:53](   Читать дальше...   )Жанр: Modern Metal, Female VocalПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74E9494271B2414B54D6FEB60A0091E962F78ABC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478619   (1010197) от 20.06.2021
+
+Футбол. Чемпионат Европы 2020. Групповой этап. Группа F. 2-й тур. Венгрия — Франция (2021) HDTV [H.264/1080i-LQ]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Европы по футболу 2020 года.
+19 июня 2021, суббота. 16:00 МСК
+Группа F. 2-й тур.
+Венгрия — Франция(   Читать дальше...   )Телекомпания: Россия 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: Русские (отключаемые)Продолжительность: 01:53:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478664   (1010196) от 20.06.2021
+
+Анне-Катрине Вестли | Папа, мама, бабушка и восемь детей. Каникулы в хлеву. Книга 3 (2021) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повести про папу, маму, бабушку, восемь детей и грузовик уже давно полюбились нашим читателям. С 1962 года, когда первая книга из этого цикла была издана в нашей стране, весёлые и поучительные истории о многодетной семье, в которой, несмотря на трудности, никогда не унывают, постоянно переиздаются. Их с удовольствием читают не только дети, но и взрослые – ведь в (   Читать дальше...   )Жанр: Детская литература/Проза/ПриключенияПродолжительность: 01:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F01BBD6B6668A3E760DC29B17B1E2294E9D76A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478588   (1010195) от 20.06.2021
+
+VA - Goodbye My Love (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010195.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rod Stewart - You're In My Heart (The Final Acclaim)
-02. Tamia - Officially Missing You
-03. Jess Glynne - I'll Be There (Acoustic)
-04. Donna Lewis - I Could Be the One(   Читать дальше...   )Жанр: PopПродолжительность: 01:39:02
+01. Marshmello - Leave Before You Love Me (02:35)
+02. Katy Perry - The One That Got Away (03:47)
+03. Maroon 5 - Beautiful Goodbye (04:15)
+04. Lewis Capaldi - Before You Go (03:35)(   Читать дальше...   )Жанр: PopПродолжительность: 01:51:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0E4D548DFCBC86E8270840F7BD4C4186B297238
+magnet:?xt=urn:btih:D968EDED87421EF4C0015B1462CD4BADE890D66F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -305,25 +618,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479511   (1009585) от 24.06.2021
+###  Публикация: 1478563   (1010194) от 20.06.2021
 
-Wise Care 365 Pro 5.7.1.571 RePack (& Portable) by Dodakaedr [Multi/Ru]
+Футбол. Чемпионат Европы 2020. Групповой этап. Группа D. 2-й тур. Англия — Шотландия (2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Архив торрентов
->>Архив Программ
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010194.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Чемпионат Европы по футболу 2020 года.
+18 июня 2021, пятница. 22:00 МСК
+Группа D. 2-й тур.
+Англия — Шотландия(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6009F3933910521B0171D54A5F35BFF61A20DB3
+magnet:?xt=urn:btih:821ABEDAC27EC9B0A0A97EB34A6A6D62FC1E0B4B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -331,57 +647,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479341   (1009584) от 24.06.2021
+###  Публикация: 1478628   (1010193) от 20.06.2021
 
-VA - Beatport Deep House: Sound Pack #301 (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009584.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jimmen - Love Affair
-002. Soulcool - Love Inside
-003. Miguel Palhares - Dreamer
-004. Worldnation - Stateless(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:47:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479337   (1009583) от 24.06.2021
-
-VA - Bassline Massive Project (2021) [MP3|320 Kbps] <Bass, Drum And Bass, Bassline>
+VA - Hot Summer Party Uplifting Trance (2021) [MP3|320 Kbps] <Uplifting, Vocal Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010193.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Chisel - Boy
-002. DJ Vantigo - Looking For You
-003. Parallel - Communications
-004. Electronics - Retribution(   Читать дальше...   )Жанр: Bass, Drum And Bass, BasslineПродолжительность: 07:46:02
+001. DJ Life Nik - Cosmo
+002. Andrew Rayel - My Harmony
+003. Vyacheslav Sketch - Experiment
+004. Janberg - Sleeping Orchestra(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 12:04:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D9132BA6CE813F517F947519D03F98F66E870A7A
+magnet:?xt=urn:btih:E5761C561FA080576146D2B86E9F0E14AE818721
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -389,28 +676,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478730   (1009582) от 24.06.2021
+###  Публикация: 1478646   (1010192) от 20.06.2021
 
-VA - Audiowarp, Best Of The Mix (2021) Mixed by aQuaLuna [MP3|320 Kbps] <Hard Trance, Hard Techno>
+VA - Acoustic Summer 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010192.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Audiowarp - All Around Us (Original Mix) (FOOLS FOREST, 2009)
-02. Audiowarp - 31 Seconds (Original Mix) (MOON UP, 2009)
-03. Audiowarp - Summersonic (Original Mix) (Q-DANCE, 2010)
-04. Audiowarp - Power Of The Music (Original Mix) (BENEFACTOR, 2011)(   Читать дальше...   )Жанр: Hard Trance/TechnoПродолжительность: 02:32:27
+01. Karizma Duo - Wild World (Acoustic) (03:20)
+02. Shannon & Keast - Do I Wanna Know (Acoustic) (04:17)
+03. Logan York - Cheerleader (Acoustic) (03:36)
+04. Talisha Karrer - Everybody Hurts (Acoustic) (03:19)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:065F800B8B7C6F2325A3D1A6855EA2D7EF835CAB
+magnet:?xt=urn:btih:1D45AF5D5E0EA4EB4EF907D7CE452F61B75B9D57
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -418,297 +705,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479634   (1009581) от 24.06.2021
+###  Публикация: 1478409   (1010191) от 20.06.2021
 
-Ирэн Блаватская | Уходя не зарекайся (2021) [MP3]
+Azymuth  - Aurora (2011) [FLAC|Lossless|tracks + .cue]<Jazz Funk>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010191.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Еще вчера я была современной свободной девушкой, известной спортсменкой. Ездила по миру и защищала честь страны. У меня был жених, любовь, и куча планов на жизнь… А что сегодня? Сегодня я никто… Не знаю, доживу ли до завтра, и в каком публичном доме, в гареме, или где еще в итоге окажусь… Скажи мне кто-нибудь еще вчера, что я могу оказаться в такой ситуации, то точно (   Читать дальше...   )Жанр: Любовный романПродолжительность: 11:51:21
+01. Aurora
+02. In My Treehouse
+03. Ta Nessa Ainda Bicho?
+04. Issa E Partido Alto(   Читать дальше...   )Жанр: Jazz FunkПродолжительность: 00:48:26
 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479505   (1009580) от 24.06.2021
-
-Kid3 3.8.7 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kid3 — бесплатный инструмент, позволяющий редактировать теги аудиофайлов. Данная версия программы предназначена для работы в операционной среде Windows и для того, что бы приступить к редактированию тегов, не потребуется даже инсталляция приложения. Приложение может быть запущено из любой директории, является портативным.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6515F12E2D07F11C10329DD593CC0665A180F39F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479605   (1009579) от 24.06.2021
-
-Wise Care 365 Pro 5.7.1.572 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1644862842F5247E46458D111CCE5D6CFFC4B1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479240   (1009578) от 24.06.2021
-
-VA - The Purgatory (2021) [MP3|320 Kbps] <Metal, Hard Rock, Core>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009578.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Capra - Mutt
-002. Wolvencrown - A Shadow
-003. Like Moths To Flames - Basilisk
-004. Purgatory - Stack 'em Up(   Читать дальше...   )Жанр: Metal, Hard Rock, CoreПродолжительность: 10:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4030AA51373E011A3729FDB64AEC0740FE2D7DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479534   (1009577) от 24.06.2021
-
-VA - Music News vol.110 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NAO - Messy Love (03:35)
- 02. Adelen - Obsessed (02:41)
- 03. Alex Dattilo feat. Nany & Obvius - Azucar (03:09)
- 04. AMster - По Тебе (03:28)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D83D82AF5EE4C286789609DAE944EAE9365F1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479539   (1009576) от 24.06.2021
-
-Виктор Гюго | Труженики моря (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009576.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Религия, общество, природа – вот три источника борьбы человека. Эти три борьбы в то же время и три его потребности; надобно верить, отсюда храм; надобно созидать, отсюда город; надобно жить, отсюда плуг и корабль. Но в этих трех потребностях и три рода войны. Из совокупности всех трех проистекает загадочная, таинственная трудность жизни. Человек сталкивается (   Читать дальше...   )Жанр: Зарубежная классикаПродолжительность: 08:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70CDF3DE904AC0F19D8F0617F94E08CE82CEE5E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479537   (1009575) от 24.06.2021
-
-Grendizer, Getter Robo G, Great Mazinger: Kessen! Daikaijuu! | Грендайзер, Гетто Робот Джи и Великий Мазингер против морского чудовища [1976, Movie] BDRip 800p 10-bit raw
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экологическая катастрофа на нефтеналивном терминале пробудила со дна морского огромное чудовище, спавшее там тысячелетиями. Монстр мутировал под воздействием токсичного загрязнения и начал атаковать суда, и танкеры. Единственное решение - собрать вместе всех гигантских роботов и дать бой морскому зверю.Производство: Toei Animation / 東映アニメーションЖанр: приключения, фантастика, мехаРежиссер: Акэхи МасаюкиПеревод: d307 & StubbornЯзык озвучки: японскийСубтитры: русские, английскиеПродолжительность: 31 мин.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479619   (1009574) от 24.06.2021
-
-Yowamushi Pedal: Glory Line | Трусливый велосипедист [ТВ-4] [2018, TV, 25 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сакамичи Онода – главный герой сей истории, который уже «повзрослел» и теперь уже опытный велогонщик, намерен выиграть очередные соревнования и доказать, чего он добился за время своих изнурительных тренировок. Теперь Онода вместе с Сёкитой Наруко, который и вовлёк его в велоклуб, плечом к плечу должны пройти множество испытаний, ведь, достигая больших высот, взобраться (   Читать дальше...   )Производство: Студия TMS Entertainment / トムス・エンタテインメントЖанр: спорт, комедияРежиссер: Набэсима ОсамуПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53B4559A00E076AF71BA7A963CA4D32F8CA5966B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479531   (1009573) от 24.06.2021
-
-Владимир Мясоедов | Рейд-босс (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда боги играют в свои игры, заинтересовавший их персонаж легко может получить второй шанс… Даже несмотря на то, что один раз он его уже когда-то получал. Боевой маг Мирдин Ревел, в далеком прошлом отзывавшийся на обычное земное имя Константин, выяснил это на собственном опыте. И не то чтобы он жаловался… Однако новая жизнь, третья по счету, вызывает у него множество (   Читать дальше...   )Жанр: Боевое фэнтези, героическое фэнтези, попаданцы, LitRPGПродолжительность: 10:06:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:130A4B0D60FE3E568EAE72B5E55A17C445D83FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479253   (1009572) от 24.06.2021
-
-VA - Chillout Deep Sounds (2021) [MP3|320 Kbps] <Chillout, Ambient, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009572.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Project Blue Sun - Lost In Your Eyes
-002. Amethystium - Nightfall
-003. Marshall Watson - A Door In The Sky
-004. Begin - Super Barrio(   Читать дальше...   )Жанр: Chillout, Ambient, Downtempo, LoungeПродолжительность: 12:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B10BC4EF0A35A05DB7B108423A96414F4B35F92B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479615   (1009571) от 24.06.2021
-
-Колин Гувер | Уродливая любовь (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эмоциональный, трогательный и захватывающий до самой последней страницы роман.
-Это не было любовью с первого взгляда. Это не было дружбой.
-Он не хотел привязанностей, у нее не хватало времени на серьезные отношения.
-Поэтому они решили просто получать удовольствие.(   Читать дальше...   )Жанр: Зарубежные любовные романы, Современные любовные романыПродолжительность: 08:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C72DACA26CE85B1D82442DDA34AB2185E5073CA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

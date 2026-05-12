@@ -1,3 +1,29 @@
+###  Публикация: 1791883   (21204) от 16.04.2025
+
+Фоны - STCrafts - Creative Fabrica - Pink Pastel Rainbow Girly Glitter Hearts Digital Paper Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоны с розовыми пастельными радужными сердечками с блёстками.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC773C857BB35D788F8B7076885E58045C5D1CDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792341   (21012) от 18.04.2025
 
 Фоны - Creative Fabrica - Unicorn Background Digital Paper Pack [JPG, PNG, PDF]
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7AB8D28462ACFAD62E5D61C574FAFF5AB8E90E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810293   (17478) от 03.08.2025
-
-Текстуры - Envato - Traditional Market Halftone Textures Batch No 03 - WDYZDF3 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскройте свой творческий потенциал с помощью наших полутоновых текстур «Traditional Market Halftone». Их можно использовать в качестве декора и дополнительной графики в таких дизайнах, как фирменные накладки, подушки, плакаты, флаеры, брошюры, визитки, обои для телефона, обои для рабочего стола и т.д.Формат: JPGРазрешение файлов: 6000x4500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFFFC35E5B8C0763A7162C278BE44CD1BE7B3CD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

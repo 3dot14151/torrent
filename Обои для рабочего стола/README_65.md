@@ -1,3 +1,29 @@
+###  Публикация: 1330321   (343518) от 09.10.2019
+
+Desktop Wallpapers Full HD. Part (511) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:724C530506272AC7662B8E557C79FF3A5990C93A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330330   (343516) от 09.10.2019
 
 Ultra HD 3840x2160 Wallpaper Pack 401 [JPG]
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9A86F16F7CB1536423ED5E0D72A8BA83AFF54EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955353   (335161) от 10.11.2015
-
-Обои - Creative Art HD Wallpapers Mix 9 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Креативные обои. Выпуск 9Формат: JPGРазрешение файлов: 1920x1200 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F3EE19D4644F2FDF73411C7D8975363C5C0A62D
 ```
 
 https://mybot314.ru/tekegram_catalog/

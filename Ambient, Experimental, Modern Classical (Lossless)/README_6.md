@@ -1,3 +1,29 @@
+###  Публикация: 1202197   (790455) от 28.01.2018
+
+VA - Peaceful Piano (2017) Decca [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Contemporary, Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Modern Classical, Ambient, Contemporary •Продолжительность: 03:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33F448A714171B0C84226E91AB10FA776D7E906F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202832   (789535) от 30.01.2018
 
 Illuvia - Illuvia (2017) Eternell [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
@@ -716,35 +742,6 @@ Yann Novak - The Future Is a Forward Escape into the Past (2018) Touch [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92A55CCED13573178B169C3EBDA1F62CA1A4BD70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013731   (777146) от 05.05.2016
-
-Jean-Michel Jarre - Electronica 2: The Heart of Noise (2016) Columbia [FLAC|Lossless|WEB-DL|tracks] <Electro, Trance, Ambient, House>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean-Michel Jarre & Rone – The Heart of Noise, Pt. 1 (4:26)
-02. Jean-Michel Jarre – The Heart of Noise, Pt. 2 (4:10)
-03. Jean-Michel Jarre & Pet Shop Boys – Brick England (4:01)
-04. Jean-Michel Jarre & Julia Holter – These Creatures (3:40)(   Читать дальше...   )Тип издания: Web •Жанр: Electro, Trance, Ambient, House •Продолжительность: 01:14:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B543D0C5C8323F61E60368D7CFFE5A8A3B7B219D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,145 @@
+###  Публикация: 1238784   (544605) от 01.08.2018
+
+7and5 - The Lost Voice (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Closer to Heaven (4:41)
+02. Life at Once (3:46)
+03. Father (4:37)
+04. Mi Deh Yah (3:46)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDEC78E89A467A0CF269761A806EC609E9FCE4DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238815   (544603) от 01.08.2018
+
+Simon Daum - Of One Heart (2018) [MP3|320 Kbps] <Instrumental, Piano, New age>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Matter What (3:21)
+02. A New Life (5:08)
+03. Set Free (2:48)
+04. Distant Call (2:27)(   Читать дальше...   )Жанр: Instrumental, Piano, New ageПродолжительность: 01:07:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B74938CD824FC976A810920DA7AEBF13A1D1EB66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049027   (544542) от 04.09.2016
+
+Zack Hemsey - (Discography) (2006-2014) [FLAC|Lossless|WEB-DL|tracks]<Instrumental, Hip Hop>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Instrumental, Hip Hop •Продолжительность: 10:12:29 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F001C7445840BA01DED9BFB9035CFBD1B8FD59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049323   (543810) от 05.09.2016
+
+As Ganhadeiras de Itapua - As Ganhadeiras de Itapua (2014) [MP3|196-213 Kbps] <Latin Music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Canto Da Lavadeira [2:57]
+02. Bando Das Ganhadeiras [4:15]
+03. As Ganhadeiras [3:37]
+04. Conto De Areia [4:00](   Читать дальше...   )Жанр: Latin MusicПродолжительность: 01:05:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E010B87F961B75A93CA2667DC6AA2C4F437E487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049410   (543764) от 05.09.2016
+
+Hong Kong Virtuosi Folk Ensemble - Four Virtuosi Plays Chinese Traditional Music Vol.2 (1989) [WavPack|Lossless|image + .cue] <Ethno, Chinese Traditional Music>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543764.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Plum Blossom Melody (7:52)
+2. Sound Of The Nature (6:05)
+3. Song Of The Lotus (7:38)
+4. Phoenix Spreading His Tail (3:39)(   Читать дальше...   )Жанр: Ethno, Chinese Traditional MusicПродолжительность: 01:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7850F5F526B73F14B6AF36341C9537C6E32E6C2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925019   (543086) от 05.08.2015
 
 Ivonne Alexander - Benevolence (2015) [MP3|320 кб/с]<Electronic, New Age>
@@ -630,151 +772,6 @@ VA-Enigma Lounge - By The Essence (2004) [MP3|320 кб/с]<New age , Enigmatic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E93F3A84B91ACEE64E6CD3679617B859DD9C273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311232   (539969) от 30.06.2019
-
-Daughter of Swords - Dawnbreaker (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fellows (03:51)
-02. Gem (03:57)
-03. Fields of Gold (03:31)
-04. Shining Woman (03:26)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F290B0A889FFE48EA7D725B9C3FFA51A152C1783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 226421   (539753) от 14.08.2010
-
-Kaare Norge & Claus Raahauge - Made Of Dreams (1998) [MP3|256 kbps]<Relax, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539753.jpg" />
-</div>
-
-
-###  Подробнее
-
-(15:30) 1. Dancing Gallery
-(11:34) 2. Dreams
-(09:50) 3. Sunset
-(06:49) 4. Thea
-(04:17) 5. Simple MindednessЖанр: Relax, New AgeПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049600   (539674) от 07.09.2016
-
-Zack Hemsey - 13 Albums + 8 Singles (2006-2014) [MP3|320 кб/с]<Instrumental, Hip Hop>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zack Hemsey - американский композитор и музыкальный продюсер, известный создатель музыкальных композиций к трейлерам фильмов. Примечательной была его работа "Mind Heist" - музыка из "Трейлер №3" к фильму "Начало". Hemsey также работал над музыкой к другим трейлерам и его треки не раз брали в фильмы.
-Родился Zack Hemsey в 1983 году. Начал (   Читать дальше...   )Жанр: Instrumental, Hip Hop •Продолжительность: 10:12:29 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0002F2966F4078D89C3E62AEC72FDE10160DD0E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153152   (538839) от 31.07.2017
-
-Yoko Shimomura, VA - Final Fantasy XV Original Soundtrack (2016) 4 CD [MP3|320 Kbps] <Soundtrack, Instrumental, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальный саундтрек к игре Final Fantasy XV, разработанный студией Square Enix.
-Альбом поступил в продажу 21 декабря 2016 года.01. Broken Bonds [03:09]
-02. Dining Car [03:07]
-03. Cartanica [04:13]
-04. Relax and Reflect - Pensive [02:14](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Classical Crossover, ScoreПродолжительность: 05:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:923826FDF6E68B30803457206E004C755B7AE59F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925668   (538759) от 07.08.2015
-
-The Royal Guitar Ensemble & Claude Ciari - Golden Guitar (2004) [FLAC|Lossless]<Instrumental, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haunted Guitar
-02. The Third Man Theme
-03. La Playa
-04. The Executioner Theme(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C06B916F3378C4F8E391D6DE3B89F7A34194B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

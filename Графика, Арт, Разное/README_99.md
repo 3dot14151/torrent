@@ -1,3 +1,55 @@
+###  Публикация: 1248581   (442042) от 20.09.2018
+
+Картинки - Deeezy - 20 Free Landscape Photos [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные фото пейзажей. Материал раздается с официальной документацией.Формат: JPGРазрешение файлов: 2955 x 4644 - 5184 x 3456
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52B0EE4AB89A418A3068262279494D199477110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944632   (440232) от 07.10.2015
+
+Обои - Amazing Mountain Lakes HD Wallpapers 2 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои на тему горных озёрФормат: JPGРазрешение файлов: 1920x1200 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3A20423FE36E489A1AA67378C0D1C2064480F1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944637   (440089) от 07.10.2015
 
 Обои - Creative Art HD Wallpapers Mix 5 [JPG]
@@ -615,59 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9703E1A52D9299F6203544A44A878F7D40FCD2AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945116   (435835) от 09.10.2015
-
-Картинки - Wallpaper Macro Selection Set2 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть картинок в стиле макро съёмки.
-Подборка TRECA & MOXOMOR akaФормат: JPGРазрешение файлов: 1920х1080 - 8736х5824
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E22D2425AF0485DEFFB186902B53367556CC76A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323598   (435815) от 04.09.2019
-
-Desktop Wallpapers Full HD. Part (507) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E27D24F5E1DD418CFA5A0B1E2565832AB22559
 ```
 
 https://mybot314.ru/tekegram_catalog/

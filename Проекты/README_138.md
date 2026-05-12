@@ -1,3 +1,55 @@
+###  Публикация: 1023666   (723812) от 05.06.2016
+
+Проекты - VideoHive - Elegant Circle Stand Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элегантный проект для демонстрации логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2FA54B91F480950FCB47A6FFA8C6ED8B029862D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023552   (723745) от 05.06.2016
+
+Проекты - VideoHive - Platinum | Logo Reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для эффектной демонстрации платинового логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42490E02809194C193405F54E107D9891770C61E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023629   (723742) от 05.06.2016
 
 Проекты - VideoHive - Architect Logo Reveal (3 versions) [AEP]
@@ -618,58 +670,6 @@ Keyworks - добавит силу слов вашим видео-работам
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BB264425B7EA575968B17BA3C225C9AA05C5033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129408   (722037) от 28.04.2017
-
-Проекты - Motion Elements - 10 Burn Paper Transition - 10389603 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722037.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 экстравагантных переходов с горящей бумагой для вашего творчества.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934064E3FD51E4C580528CB40E036E7A7119265D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129388   (722033) от 28.04.2017
-
-Проекты - VideoHive - Flat And Fun Promo - 19712577 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flat And Fun Promo - проект АЕ для рекламы, презентаций, модного показа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D1E1B09BDD0E1250C495CFFBB605DD2D86C66B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

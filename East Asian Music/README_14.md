@@ -1,3 +1,32 @@
+###  Публикация: 1179667   (346467) от 01.11.2017
+
+Masayoshi Takanaka - The Rainbow Goblins (1981) 2013, Universal [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue [03:16]
+02. Once Upon a Song [05:11]
+03. Seven Goblins [03:13]
+04. The Sunset Valley [04:24](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:08:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CF70A6911249D874FCA8DA52F9A936DADA0C15C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577664   (345000) от 24.11.2012
 
 Koda Kumi - 10 альбомов, 5 компиляций, 6 Remix Albums, 58 синглов (2000-2012) [MP3|128-320 кб/с]<J-Pop, J-R&B>
@@ -716,41 +745,6 @@ CD #1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B5398CDD0A8245103CE3690E3AAF4A20A32A923
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 416506   (316984) от 01.12.2011
-
-Turtles - 2 albums (2003-2004) [FLAC|Lossless]<Korean,hip hop>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turtles Free 3-1
-02. 얼마나
-03. 이제부터
-04. 빙고
-05. 왜 말 안했니
-06. 고맙습니다
-07. Turtles Free 3-2
-08. 아지와 양이
-09. 내가 너라면
-10. 그렇지 않아(   Читать дальше...   )2003-2004Жанр: Korean,hip hopПродолжительность: 00:35:20
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1286708   (711155) от 03.03.2019
+
+Gigi D'Agostino - The Greatest Hits (1996/2007) Compilation, Reissue [MP3|320 Kbps] <Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noise Maker Theme (8:52)
+02. Sweetly (8:09)
+03. Happily (8:26)
+04. This Song Tears Easily (5:35)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F779AB562262ABC12BF742D06FFAF0553F471C5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220162   (708239) от 17.04.2018
+
+VA - The Best Of JamX & De Leon (Edits & Album Specials) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Binary Finary - 1998 (JamX & De Leons)
+02. DuMonde - Tomorrow (Edit)
+03. DuMonde - See the Light (Special)
+04. DuMonde vs Lange - Memory Jamx & De Leon Mix (Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:51:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F50E7E3AEBA9CDCF54389E878C5DC3C0D00A4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286893   (707305) от 05.03.2019
 
 VA - From euphonic to Russia (mixed by Kyau vs. Albert) (2006) [MP3|320 Kbps] <Trance, Progressive Trance>
@@ -684,64 +742,6 @@ VA - Best Of Female Vocal Trance (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEA927AD888CCF667E6F76DE1D89A73E4BB6FD88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221758   (691465) от 26.04.2018
-
-VA - Workout Vol. 4 (2018) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gap - Untitled 1:56
-02. Ivanshee - Above The Sky 6:33
-03. Dj Zeya - Heartbeat 2:36
-04. Nikita Kharin - The Underground 9:11(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:31:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EEF428FE42E36F8704DBEC0579869CCA32D6FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403690   (688560) от 21.08.2020
-
-VA - Trance Classics - The Best Of (2020) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trance Classics feat. Esmee Bor Stotijn - Better Off Alone (Original Mix)
-02. Trance Classics feat. Esmee Bor Stotij - Fly Away (Original Mix)
-03. Trance Classics feat. Esmee Bor Stotijn - Till The Sky Falls Down (Original Mix)
-04. Trance Classics - Communication (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:08:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4CCB3A8E307662763C50BC33C0AE1FA51166166
 ```
 
 https://mybot314.ru/tekegram_catalog/

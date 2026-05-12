@@ -1,3 +1,170 @@
+###  Публикация: 1163689   (448144) от 06.09.2017
+
+Vangelis Katsoulis - If Not Now When (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448144.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. All The Blue Skies
+2. Zarrin
+2. Grand Delusions
+4. Liquidity(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 00:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01BD186848BB6C4262AAC9FAA7B8B913719FD75B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552150   (448049) от 26.09.2012
+
+Edward Shearmur - K-PAX / Планета Ка-Пэкс (2001) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448049.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Grand Central (4:38)
+2. Good Morning Bess (2:47
+3. Taxi Ride (3:50)
+4. Constellation Lyra (2:41)
+5. Bluebird	 (3:52)
+6. 4th Of July (4:14)
+7. Prot Missing (2:30)
+8. Sarah (3:03)
+9. New Mexico (6:24)
+10. Powell's Return (1:11)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:930E304F2AEDB95BA8BFADE2CD7D96A39FB9BC62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552567   (447914) от 26.09.2012
+
+Шедевры Этнической Музыки - Ритуальная Музыка Индейцев Центральной Америки (2004) [MP3|320 кб/с]<Native American, Ethnic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danza del Capareke (2:16)
+02. Los senores del tiempo (3:50)
+03. Nahui atl (9:23)
+04. Vines of the serpent (4:24)
+05. Oracion a los espiritus del viento nocturno (11:55)
+06. Ojo de reptile (4:23)
+07. Tlazolteootl (3:36)
+08. El agua y los suenos (5:01)
+09. Little flowers of the God (4:34)Жанр: Native American, EthnicПродолжительность: 00:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03521752806FA74E440E7855643722E43013325B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 243075   (447771) от 07.10.2010
+
+Cybertribe & Deuter & Kamal - Yoga & Pilates by the Sea (2008) [MP3|320 kbps]<Relax, Healing>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_447771.jpg" />
+</div>
+
+
+###  Подробнее
+
+(05:07) 1. Deuter - Sea & Silence
+(05:52) 2. Cybertribe - Spirit Earth Continues, The
+(10:06) 3. Cybertribe - Reaching Motherland
+(06:04) 4. Cybertribe - Celebration
+(05:13) 5. Cybertribe - Voices From a Distant Planet
+(10:35) 6. Cybertribe - Seaside Traveling
+(10:58) 7. Cybertribe - Poseidon's Gate
+(09:07) 8. Kamal - Dreamcatcher
+(14:03) 9. Kamal - Water HealingЖанр: Relax, HealingПродолжительность: 01:17:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550682   (447728) от 26.09.2012
+
+The Corrs - 3 альбома - 5CD (2001-2007) [FLAC|Lossless]<Pop rock, Celtic, Folk, House>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_447728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Sunshine [02:52]
+02. Angel [03:27]
+03. Long Night [03:49]
+04. Old Town [03:49]
+05. Heart Like A Wheel [03:55]
+06. Black Is The Colour [03:50]
+07. Haste To The Wedding [02:29]
+08. No Frontiers [04:25]
+09. Love In The Milkyway [04:02]
+10. Looking In The Eyes Of Love [04:33](   Читать дальше...   )Жанр: Pop rock, Celtic, Folk, HouseПродолжительность: 01:12:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943333   (447469) от 04.10.2015
 
 VA - Музыка из т/с «Два Антона» (2009-2010) [MP3|128 кб/с]<Expanded Score / Unofficial>
@@ -613,157 +780,6 @@ VAD - Заря (2011) [MP3|320 кб/с]<New Age, Ethnic , Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F8978BAAA0A6722C5839F301629458037CDAC39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944550   (440382) от 07.10.2015
-
-Age Of Echoes - Beyond the Farthest Shore (2015) [MP3|320 кб/с]<New Age, Relax, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit of Adventure
-02. To the Ends of the Earth
-03. Mapping the Stars
-04. Hidden Paradise(   Читать дальше...   )Жанр: New Age, Relax, AmbientПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5693CB7BF5F2E526A10245B743D5A9CE93EE394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 88648   (440343) от 29.09.2012
-
-Микаэл Таривердиев - 17 мгновений весны (1996) [FLAC|Lossless|image + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_440343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-На Цветочной улице
-02-Где-то далеко
-03-Эхо войны
-04-В чёрно-белом ритме(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 2922   (440334) от 29.09.2012
-
-Пелагея(folk)
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_440334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Любо, братцы любо! (05:50)
-02. Я ехала домой (02:24)
-03. Позарастали стежки-дорожки (03:16)
-04. Не вечерняя (04:07)
-05. Думы (Ю. Ким) (03:00)
-06. Вечериночная (00:49)
-07. Отжил я свой век. Духовный с.. (01:55)
-08. Не для тебя (03:14)
-09. Не уходи (Н. Зубов/сл. народ.. (02:24)
-10. Рождественская (04:47)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:55:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 249734   (439982) от 19.09.2020
-
-Андрей Петров - Осенний Марафон (1996) [MP3|320 kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вальс (`Берегись автомобиля`) (3:57)
-02. Увертюра (`Служебный роман`) (4:08)
-03. Утро (`Служебный роман`) (2:39)
-04. Дождь (`Служебный роман`) (2:52)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CE5991AF1851EF8CCFE178D76C3044D45A7671E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322645   (439860) от 02.09.2019
-
-Jim Brickman - Pure Carpenters (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439860.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.We've Only Just Begun (3:42)
-2.Yesterday Once More (3:48)
-3.They Long To Be Close To You (3:17)
-4.A Song For You (3:50)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4780D741385CAEF80F9BF92A9D587BA0E2E4E09
 ```
 
 https://mybot314.ru/tekegram_catalog/

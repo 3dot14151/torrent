@@ -1,3 +1,32 @@
+###  Публикация: 1239833   (535323) от 07.08.2018
+
+Raphaël Marionneau - Le Classique Abstrait Volume 1 (2002) Abstrait Music [FLAC|Lossless|tracks+.cue] <Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Porz Gwenn Variation 1: Tal Ar Mor (04:25)
+ 02. Beau Soir (02:48)
+ 03. Le Dernier Sommeil De La Vierge (03:45)
+ 04. Heaven In A Wild Flower (04:18)(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 01:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47DAE71C880C7C360355AE8E5D24E238C7D50526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155236   (535306) от 02.08.2017
 
 Martian Love - 5 Albums (2009-2014) Discography [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Downtempo>
@@ -713,35 +742,6 @@ Ryoji Ikeda (池田亮司) - Discography 18 Releases (1995-2018) Raster-Noton, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F549B606D53C225F858A65473D21EB391432FE14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280027   (474782) от 03.09.2020
-
-Forrest Fang | Sans Serif - Discography 18 Releases (1982-2020) Ominous Thud, Projekt [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Tribal, Minimal, Experimental, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Henon's Aurora (13:20)
- 02. Chant Of Urm (08:52)
- 03. Lost Oracle (12:09)
- 04. A Silver Season (12:29)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient, Tribal, Minimal, Experimental, Drone •Продолжительность: 21:39:43 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:000D6AE5B119C126031155CC348F425A0517D862
 ```
 
 https://mybot314.ru/tekegram_catalog/

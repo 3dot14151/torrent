@@ -1,3 +1,29 @@
+###  Публикация: 1336455   (279172) от 07.11.2019
+
+SQLPro Studio 2019.09.27.3 (build 110557) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279172.jpg" />
+</div>
+
+
+###  Подробнее
+
+QLPro Studio инструмент управления базами данных Postgres, MySQL, Microsoft Management Studio и Oracle.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Hankinsoft Development, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC21FDD147ECEAD7BBD06402B986AB4AAAF9A561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336457   (279169) от 07.11.2019
 
 SuperDuper! 3.3.B4 [En]
@@ -665,32 +691,6 @@ Handy Note - это прекрасно написанное приложение
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D51E7F1AAB7401F38EBDDAE1AE43DA87A5DB8B9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336844   (277521) от 08.11.2019
-
-Adobe Zii 2020 - Universal Patcher v5.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A2CCCC3663BC56E2DF7F6EA692E0B833BBCAEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

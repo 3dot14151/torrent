@@ -1,3 +1,29 @@
+###  Публикация: 1261896   (301087) от 12.11.2018
+
+Обои - Ultra HD 3840x2160 Wallpaper Pack 350 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301087.jpg" />
+</div>
+
+
+###  Подробнее
+
+В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:089B0FE9CD70B3F989A9FA5027A28BE0ED534A33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261894   (301085) от 12.11.2018
 
 Обои - Ultra HD 3840x2160 Wallpaper Pack 349 [JPG]
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A97079AA8274DF8124F5431FCB61D91A9C503F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962481   (293339) от 05.12.2015
-
-Обои - Domestic animals 3 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на тему животныхФормат: JPGРазрешение файлов: 1680x1050 - 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CFA1CAAFDFC294275597CA21EDCD173903A787B
 ```
 
 https://mybot314.ru/tekegram_catalog/

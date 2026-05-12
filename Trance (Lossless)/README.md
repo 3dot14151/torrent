@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1868884   (1067882) от 03.05.2026
+
+VA - The Best Of Dream Dance (2006) 2 x CD, Compilation [FLAC|Lossless|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067882.jpg" />
+</div>
+
+
+###  Подробнее
+
+2-01	Sylver–	Turn The Tide (Radio Edit)	4:03
+2-02	Lasgo–	Something (Radio Mix)	3:41
+2-03	DJ Sammy & Yanou–	Heaven (S'n'Y Mix Radio Edit) 3:55
+2-04	Fragma–	Toca Me (Radio Cut)	3:33(   Читать дальше...   )Жанр: TranceПродолжительность: 02:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A4AD2515970046409AE3991B3BF5AB2DE378BF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869045   (1067846) от 03.05.2026
+
+VA - Dream Dance - Lost Trance Classics (2009) 2 x CD, Compilation [FLAC|Lossless|tracks] <Trance, Euro House, Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067846.jpg" />
+</div>
+
+
+###  Подробнее
+
+2-1	Chicane feat. Moya Brennan–	Saltwater 3:21
+2-2	Armin van Buuren feat. Justine Suissa–	Burned With Desire (Rising Star Edit) 2:59
+2-3	ATB–	Believe In Me	3:14
+2-4	Above & Beyond–	Can't Sleep	3:14(   Читать дальше...   )Жанр: Trance, Euro House, Progressive TranceПродолжительность: 02:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B0DC527FE896DCBE0CCFA846C764268D7ABAB21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869060   (1067845) от 03.05.2026
+
+VA - Dream Dance - Best Of 15 Years (2011) 2 x CD, Compilation [FLAC|Lossless|tracks] <Trance, Euro House, Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067845.jpg" />
+</div>
+
+
+###  Подробнее
+
+2-01	Safri Duo–	Played -A- Live (The Bongo Song) (Radio Cut)	3:17
+2-02	Sash! Feat. Rodriguez–	Ecuador (Single Mix) 3:31
+2-03	Brooklyn Bounce–	Bass, Beats & Melody (Album Version)	3:40
+2-04	Charly Lownoise & Mental Theo Present Starsplash–	Wonderful Days (2001 Radio Edit) 3:14(   Читать дальше...   )Жанр: Trance, Euro House, Progressive TranceПродолжительность: 02:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56280B5EBBFAEF8238F5AE562E0CDE4CCCB93A7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856144   (1058731) от 26.02.2026
 
 VA - A State of Trance: 25 Years - Official Anthem Collection (2026) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
@@ -655,90 +742,6 @@ VA - Euphonic 300 (Compiled and mixed by Kyau & Albert) (2019) [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC15B5BCBD96114FE8DB402038C28807B5EEB7AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978038   (964465) от 22.01.2016
-
-VA - Best Of Vocal Trance 2016 (2016) [FLAC|tracks|WEB-DL]<Trance, Vocal Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964465.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:57] 01. Tenishia & Sue McLaren - Strong (Radio Edit)
-[03:51] 02. Stargazers & Kate Louise Smith - Black Diamond (Radio Edit)
-[02:54] 03. Kaimo K & Sarah Russell - Love Will Never Leave (Radio Edit)
-[03:53] 04. Susana & Hazem Beltagui - Silent For So Long (Maratone Radio Edit)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B55E49AB84837BF6519982131FD4FC7630D5C65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360800   (959401) от 16.02.2020
-
-Ultra SKM - Southern Shaman (2020) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ultra SKM - Southern ShamanЖанр: Uplifting TranceПродолжительность: 00:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD800B782BDB98FC4CAE36C399E0D4540641DA26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981249   (951619) от 01.02.2016
-
-VA - Dark Sessions Radio 014 (Mixed by Oberon) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stuart Millar – Cobra (07:33)
-02. Miles – Fragments (Tasso Remix) (06:48)
-03. Gary Maguire – Clear Purpose (08:06)
-04. UP3 – Balrog (08:00)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3EA57591FC52F2441A50E05D2E0362BCA763FA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

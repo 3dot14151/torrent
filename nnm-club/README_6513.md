@@ -1,54 +1,23 @@
-###  Публикация: 1010813   (797710) от 26.04.2016
+###  Публикация: 1507687   (798319) от 05.11.2021
 
-Футбол. Чемпионат Италии 2015-2016. 35 тур. Рома - Наполи (25.04.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797710.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 апреля 2016, понедельник. 16:00 МСК
-35-й тур
-
-Стадион: Олимпико (Рим, Италия) , вместимость: 72698(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Георгий Черданцев, Руслан Пименов) / ИнтершумПродолжительность: 01:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F1B95D26221D2CCEF677DDFFB7C38D8398858F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010562   (797709) от 26.04.2016
-
-Футбол. Кубок Англии 2015-2016. 1/2 финала. Кристал Пэлас - Уотфорд (24.04.2016) HDTVRip [H.264/720p-LQ]
+BusyCal 2021.4.2 [Multi]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798319.jpg" />
 </div>
 
 
 ###  Подробнее
 
-24 апреля 2016, воскресенье. 18:00 МСК
-1/2 финала
-
-Стадион: Уэмбли (Лондон, Англия) , 79 110 зрителей (88 % при вместимости 90 000)(   Читать дальше...   )Телекомпания: Игра HDЖанр: СпортЯзык озвучки: Русский (Филипп Кудрявцев, Евгений Савин)Продолжительность: 01:47:04
+BusyCal - это обновленная версия популярного календаря, отличающегося простотой и удобством, но в то же время обладающего большой функциональностью.
+BusyCal - программа на Mac OS X, которая поможет вам распланировать и следить за вашими делами. Разработчик позиционирует это приложение как "iCal Pro". iCal - одна из лучших программ на Mac от Apple. Однако, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.11.2021Разработчик: BusyCal, LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C0536A9C905F66C542DBA42D61DD012D8382E3E
+magnet:?xt=urn:btih:F90431864C826B76766B90D8FBF1EB4F21D56A73
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,27 +25,84 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010995   (797708) от 26.04.2016
+###  Публикация: 1507631   (798318) от 05.11.2021
 
-Хоккей. НХЛ 2015-2016. Плей-офф. 1/4 финала. Запад. Нэшвилл - Анахайм. 6-й матч (25.04.2016) WEB-DL [H.264/720p-LQ] [EN]
+VA - Midnight Hours: Urban Chillout Vibes (2021) [AAC|~301 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - A Wonderful Day (Sophisticated Jazz Version) (3:01)
+02. Pier-O - Night Sky (5:43)
+03. Lounge Groove Avenue - Easy Lovers (2:09)
+04. Schwarz & Funk - Missing Rudi (Original Mix) (4:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:56:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:485DFEE52EE7E52C6E4B84958D01B1212847EE77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507637   (798317) от 05.11.2021
+
+VA - Urban City Vibes, vol. 7 (Urban Funk, Soul and Lounge Music) (2021) [AAC|~310 Kbps] <Chillout, Lounge, Trip-hop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Unimaginable (5:25)
+02. Ibiza Chilled - Secret S'estanyol (Original Mix) (7:06)
+03. Simply Chill, Maison Musiq - I Go Now (Original Mix) (4:13)
+04. Pier-O - Sunglasses (6:12)(   Читать дальше...   )Жанр: Chillout, Lounge, Trip-hopПродолжительность: 01:34:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70F94F5D910EC579E2EECAB00A04983A37D2B624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507694   (798316) от 05.11.2021
+
+BusyContacts 1.6.2 [Multi]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798316.jpg" />
 </div>
 
 
 ###  Подробнее
 
-26 апреля 2016, вторник. 03:00 МСК. 1/4 финала - Запад. 6-й матч.
-Стадион: Бриджстоун-Арена (Нэшвилл, США) , 17 113 зрителей (99 % при вместимости 17 231).
-Главный судья: Брэд Уотсон (Реджина, Канада) ; Главный судья: Фредерик Л'Экюйе (Канада)Телекомпания: CNBCЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 01:47:06
+BusyContacts является менеджером контактов для OS X, что позволяет создавать, находить и управлять контактами более быстрым и эффективным способом.
+BusyContacts приносит в управление контактами те же возможности, мощность, гибкость, а также обмен ими, что и для пользователей BusyCal в управлении своими календарями. Более того, BusyContacts интегрируется с BusyCal (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.11.2021Разработчик: BusyCal, LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4E34D47B1B5AE43390FA42AD6966B9181B999CE
+magnet:?xt=urn:btih:9F6E238A9283457991394309B0A79C5D0847FD7E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -84,25 +110,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010833   (797707) от 26.04.2016
+###  Публикация: 1507644   (798315) от 05.11.2021
 
-Футбол. Кубок Англии 2015-2016. 1/2 финала. Обзор матчей (25.04.2016) HDTVRip [H.264/720p-LQ]
+VA - Havana Highway: Urban Chillout Vibes (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digby Jones - Havan Highway (5:50)
+02. Living Room - From Suspicious Mind (Original Mix) (3:49)
+03. Marga Sol - Follow You (Original Mix) (4:10)
+04. Marie Therese - Walk in the Rain (Original Mix) (3:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D84C5A22A07198866838D6EDDBF73DF089D3434
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507827   (798314) от 05.11.2021
+
+GoodNotes 5 v5.7.43 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798314.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обзор полуфинальных матчей Кубка Англии.Телекомпания: Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Артем Шмельков)Продолжительность: 00:26:18
+Превратите свой Mac в «умную» цифровую бумагу и мощную систему управления документами.
+Используйте те же функции, что и в версии GoodNotes для iPad, на вашем Mac и работайте с документами там, где вы хотите и когда хотите.Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: © 2021 Time Base Technology LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCF2843E4904ECAF0C2967068F925E4E86AB3A76
+magnet:?xt=urn:btih:71F6E12CCE089EBB97E61FEAC25B0BB4E63E43F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -110,28 +166,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011095   (797706) от 26.04.2016
+###  Публикация: 1507801   (798313) от 05.11.2021
 
-VA - Future Trance Energy 003 April TOP (2016) [MP3|320 кб/с] <Trance>
+Blut Aus Nord - Hallucinogen (2019) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798313.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ledo -  Morning Light (Eryon Stocker Rmx)  7:33
-02. Derek Aether -  Celestial  6:11
-03. Omniks And Eufonica -  Adelia (R3dub Rmx)  7:49
-04. Gateway 88 -  Dark Brotherhood (Aldo Henrycho Remix)  7:21(   Читать дальше...   )Жанр: TranceПродолжительность: 02:10:00
+01.Nomos Nebuleam
+02.Nebeleste
+03.Sybelius
+04.Anthosmos(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:48:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C91D16BFA7AAF7A446EBE5166866F2497ADB28C
+magnet:?xt=urn:btih:F451CBD5F8A1021F649524A900D75C271155A870
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -139,27 +195,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010996   (797705) от 26.04.2016
+###  Публикация: 1507645   (798312) от 05.11.2021
 
-Хоккей. НХЛ 2015-2016. Плей-офф. 1/4 финала. Запад. Сент Луис - Чикаго. 7-й матч (25.04.2016) WEB-DL [H.264/720p-LQ] [EN]
+VA - Urban City Vibes, vol. 8 (Urban Funk, Soul and Lounge Music) (2021) [AAC|~318 Kbps] <Chillout, Lounge, Trip-hop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lounge Groove Avenue - Diamonds (Original Mix) (2:36)
+02. Digby Jones - El Corazon (3:45)
+03. Living Room - Dr Rockit (3:28)
+04. Ibiza Chilled - Azul Aqua Blancas (Original Mix) (7:37)(   Читать дальше...   )Жанр: Chillout, Lounge, Trip-hopПродолжительность: 01:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F5842056570F3666D1585C70A7BC7745D8C429D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507831   (798311) от 05.11.2021
+
+Menuwhere 2.1.1 [En]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798311.jpg" />
 </div>
 
 
 ###  Подробнее
 
-26 апреля 2016, вторник. 03:30 МСК. 1/4 финала - Запад. 7-й матч.
-Стадион: Скоттрэйд-центр (Сент Луис, США) , 19 935 зрителей (101 % при вместимости 19 808).
-Главный судья: Франсис Шаррон (Канада) ; Главный судья: Вес Макколи (Джорджтаун, Канада)Телекомпания: NBCSNЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 02:03:26
+Единственная цель Menuwhere - вывести на экран меню самого переднего приложения в текущем местоположении мыши.Тип издания: macOS SoftwareРелиз состоялся: 05.11.2021Разработчик: © 2021 Many TricksПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB488753C4D61AA5C4B956FC18BE4A50BBA6ACF0
+magnet:?xt=urn:btih:B86BBD7C3AA0EB2AB424151EE066A79C426FB17E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -167,25 +250,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010822   (797704) от 26.04.2016
+###  Публикация: 1507767   (798310) от 05.11.2021
 
-Футбол. Чемпионат Германии 2015-2016. 31 тур. Обзор матчей. (25.04.2016) HDTVRip [H.264/720p-LQ]
+Aenimus - Dreamcatcher (2019) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before the Eons
+02. Eternal
+03. The Ritual
+04. My Becoming(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:906B99F6DF1DEB7CDA706266456D81B1924C725A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507706   (798309) от 05.11.2021
+
+Athentech Perfectly Clear WorkBench for Mac 4 v4.0.0 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798309.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обзор матчей 31-го тура.Телекомпания: Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Александр Еремеев)Продолжительность: 00:51:42
+Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.11.2021Разработчик: © 2021 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6131076F042986681A04237F03894AA8027F613E
+magnet:?xt=urn:btih:9965909D9FFBCB6F8F2033F21DA39736174003D3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -193,25 +306,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010826   (797703) от 26.04.2016
+###  Публикация: 1507733   (798308) от 05.11.2021
 
-Футбол. Чемпионат Испании 2015-2016. 35 тур. Обзор матчей. (25.04.2016) HDTVRip [H.264/720p-LQ]
+Magic Battery 6.1.0 [En]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798308.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обзор матчей 35-го тура.Телекомпания: Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Семен Зигаев)Продолжительность: 00:46:28
+Приложение Magic Battery показывает уровень заряда батареи поддерживаемых устройств ввода и наушников, подключенных через Bluetooth, в строке меню. Также поддерживаются внутренние батареи.
+Информация о батарее будет отображаться в строке меню и в главном окне.Тип издания: macOS SoftwareРелиз состоялся: 04.11.2021Разработчик: © 2021 Sascha SimonПоддерживаемая ОС: macOS 12 +Язык интерфейса: Английский, Немецкий и Упрощенный китайский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84CC74D8F4321BFB59AFBBD0CA8C98BDAB7DD44A
+magnet:?xt=urn:btih:5AE19817FC2D1BAC02CAAC0DE2CFE8B777E1B978
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -219,28 +333,191 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011029   (797702) от 26.04.2016
+###  Публикация: 1507759   (798307) от 05.11.2021
 
-George Adams & Don Pullen Quartet - Decisions (1984) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
+Voice Memo 2.3.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Voice Memo позволяет записать сообщение, которое вы можете отправить самому себе в будущем, используя встроенный календарь будильника. Это очень точный способ подробно рассказать себе, чем вы хотите заниматься в определенное время. Напомните себе о важном событии или задаче, используя тон своего голоса, чтобы передать более сильное сообщение. Голосовые сообщения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.07.2021Разработчик: © 2021 iLifeTouch Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EF6023ECDB6BFB3AF83F028EC88DC99CA1856DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507547   (798306) от 05.11.2021
+
+Jeremy Olander - Vivrant Radio 023 (Quantum New York City, United States) (2021-10-21) [MP3|~190 Kbps (V2)] <Progressive House, Deep House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeremy Olander - Berns Intro ID
+02. Jeremy Olander - Rubicks
+03. Marino Canal - ID
+04. Jeremy Olander - Osho(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 03:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5D46992C2F017AAE7D0B5614E0CE1E0AFAB9FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507704   (798305) от 05.11.2021
+
+One Switch 1.22 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798305.jpg" />
+</div>
+
+
+###  Подробнее
+
+One Switch - это крошечное приложение, разработанное для повышения вашей эффективности благодаря быстрому доступу к нескольким важным коммутаторам. Его можно открыть в строке меню, и он позволяет переключать определенные функции системы всего парой кликов.Тип издания: macOS SoftwareРелиз состоялся: 04.11.2021Разработчик: © 2021 FireballПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF14B04818CA55A843A4F594192793BBCA3157D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507718   (798304) от 05.11.2021
+
+Resolutionator 2.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изменение разрешения быстрее, чем Т-1000 меняет формы. Resolutionator делает его простым в использовании любого из доступных разрешений дисплея. Нужно больше места для проекта? Быстрый щелчок в строке меню или нажатием клавиатуры на ярлыке позволяет легко переключаться на любой доступный размер.
+Если у вас есть несколько мониторов, вы можете получить доступ ко всем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2021Разработчик: Many TricksПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D356B00E4CE0168AB89899F2D9BC0628222DABDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507833   (798303) от 05.11.2021
+
+Amadine 1.2.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amadine - это программное обеспечение для векторного рисования с идеально сбалансированным пользовательским интерфейсом, которое гарантирует плавный рабочий процесс и быстрое обучение. Приложение идеально подходит для иллюстраций, разработки веб-сайтов, пользовательского интерфейса, размещения листовок и брошюр, создания логотипов и значков.
+Разработанный с точностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.11.2021Разработчик: Belight Software, LtdПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A15D3CF6BAD5400DA94941669F380BADC730DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507769   (798302) от 05.11.2021
+
+Postico 1.5.20 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой, но мощный менеджер PostgreSQL баз данных для Mac
+Цель - сделать работу с базами данных PostgreSQL немного проще с помощью коллекции интуитивно понятных инструментов в удобном интерфейсе. PostgreSQL является одним из самых мощных и комплексных систем управления базами данных, поэтому работать с ним не так просто, как может показаться.
+Postico - рациональный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.11.2021Разработчик: © 2021 Jakob EggerПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:262AEC886C4DA6F71827BBC0FBE337B98A5212B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507648   (798301) от 05.11.2021
+
+Joe Henderson - Mode For Joe (1966) 1988, Blue Note Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798301.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Trees And Grass And Thangs [09:08]
- 02.His Eye Is On The Sparrow [04:29]
- 03.Message Urgent [08:17]
- 04.Decisions [07:12](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:44:27
+01. A Shade of Jade [7:09]
+02. Mode for Joe [8:04]
+03. Black [6:54]
+04. Black (alternate take) [6:50](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:49:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2EB0ED782B234B315E2F5AD1CBA5D8727EB07E32
+magnet:?xt=urn:btih:46FC4F1D04F41353DF0B456F322DC9F5FBA5FBA2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -248,466 +525,199 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011052   (797701) от 26.04.2016
+###  Публикация: 1507774   (798300) от 05.11.2021
 
-VA - Progressive Guide Vol.1 (2016) [MP3|320 кб/с] <House, Progressve House>
+Archspire - Bleed the Future (2021) [WavPack|Lossless|image + .cue] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drone Corpse Aviator (3:46)
+02. Golden Mouth of Ruin (4:05)
+03. Abandon the Linear (4:36)
+04. Bleed the Future (3:48)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98027B16BEFBBB6AF411AB096DBCBF5F0F44B3DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507765   (798299) от 05.11.2021
+
+Maverick - Natural Born Steel (2012) Japan [WavPack|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Distress (00:30)
+02. The God Inside (03:43)
+03. I've Got To Be Free (04:48)
+04. Diamond Dust (05:25)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:46:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59E06C87CAB0CDDD104C0478481B9C82703710A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507611   (798298) от 05.11.2021
+
+Djs From Mars - Swiss Virtual Nights, Summer Festival 2021, Switzerland (2021-08-20) [MP3|320 Kbps] <House, Electro House, Electro Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonic One - Punk! (TWOLOUD Remix) (Intro) w/Fedde Le Grand Put Your Hands Up For Detroit (Acappella)
+02. Riton & Nightcrawlers & Mufasa & Hypeman vs. Storm - Friday Storm (Djs From Mars Bootleg)
+03. Masked Wolf vs. Hardwell - Spaceman In The Ocean (Djs From Mars & Mo27Da Bootleg)
+04. Joel Corry X MNEK vs. Alice Deejay - Head & Heart vs. Better (   Читать дальше...   )Жанр: House, Electro House, Electro PopПродолжительность: 00:29:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67B49E8146E0F1386DEAAAB3F7BC1BAF5F425C24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507823   (798297) от 05.11.2021
+
+Murasaki 2.4 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Murasaki - это приложение для чтения книг в формате EPUB, которое имеет простой пользовательский интерфейс и различные функции (Не может открывать EPUB с DRM-шифрованием)Тип издания: macOS SoftwareРелиз состоялся: 21.07.2021Разработчик: © 2021 Genji AppПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA858A7FA2898EDC0E4D712FDB377C526EA5DAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507762   (798296) от 05.11.2021
+
+Maverick - Maverick (2005) Japan [WavPack|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Awakening (01:05)
+02. Black Leather Man (05:17)
+03. Hammer Blood (02:50)
+04. Let There Be Light (04:15)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A48AB457441926A87D845E018521FCFC6269D895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507807   (798295) от 05.11.2021
+
+Decapitated - Nihility (2002) German Special Edition [WavPack|Lossless|image + .cue] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Perfect Dehumanisation (The Answer?) (5:26)
+02 - Eternity Too Short (4:33)
+03 - Mother War (4:09)
+04 - Nihility (Anti‐Human Manifesto) (5:00)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EA0BB8DCBFCE813CBAC22E0F99C79B346FE3D26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507603   (798294) от 05.11.2021
+
+Josh Le Tissier - Ministry of Sound - HD Life presents Fresher Land (2021-10-07) [MP3|320 Kbps] <Electro House, Big Room, Bass House>
 
 >>Electronic
->>House
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798294.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Darmon -  Reaper  6:00
-02. Leventina -  Cameltoe  5:23
-03. Marco V -  We Will Be (O.B Remix)  5:16
-04. Anero -  Gigeri  4:56(   Читать дальше...   )Жанр: House, Progressve HouseПродолжительность: 02:40:27
+01. Tiësto - The Business (SWACQ Remix)
+02. FETISH - The Door
+03. Kriss Reeve & Repiet - Anybody
+04. Keanu Silva - King Of My Castle (Don Diablo Edit)(   Читать дальше...   )Жанр: Electro House, Big Room, Bass HouseПродолжительность: 00:59:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30D03CAEBF3F3A0B2308C1BEA3CA5DEC051650F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010980   (797700) от 26.04.2016
-
-The Hal Galper Quintet Live - Redux '78, 1991, Concord Jazz(1991) [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Introduction/Triple Play [12:28]
- 02.My Man's Gone Now [05:24]
- 03.Another Jones [08:54]
- 04.I'll Never Stop Loving You [09:44](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B3450DA001543E0049DB85CBDC7E28435CA559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010857   (797699) от 26.04.2016
-
-VA - Future Trance Energy 002 April TOP (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Horizon -  Invincible (Original Mix) 8:05
-02. Raphael Mayers & Ragevision -  Destination (Original Mix) 6:22
-03. Kaimo K & Neev Kennedy -  Afraid (Original Mix) 7:04
-04. Mike Saint-Jules & Amy Kirkpatrick -  Galaxy (A.R.D.I. Remix) 6:42(   Читать дальше...   )Жанр: TranceПродолжительность: 02:25:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDDD839AF866B320A17D323308BB4D14E64694A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011068   (797698) от 26.04.2016
-
-Art Farmer - Gentle Eyes (1971/1972) 1991, Mainstream Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.A Time for Love [05:24]
- 02.Didn't We [03:08]
- 03.Soulsides [04:29]
- 04.So Are You [03:37](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:860907C744C24AF7677771E71DC96BBC5DAEFF2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011024   (797697) от 26.04.2016
-
-Sadao Watanabe - Live At The Junk (1969) Remaster, 2015, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cheryl [10:35]
- 02.If I Said The Sky Was Fallin' [13:31]
- 03.Georgia On My Mind [07:00]
- 04.This Guy's In Love With You [08:54](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5898056570347AC89C4E3048E549F8C76780036B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011063   (797696) от 26.04.2016
-
-Art Farmer - Modern Art (1958) Remaster, 2001, Toshiba[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mox Nix [04:40]
- 02.Fair Weather [05:43]
- 03.Darn That Dream [03:58]
- 04.The Touch of Your Lips [04:53](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC3DE3FB533D85FD07F4E5944EEDA2C7C07B498A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383730   (797695) от 24.05.2020
-
-Легендарный реквизит / Prop Culture (2020) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-3 из 8) (Обновляемая)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал про коллекционера, который всю жизнь охотился за артефактами из любимых фильмов.Производство: США, ABC Studios Cinema Relics ProductionsЖанр: Документальный, научно-популярныйРежиссер: Дэн ЛаниганПеревод: Одноголосый закадровый, профессиональный (Sound Film)Субтитры: отсутствуютПродолжительность: серии x ~00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D8622B26CC803B059AE7A81B769CD46AD4177D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385455   (797694) от 24.05.2020
-
-Аванпост (2019) HDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797694.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем что-то произошло. Связь с большей частью населенных пунктов Земли оборвалась. Космонавты передали с орбиты, что видят сверху небольшое пятно в Восточной Европе, по своим очертаниям напоминающее круг. То, что военные находят за границей этого круга, шокирует. В магазинах, в автомобилях, на дорогах, в зданиях больниц и вокзалов, повсюду - следы (   Читать дальше...   )Производство: Россия / 1-2-3 Production, TNT-Premier, Канал ТВ-3Жанр: Триллер, фантастика, боевикРежиссер: Егор БарановАктеры: Лукерья Ильяшенко, Пётр Фёдоров, Светлана Иванова, Алексей Чадов, Ксения Кутепова, Константин Лавроненко, Филипп Авдеев, Артем Маркарьян, Сергей Годин, Артем ТкаченкоПеревод: Не требуется (русский) ЛицензияСубтитры: ОтсутствуютПродолжительность: 02:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D00C961FE5B209721AF348A47CFD18253E3BD81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385490   (797693) от 24.05.2020
-
-Спутник (2020) WEB-DLRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797693.jpg" />
-</div>
-
-
-###  Подробнее
-
-СССР, 1983 год. На землю возвращается космический аппарат, но от людей скрывают, что из двух космонавтов живым возвращается только один. Что произошло на борту, остается загадкой, но факты указывают на то, что космонавт столкнулся в полете с новой формой жизни и вернулся на землю не совсем один… Нейрофизиолог Татьяна Климова пытается докопаться до правды и спасти (   Читать дальше...   )Производство: Россия / Art Pictures Studio, «Водород», Hype FilmЖанр: Фантастика, триллер, драмаРежиссер: Егор АбраменкоАктеры: Оксана Акиньшина, Пётр Фёдоров, Фёдор Бондарчук, Антон Васильев, Павел Устинов, Виталия Корниенко, Наталья Швец, Алексей Демидов, Александр Марушев, Альбрехт Зандер, Александр ШамПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72CD9984134C45D761302D4D5FA1068ACBB37C21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385360   (797692) от 24.05.2020
-
-Udemy | Основы SQL: SELECT, JOIN, DML, DDL, TCL, DCL (2020) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный курс предназначен для изучения основ SQL: теоретических основ реляционной модели, операций реляционной алгебры, правил и назначение нормализации, использования ER диаграммы для моделирования предметной области, практического использования всех операторов SQL (операторов определения данных (Data Definition Language, DDL): CREATE, ALTER, DROP; манипуляции данными (   Читать дальше...   )Производство: DevStudy.netЖанр: Базы данных, SQLЯзык озвучки: РусскийПродолжительность: 5:23:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74DEC49B1B46D7062F949D24A297D301FCB7D19D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035640   (797691) от 24.05.2020
-
-Дверь / Тhе Door / Die Tur (2009) BDRip [H.264/1080p] [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Успешный живописец Дэвид переживает не лучшие времена. Он винит себя в гибели семилетней дочери, погибшей в результате неверно принятого им решения. Но однажды все меняется, когда герой обнаруживает таинственную дверь, которая дает ему возможность вернуться к прошлым ошибкам и все исправить, снова и снова… Однако то, что показалось счастьем все изменить, оборачивается (   Читать дальше...   )Производство: Германия / Networxx - Film ManagementЖанр: Триллер, Драма, ДетективРежиссер: Анно ЗаульАктеры: Мадс Миккельсен, Джессика Шварц, Хайке Макатч, Неле Требс, Рюдигер Кумштедт, Карина Борчет, Валерия Есенбарт, Томас Тиме, Тим Сейфи, Штефан КампвиртПеревод: Одноголосый закадровый, авторский (Ю.Сербин)Субтитры: Русские, английские, немецкие (вшитые, отключаемые)Продолжительность: 01:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:818B483E633DD47BFA2EA026CDC832B742F8D957
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384970   (797690) от 24.05.2020
-
-Realtime Landscaping Architect 2018 v.18.03 +Models [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797690.jpg" />
-</div>
-
-
-###  Подробнее
-
-RealTime Architect - программный пакет для профессионального проектирования ландшафта в 2D и 3D. Предоставляет возможность создания дендраплана, рельефов, трехмерного изображения объектов, а также эффект реального путешествия по территории.
-Вы создадите дендроплан, вида участка с высоты птичьего полета, 3D-изображения участка с возможностью передвижения по территории, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F38DE297BBB9D26F2D666E3FC1AFF2EE3AA8368
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 276389   (797689) от 24.05.2020
-
-Мальчишник - 9 Альбомов (1991 - 2006) [MP3|320 kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-
-Поговорим о сексе (1991)
-Мисс Большая Грудь (1992)(   Читать дальше...   )Жанр: Рэп, Хип-ХопПродолжительность: 07:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8F6B23973650D83BB0938FD252CD2EA31915891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384851   (797688) от 24.05.2020
-
-Пользователям «Социального мониторинга» выписали штрафов более чем на 200 млн рублей
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_797688.jpg" />
-</div>
-
-
-###  Подробнее
-
-В системе «Социальный мониторинг», которая контролирует передвижения больных коронавирусом и ОРВИ, зарегистрировано более 60 000 пользователей, сообщил  руководитель департамента информационных технологий Москвы Эдуард Лысенко. С момента ее запуска было выписано 54 000 штрафов – более чем на 216 млн руб., рассказал руководитель Главного контрольного управления Евгений (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385470   (797687) от 24.05.2020
-
-Аванпост (2019) BDRip [H.264/720p] [PR]
-
->>След.
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797687.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем что-то произошло. Связь с большей частью населенных пунктов Земли оборвалась. Космонавты передали с орбиты, что видят сверху небольшое пятно в Восточной Европе, по своим очертаниям напоминающее круг. То, что военные находят за границей этого круга, шокирует. В магазинах, в автомобилях, на дорогах, в зданиях больниц и вокзалов, повсюду - следы (   Читать дальше...   )Производство: Россия / 1-2-3 Production, TNT-Premier, Канал ТВ-3Жанр: Триллер, фантастика, боевикРежиссер: Егор БарановАктеры: Лукерья Ильяшенко, Пётр Фёдоров, Светлана Иванова, Алексей Чадов, Ксения Кутепова, Константин Лавроненко, Филипп Авдеев, Артем Маркарьян, Сергей Годин, Артем ТкаченкоПеревод: Не требуется (русский) ЛицензияСубтитры: ОтсутствуютПродолжительность: 02:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97E442667462CCED01E6F99A595B6577BC650060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385375   (797686) от 24.05.2020
-
-VA - не Громкие новинки недели 68 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797686.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. BrainStorm - Ночная Смена (3:31)
-2. Captown - Последний День (3:25)
-3. Daasha - Вспышками (2:58)
-4. Danial - Девочки (4:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DA98D17310DDCDB32CC325BD22AC218AB8D1858
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385257   (797685) от 24.05.2020
-
-Первая в мире плавучая АЭС введена в эксплуатацию на Чукотке
-
->>3
->>10
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_797685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая в мире плавучая атомная теплоэлектростанция (ПАТЭС) «Академик Ломоносов» в пятницу введена в промышленную эксплуатацию. Об этом говорится в сообщении концерна «Росэнергоатом», входящего в электроэнергетический дивизион Росатома.Положительное заключение на запуск ПАТЭС дал Росприроднадзор, а Ростехнадзор подтвердил, что станция построена в соответствии с требованиями (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:FE7AFA582364609C7E41CE282E9CC88444FB7A9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

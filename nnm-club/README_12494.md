@@ -1,22 +1,25 @@
-###  Публикация: 1305463   (556302) от 31.05.2019
+###  Публикация: 1305193   (557136) от 30.05.2019
 
-Капитан Марвел / Captain Marvel (2019) HDRip [H.264/720p-LQ]
+Peter's Dance Factory - Vom Zillertal bis Arenal (Unknown) [FLAC|Lossless|image + .cue] <Pop, Cover, Latino-Party>
 
->>След.
->>Архив Видео. Кино, Театра
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557136.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После столкновения с враждующими инопланетными расами пилот военно-воздушных сил Кэрол Дэнверс обретает суперсилу и становится неуязвимой. Героине предстоит совладать со своими новыми способностями, чтобы противостоять могущественному врагу.Производство: США, Marvel Studios Inc.Жанр: Фантастика, Боевик, ПриключенияРежиссер: Анна Боден, Райан ФлекАктеры: Бри Ларсон, Сэмюэл Л. Джексон, Бен Мендельсон, Джуд Лоу, Аннетт Бенинг, Лашана Линч, Кларк Грегг, Рюн Темт, Джемма Чан, Альхенис Перес СотоПеревод: Дублированный (iTunes)Субтитры: Русские (форс., полные, SDH)Продолжительность: 02:03:42
+01. Servus Grüezi und Hallo (1:33)
+02. Alle Mann nach Palma (3:08)
+03. Appenzeller Jodler (2:40)
+04. We love Mallorca (3:41)(   Читать дальше...   )Жанр: Pop, Cover, Latino-PartyПродолжительность: 00:51:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:643ED13F163A5E44663C4CC64F97CD1BEB73EB05
+magnet:?xt=urn:btih:4999234BA32862F7657C291D9A3C123EFEA7E58C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305560   (556301) от 31.05.2019
+###  Публикация: 1305373   (557135) от 30.05.2019
 
-Ядовитая роза / The Poison Rose (2019) WEB-DLRip [MVO]
+Векторный клипарт - Vector Animal Collection #68 [AI]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557135.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Карсон Филипс в прошлом — звезда футбола, теперь — частный детектив. В его руки попадает простое, на первый взгляд, дело о пропавших без вести. Но расследование принимает неожиданный поворот: в запутанной череде жестоких преступлений замешана его дочь, которая давно бесследно исчезла.Производство: США, Италия / JTP Films, March On Productions, Millennium MediaЖанр: Триллер, драмаРежиссер: Джордж ГаллоАктеры: Брендан Фрейзер, Фамке Янссен, Джон Траволта, Элла Блю Траволта, Клаудия Джерини, Морган Фриман, Петер Стормаре, Роберт Патрик, Кэт Грэхэм, Ник ВаллелонгаПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:37:32
+Векторный клипарт для дизайна.
+Зверушки
+50 AI + PreviewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E6328B62A90F2BFB4F8BF6C3CDE10BBE08AE17E
+magnet:?xt=urn:btih:36213A053A11692D3EB74146EC80665469398D9A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,21 +55,23 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191235   (556300) от 31.05.2019
+###  Публикация: 1305376   (557134) от 30.05.2019
 
-Spellforce III / Spellforce 3 (2017) [Ru/Multi] (1.40) Repack R.G. Catalyst
+Векторный клипарт - Vector Animal Collection #69 [AI]
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_556300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_557134.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SpellForce 3 - идеальный гибрид RTS и RPG! 518 год. Так называемые Войны Магов. Восстание магов в конце концов было подавлено войсками Короны. Эта победа, однако, не принесла облегчения: в далеких провинциях царит анархия, по всей стране оставшиеся без крова беженцы ищут новый приют. Кроме того, замечены вспышки новой смертоносной болезни, получившей название "кровный (   Читать дальше...   )Тип издания: RepackРазработчик: Grimlore Games, THQ NordicЖанр: Strategy, Role-playing, FantasyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+Векторный клипарт для дизайна.
+Зверушки
+50 AI + PreviewФормат: AI
 
 ## Скачать торент
 ```bash
@@ -76,247 +83,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202613   (556297) от 31.05.2019
+###  Публикация: 1305346   (557133) от 30.05.2019
 
-Deep Sky Derelicts (2018) [Ru/En] (1.2/dlc) License CODEX
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deep Sky Derelicts даст возможность почувствовать себя изгоями общества, ведущих полукриминальный образ жизни на задворках галактики. Игрокам предстоит исследовать заброшенные корабли пришельцев, мародерствовать, набирать наемников, покупать новое вооружение и улучшать оборудование.Тип издания: LicenseРазработчик: Snowhound GamesЖанр: Strategy, RPG, ActionЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85EFD6F347EC69A7F508FFB6619F2B8186869A57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261053   (556294) от 31.05.2019
-
-Воскресший Эртугрул / Dirilis: Ertugrul (2018-2019) WEBRip (сезон 5, серии 1-29 (122-150) из 150) turok1990
-
->>След.
->>Турецкие сериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал "Воскресший Эртугрул" унесет зрителей в глубину истории, когда начала формироваться Великая Османская империя и расскажет о жизни Эртугрула, отца Османа I. Эртугрул был лидером клана тюрок-огузов из рода Кайы и прибыл в Анатолию из Мерва (Туркменистана) с 400 всадниками, чтобы помочь сельджукам Рума против византийцев. Эртугрул по праву считается (   Читать дальше...   )Производство: Турция / Tekden FilmЖанр: боевик, драма, приключения, военный, историяРежиссер: Метин ГюнайАктеры: Элгин Алтан Дюзйятан, Хюлья Дарджан, Джемаль Хюнал, Бурак Хаккы, Эсра Билгич, Гюльсим Али, Аслыхан Гюнер, Дженгиз Джошкун, Нуреттин Сёнмез, Мурат Гарипагаоглу и др.Перевод: Одноголосый закадровый, любительский - turok1990Продолжительность: ~02:20:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21F4AFBAF600A7BD09AE1E47D304ED09CDA725BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236071   (556292) от 15.07.2018
-
-John Sinclair - Mohawk (2014) [FLAC|Lossless|image + .cue] <Jazz, Poetry, Spoken Word, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mohawk 2:50
-02. Straight No Chaser 1:27
-03. Leap Frog 1:33
-04. Relaxing With Lee 2:24(   Читать дальше...   )Жанр: Jazz, Poetry, Spoken Word, Contemporary JazzПродолжительность: 00:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC5B9705FEE5E683EE8476603FC9CA5BC360C6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236177   (556290) от 15.07.2018
-
-VA - Mellow Tunes - A Journey Between Atmosphere And Groove (1997) Legoan [FLAC|Lossless|tracks+.cue] <Trip Hop, IDM, Ambient, Experimental, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deadly Avenger - The Bayou (04:41)
- 02. Rainer - Nod To N2O (Remixed By The Grid) (11:52)
- 03. 9 Lazy 9 - Electric Lazyland (Journeyman Mix) (05:22)
- 04. Up, Bustle & Out - The Revolutionary Women Of The Windmill (La Bandolera Del Molino) (05:39)(   Читать дальше...   )Жанр: Trip Hop, Dub, IDM, Ambient, Experimental, Downtempo •Продолжительность: 01:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8277E8197AB7E7A518B5A8D5A7D7D396337AFE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236188   (556289) от 15.07.2018
-
-Gang Gang Dance - Kazuashita (2018) 4AD [FLAC|Lossless|tracks+.cue] <Experimental, Downtempo, Abstract>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ( infirma terrae ) (01:24)
- 02. J-TREE (05:51)
- 03. Lotus (04:54)
- 04. ( birth canal ) (01:43)(   Читать дальше...   )Жанр: Experimental, Downtempo, AbstractПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A9FC89B649F58698E7F10FC9DCB07EA43A0F5BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236106   (556288) от 15.07.2018
-
-Анатолий Курчаткин | Минус 273 градуса по Цельсию. Роман (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556288.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Подозреваетесь. Чревато для вас. Докажите, что подозрения беспочвенны". Такую записку, написанную на четвертушке листа, получает герой романа. И что значат эти слова, что обещают, к чему принуждают его? Он вполне законопослушен, не посягает на устои. Правда, живет он в странном городе, где всё подчинено непреложным правилам тайной и грозной службы стерильности. (   Читать дальше...   )Жанр: антиутопияИздательство: ВремяФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36B6603B45A817BFE6DFFC42832BC8DCB0E9B7B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236011   (556287) от 15.07.2018
-
-VA - German Top 100 Single Charts 16.07.2018 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556287.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Clean Bandit - Solo (feat. Demi Lovato)
-002. Namika - Je ne parle pas franais (feat. Black M) (Beatgees Remix)
-003. El Profesor Hugel - Bella ciao (HUGEL Remix)
-004. Calvin Harris Dua Lipa - One Kiss(   Читать дальше...   )Жанр: PopПродолжительность: 05:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D526DA2536E96CA36AF2B4A7FC6F9A63A963F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236079   (556286) от 15.07.2018
-
-Журнал | AD / Architectural Digest [Россия] №8 (175) (август 2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий международный журнал об архитектуре и дизайне. Издается в Америке с начала 20-х годов, в России с сентября 2002 года. За долгие годы завоевал репутацию законодателя интерьерной моды, сформировал вкусы нескольких поколений, источник вдохновения в искусстве создания идеального жизненного пространства.Жанр: Дизайн, архитектураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDC4B869167481AE98CD215113D2586196C5CD8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235993   (556285) от 15.07.2018
-
-Векторный клипарт - Country Houses Set 5 [AI]
+Векторный клипарт - Vector Animal Collection #59 [AI]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557133.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Векторный клипарт для дизайна.
-Загородные дома
-3 AI +TIFF PreviewФормат: AI
+Зверушки
+50 AI + PreviewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C567039CFE8782D11E0828782DB97F8D322D6ECB
+magnet:?xt=urn:btih:BF5A312DE39DEDB640453319693F08D0A60C5102
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -324,26 +111,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236075   (556284) от 15.07.2018
+###  Публикация: 1305354   (557132) от 30.05.2019
 
-Журнал | Автомир [Россия] №29 (июль 2018) [PDF]
+Векторный клипарт - Vector Animal Collection #66 [AI]
 
->>Автомобили
->>Автомобильные журналы
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557132.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Автомир» — еженедельный журнал, полностью посвященный автомобилям. Основные темы издания: автоновости, тестдрайвы, концепт-кары, российские и международные выставки и автогонки, московские автосалоны и дилеры, советы экспертов по автоправу и многое другое.
-Проект ставит перед собой цель донести до читателя максимум полезной информации об автомобилях и обо всем, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+Векторный клипарт для дизайна.
+Зверушки
+50 AI + PreviewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB774ECFE8F8A46E9233183C9465F24455B574F1
+magnet:?xt=urn:btih:EBD2CE332F095BBD4EAFE78B0C586D899063A986
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -351,28 +139,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235929   (556283) от 15.07.2018
+###  Публикация: 1556809   (557131) от 11.06.2022
 
-Two Timer - The Big Easy (2018) [MP3|320 Kbps] <Blues Rock>
+Дарья Донцова | Татьяна Сергеева. Детектив на диете (Книга 15). Толстушка под прикрытием (2022) [MP3, Дина Бобылёва]
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_557131.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Poetics Of Refusal (04:05)
-02. Letter To Charlie (03:42)
-03. The Jack (02:50)
-04. Drinking Boogie (04:12)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:52
+Наконец-то у Татьяны Сергеевой появился реальный шанс похудеть! Она стала финалисткой конкурса «Убей лишний вес», устраиваемого журналом «Дом солнца», и удостоилась чести опробовать на себе супердиету доктора Орнели. Он вручил Танюше банки с чудо-порошком, и теперь ей предстоит лакомиться им на завтрак, обед и ужин.
+Вдобавок диетолог якобы вживил Тане чип, с помощью (   Читать дальше...   )Жанр: Иронические детективы, Современные детективыПродолжительность: 09:38:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9EFAA613DDAB41927834DFC4F3A77CC7A7D1A7F
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -380,25 +166,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235995   (556282) от 15.07.2018
+###  Публикация: 1556881   (557130) от 11.06.2022
 
-Keb Mo - Live - That Hot Pink Blues Album (2016) [FLAC|Lossless|tracks + .cue] <Blues>
+Всей работы - на одну ночь / All in a Night's Work (1961) BDRip [H.264] [MVO]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_557130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: BluesПродолжительность: 01:19
+Дядя Тони Райдера, богатый издатель журналов, только что умер. Молодой плейбой Тони наследует газету, но совет директоров считает, что он не подходит для этой задачи. А детектив отеля сообщает Тони о девушке, которая была замечена убегающей из номера отеля Палм-Бич его дяди, одетая только в турецкое полотенце и серьгу, в ночь его смерти. Тони обнаруживает, что молодая (   Читать дальше...   )Производство: США, Wallis-HazenЖанр: комедияРежиссер: Джозеф ЭнтониАктеры: Дин Мартин, Ширли МакЛейн, Клифф Робертсон, Чарльз Рагглз, Норма Крэйн, Джек Уэстон, Джон Хадсон, Джером Кауэн, Гэйл Гордон, Ральф ДумкеПеревод: профессиональный многоголосый (Paramount Channel)Субтитры: английскиеПродолжительность: 01:34:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:318AB95C4E4431131501415487930492439329EA
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -406,80 +192,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236077   (556281) от 15.07.2018
+###  Публикация: 1556682   (557129) от 11.06.2022
 
-Гарриет Бичер-Стоу | Хижина дяди Тома (1955) [DJVU]
-
->>Художественная литература
->>Классическая поэзия и проза
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556281.jpg" />
-</div>
-
-
-###  Подробнее
-
-В романе американской писательницы Гарриет Бичер-Стоу, написанном в 1852 г., рассказывается об угнетении негров-рабов на юге США в первой половине XIX века, раскрывается безнравственная сущность рабовладения.Жанр: История, политология, прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D925F7272231CD2A0FFA1944EBB51E1EBA14ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236084   (556280) от 15.07.2018
-
-Журнал | Садовод и огородник. Спецвыпуск №13. Уроки летней прививки (июль 2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556280.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Садовод и огородник» - журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей. Спецвыпуск журнала - "Юридический справочник дачника". В редакцию «Садовода и огородника» в постоянную рубрику «Отвечает юрист» часто приходят письма, в которых читатели рассказывают о разных жизненных ситуациях, связанных (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5777EA98A4EB797C94326D80698C0929D5836CA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236184   (556279) от 15.07.2018
-
-The Real Gone Tones - Backseat Bingo (2018) [MP3|320 Kbps] <Rockabilly, Rock&Roll>
+Abrade The Earth - The Essence of Everything (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Piglet (03:07)
-02. Stick With It (02:26)
-03. Watch Out (02:22)
-04. Black Coffee (02:13)(   Читать дальше...   )Жанр: Rockabilly, Rock&RollПродолжительность: 00:32:25
+1. Connections
+2. The Cycle
+3. Ebb & Flow
+4. Restitution(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:27:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0077AFE4F8BE56A8A22FD02D25CFB2B9077D5A6
+magnet:?xt=urn:btih:8DA8298B261CDAA17DCD25390200D3A6F82CC6CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -487,25 +221,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236088   (556278) от 15.07.2018
+###  Публикация: 1556767   (557128) от 11.06.2022
 
-Журнал | Авиация и космонавтика: вчера, сегодня, завтра №4 (апрель 2018) [PDF]
+Sun of the Endless Night - Life... a Tragedy Tainted by Malevolence (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 
->>Журналы
->>Научно-популярные журналы
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557128.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Научно-популярный журнал - учрежден Военно-воздушными силами России, выходит при поддержке ЦАГИ. Публикует материалы о достижениях и перспективах авиационной и космической техники, опыте освоения и боевого применения отечественной и зарубежной авиационной техники, о предприятиях и авиакомпаниях, репортажи с авиасалонов, обзоры военной и гражданской авиации, статьи (   Читать дальше...   )Жанр: Авиация, космонавтикаФормат: PDF
+01.Open Skies closed Minds 01:52
+02.Who let the Night in? 02:36
+03.Where there is God there is Nothing 03:59
+04.Once upon a Death 03:32(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87521B4048E96FBC832655BB6569F22B02FE981E
+magnet:?xt=urn:btih:E523E28B6BB3EA5E188A9D6577342716AAF8B08B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -513,28 +250,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236040   (556277) от 15.07.2018
+###  Публикация: 1556698   (557127) от 11.06.2022
 
-VA - Schneeweiss 9 (Presented by Oliver Koletzki) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Techno>
+Moodring - Stargazer (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Metal, Metalcore>
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557127.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Monolink - Swallow (Oliver Koletzki remix) (07:16)
-02. Midas 104 - Carry On (07:45)
-03. Andhim - Stay Close To Me (feat Hogni) (07:28)
-04. Eagles & Butterflies - The Last Dance (09:24)(   Читать дальше...   )Жанр: Deep House, Tech House, TechnoПродолжительность: 03:20:30
+1. How To Leave Painlessly
+2. Disintegrate
+3. Constrict
+4. Red Light Gossip(   Читать дальше...   )Жанр: Post-Hardcore, Alternative Metal, MetalcoreПродолжительность: 00:35:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C141765342168FFC54442E6D95186591CE20CA7
+magnet:?xt=urn:btih:25642705554B1A9415A9A01DFEBAF9E63C4738EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -542,159 +279,453 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235991   (556275) от 15.07.2018
+###  Публикация: 1556771   (557126) от 11.06.2022
 
-Векторный клипарт - Seamless Floral Borders 66 [AI]
+Irdorath - Gotterdammerung MMXXII (2022) [FLAC|Lossless|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Der flammen Preis (00:03:00)
+02 - Windgeist (00:03:36)
+03 - Form des Todes (00:06:01)
+04 - Bald ersaeuft die Menschenbrut (00:03:33)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44EB5CC23B1933A54347DC460D8ED49499B75C1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556693   (557125) от 11.06.2022
+
+Kardashev - Liminal Rite (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Deathcore, Atmospheric>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557125.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Approaching of Atonement
+2. Silvered Shadows
+3. Apparitions in Candlelight
+4. Dissever(   Читать дальше...   )Жанр: Death Metal, Post-Metal, Progressive Metal, Deathcore, AtmosphericПродолжительность: 00:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53B3C830AAE81D8FA2BFBA6471EED26788FC32F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556765   (557124) от 11.06.2022
+
+Amethyst - Time Of Slaughters (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Pandemonium (instrumental)01:38
+02.Subversive Mind 06:21
+03.Time of Slaughters 05:17
+04.Entrapped 05:58(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B246F699A27FAD09593E364F27DB53C4625EB901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556843   (557123) от 11.06.2022
+
+AudioLab v1.2.95 Mod by Alex.Strannik [Ru/Multi]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_557123.jpg" />
+</div>
+
+
+###  Подробнее
+
+AudioLab является наиболее передовым, современным, быстрым, профессиональным аудио редактором, который имеет все функции, которые вы хотели бы когда-либо.Тип издания: Пиратка (В модификации получен PRO, удалена аналитика и реклама)Релиз состоялся: 27.04.2022Разработчик: HitroLabПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556680   (557122) от 11.06.2022
+
+NateWantsToBattle - The Critical Hits (2022) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557122.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hero of Our Time
+2. The Evil King
+3. Drowning
+4. Mangled(   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, Pop RockПродолжительность: 01:21:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D5F6E084D71ABCFAED2165A11977F67E3D5EC7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556801   (557121) от 11.06.2022
+
+Ларс Браунворт | Морские волки. История викингов (2022) [MP3, Владимир Овуор]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557121.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 793 г. н. э. норвежские воины напали на английский остров Линдисфарн и полностью его опустошили. Волна за волной скандинавские «морские волки» следовали за добычей, землей или славной смертью в битве. Большая часть Британских островов пала под их мечами, а континентальные столицы Париж и Аахен были по очереди разграблены. Повернув на восток, они плыли по неизведанным (   Читать дальше...   )Жанр: Научно-популярная литература, Популярно об историиПродолжительность: 09:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66F8E555CFC70ADA7895C28AB33B201DDD0DA47E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556701   (557120) от 11.06.2022
+
+Secrets - The Collapse (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_557120.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Collapse
+2. Get Outta My Head
+3. Falling Out
+4. Parasite(   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556642   (557119) от 11.06.2022
+
+The Silverblack - Judgment (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557119.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Judgment (feat. Burton C. Bell from Fear Factory)
+2. Punishment
+3. A Lifetime Ago
+4. Chasing Ghosts(   Читать дальше...   )Жанр: Industrial Metal, Modern MetalПродолжительность: 00:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21FA57BD7913065C00BFF1FDD1EC79F1418F52DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556478   (557118) от 11.06.2022
+
+Bee Gees - Idea (1968) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let There Be Love (3:35)
+02. Kitty Can (2:42)
+03. In The Summer Of His Years (3:13)
+04. Indian Gin And Whisky Dry (2:05)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:752C312B6E44B77F1596D3A191CA8D3DAC095307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556878   (557117) от 11.06.2022
+
+To/Die/For - Cult (2015) [FLAC|Lossless|image + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557117.jpg" />
+</div>
+
+
+###  Подробнее
+
+To/Die/For — финская готик-метал-группа. Основана в 1996 году под названием Mary-Ann, с 2000 года стала называться To/Die/For (умереть за...)01. In Black
+02. Screaming Birds
+03. Unknown III
+04. Mere Dream(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8D6D3A7E2493CC64A997DF34C503EC765C1709B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556692   (557116) от 11.06.2022
+
+Future Palace - Run (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557116.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Paradise
+2. Dead Inside
+3. Flames
+4. Locked(   Читать дальше...   )Жанр: Post-Hardcore, Alternative MetalПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C745A3A03124C8F7EBAFDF862A01CA1A4C7EBB01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556691   (557115) от 11.06.2022
+
+FALSET - Monarch (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore, Electronic>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_557115.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Monarch
+2. Lullabies
+3. Medulla Oblongata
+4. Eyes of a Snake(   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, ElectronicПродолжительность: 00:34:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556689   (557114) от 11.06.2022
+
+Downset - Maintain (2022) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Hardcore, Rap Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557114.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Maintain
+2. Blackest Of Days
+3. New Respect
+4. Won't Forget(   Читать дальше...   )Жанр: Rapcore, Hardcore, Rap MetalПродолжительность: 00:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:537DFD509948406FF8E371AB2AE8E59FE2484A16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556790   (557113) от 11.06.2022
+
+Deep Sun - Dreamland - Behind The Shades (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Prologue (00:01:35)
+02 - Behind The Shades (00:07:14)
+03 - Dreammaster (00:04:09)
+04 - Living The Dream (00:03:44)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:636F667715888EF42EDA31F8C0076325A3E3729B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556817   (557112) от 11.06.2022
+
+Журнал | Popular Woodworking №265 (2022) [PDF][En]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_557112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал, посвященный столярному делу. Проекты, идеи, обзоры материалов и инструментов. Многочисленные идеи и проекты от создателей одного из популярнейших изданий для любителей столярного дела. Журнал является одним из основных ресурсом для энтузиастов работы с деревом, от среднего уровня мастерства до профессионалов в своем делеЖанр: Столярное делоФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305343   (557111) от 30.05.2019
+
+Векторный клипарт - Vector Amphibians #05 [AI]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557111.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Векторный клипарт для дизайна.
-Бесшовные цветочные границы
-3 AI +TIFF PreviewФормат: AI
+Земноводные
+50 AI + PreviewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:393E1579811CED99A174D46BAB88ECAFADEF1AE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235836   (556274) от 15.07.2018
-
-Собачьи истории: Тибор спешит на помощь / Dog tales: Tibor to the rescue (2016) HDTVRip [H.264/720p-LQ] (сезон 1, серии 1-8 из 8)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот материал для тех, кому нравятся фильмы о работе Цезаря Миллана - дрессировщика проблемных собак, о котором выпущено несколько фильмов с общим названием "переводчик с собачьего". В этих фильмах показан аналогичный дрессировщик, работающий в городе Палм Бич штат Флорида. Солнце, песок и балованные собаки. Тибор Фейгель, раньше работавший моделью, теперь (   Читать дальше...   )Телекомпания: США, Fido TVЖанр: Документальный, познавательный, природа, наблюдениеРежиссер: Ричард БовлерПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 8 x ~ 00:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DF33564B84E9DC2F80888C278CFD81C26137525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235992   (556273) от 15.07.2018
-
-Векторный клипарт - Fruits vector realistic, orange, plum [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Свежие фрукты и ягоды
-9 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B70B95E8A25DCC8FF60BBD94384732657024E347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236121   (556272) от 15.07.2018
-
-CoolUtils Total PDF Converter 6.1.0.150 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTML, Text, CSV или изображения (TIFF, JPEG, BMP, GIF, WMF, EMF, PNG).Преимущество этой утилиты в том, что Total PDF Сonverter преобразовывает как отдельный файл, так и множество PDF файлов одновременно. Вам больше не нужен дорогой Adobe Acrobat, наш конвертер сэкономит Ваши деньги. Зарегистрированные пользователи (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B960FA2BA296D3061096263952C178921CA0238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236155   (556271) от 15.07.2018
-
-Брайан Ламли | Мифы Ктулху: Порча и другие повести [сборник] (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мифы Ктулху. Целая вселенная, созданная величайшим писателем-визионером первой половины XX века – Говардом Филлипсом Лавкрафтом. Вселенная, где путь между миром человеческим и миром Великих Древних – непознаваемых вечных существ, проникнутых безграничной злобой (или полнейшим безразличием?) к смертным – открыт практически постоянно. Вселенная, где идет беспрестанная (   Читать дальше...   )Жанр: Мистика, УжасыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C08ECFF3A341173B3AF2460B45996E06FBBDE88E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236052   (556270) от 15.07.2018
-
-Квартирник на НТВ у Маргулиса. Мгзавреби (07.14.2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556270.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Мгзавреби" - грузинская музыкальная группа, образованная в 2006 году в Тбилиси. На "Квартирнике" они исполнят лучшие песни специально для телезрителей НТВ.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F6E6E1042CEFE0EC0E6219CA09A72E3117CD44
+magnet:?xt=urn:btih:F27A27C800D9B4788E3C72525EC21FC8DA183619
 ```
 
 https://mybot314.ru/tekegram_catalog/

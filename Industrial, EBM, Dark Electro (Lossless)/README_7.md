@@ -1,3 +1,32 @@
+###  Публикация: 1362336   (162934) от 18.12.2020
+
+Faderhead - Asteria (2019) [FLAC|Lossless|tracks + .cue] <EBM, Dark Electro, Synthpop, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From His Broken Bones (5:12)
+ 02. The Other Side of Doom (5:40)
+ 03. Watching the Watchers (5:00)
+ 04. With a Borrowed Knife (3:51)(   Читать дальше...   )Жанр: EBM, Dark Electro, Synthpop, IndustrialПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78F6EAAE302510A0DACBA3EA337F6B5B40628AF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600284   (159011) от 26.12.2022
 
 Miseria Ultima - 4 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Electro, Industrial>
@@ -715,35 +744,6 @@ Sacrothorn - Та сторона (2024) [FLAC|Lossless|WEB-DL|tracks] <Dark Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9139AA4BF60D6D6D000DA8B1D64E84E78ABBD0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720798   (110174) от 05.05.2024
-
-Funker Vogt - 3 Albums (2021-2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Industrial, Aggrotech>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2021 - Element 115 (Bonus Track Version)
-2023 - Blutzoll (Bonus Track Version)
-2024 - Final Construct (Bonus Track Version)Жанр: EBM, Industrial, AggrotechПродолжительность: 3 CD, 05:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9591D5462B780762DF84AAC1B92B3A4D80D55C01
 ```
 
 https://mybot314.ru/tekegram_catalog/

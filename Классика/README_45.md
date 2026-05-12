@@ -1,3 +1,61 @@
+###  Публикация: 1631633   (235947) от 08.05.2023
+
+VA - Gymnopedie Chilled Piano Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Dickinson - Trois gymnopédies l. Lent et douloureux (3:13)
+02. Peter Dickinson - Trois gymnopédies ll. Lent et triste (2:36)
+03. Peter Dickinson - Trois gymnopédies lll. Lent et grave (2:26)
+04. Kathryn Stott - Suite Bergamasque, L. 75 III. Clair de lune (5:14)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF3AF92433D3310608E35B1F8C4BC38512AEA4BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 640342   (234559) от 17.09.2022
+
+Niccolo Paganini - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caprices in A-minor, Op.1 #24 - 4:52
+02. Caprices in A-minor, Op.1 #7 - 3:42
+03. Caprices in B-minor, Op.1 #2 - 2:47
+04. Sonata in E-minor, Op.3 #6 ALLEGRO - 3:44(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D691D176B40D0A98B49515607849BE238C29A221
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635023   (233035) от 23.05.2023
 
 Pekka Kuusisto, Joonas Ahonen - Symmetria Pario: Creation (2023) [FLAC|Lossless|image + .cue] <Classical>
@@ -688,64 +746,6 @@ The Piano Guys - The Piano Guys (2013) [FLAC|Lossless|WEB-DL|tracks] <Classical 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3C40C4786C00A855D0DD6FFA2F9DAFF0557129A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653677   (214199) от 17.08.2023
-
-Anne Louise Brillon de Jouy, Nicolas Horvath  Complete Piano Sonatas - Complete Piano Sonatas (2021) 2 x CD [FLAC|Lossless|image + .cue] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214199.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-[1]-[2] Sonnatte in A minor
-[3]-[4] Sonata No.1 in C minor
-[5]-[6] Sonata No.2 in B flat major(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:414916EF4A1158204257D2153CBC2BB5919989B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641822   (210623) от 24.06.2023
-
-Johann Sebastian Bach, Phantasm - The Well-Tempered Consort-III (2022) [FLAC|Lossless|image + .cue] <Classical, Baroque>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sinfonia No. 1 In C Major BWV 787
-02. Christ Unser Herr, Zum Jordan Kam BWV 684
-03. Fugue No. 3 In C Sharp Minor BWV 872
-04. Christe, Aller Welt Trost BWV 673(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 01:05:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E385CE0B3D75BD62DFCE0C2E29D35E8399491755
 ```
 
 https://mybot314.ru/tekegram_catalog/

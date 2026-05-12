@@ -1,3 +1,119 @@
+###  Публикация: 1473523   (1013522) от 30.05.2021
+
+Yiruma - f r a m e (2021) Reissue [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nocturnal Mind (3:15)
+ 02. f l o w e r (3:54)
+ 03. Walking In The Forest (3:07)
+ 04. f r a m e d (Piano Version) (3:53)(   Читать дальше...   )Жанр: New Age, Modern Classical, PianoПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D778C15F0D4207555809DB220AAB4E1AB3C425BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474406   (1012935) от 02.06.2021
+
+Ben Leinbach - The Spirit of Yoga (2003) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Khumjung
+02. Horizon of Gold
+03. Mother's Wingspan
+04. The HierophantЖанр: New Age, MeditativeПродолжительность: 00:62:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FD609BC08945B113F46394837744389B0892641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 169972   (1012498) от 05.06.2021
+
+Roses Never Fade - Roses Never Fade (2009) [FLAC|Lossless|image + .cue] <Folk Rock, Neo-Folk, Psychedelic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sickness That Never Sleeps - 3:25
+02. Runaway - 2:10
+03. Cauterize November - 2:00
+04. Fourth Horseman - 2:42(   Читать дальше...   )Жанр: Folk Rock, Neo-Folk, PsychedelicПродолжительность: 00:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E1A6CF360DBA71150556CD85C8842DBF09C3AB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476023   (1011928) от 09.06.2021
+
+ДиДюЛя - 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Еду-доеду
+02. Две сестры
+03. Танго добрых ветров
+04. Схватка(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2EFE8EA09BFFC631EB13E0FFC05FC51686BDEAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1476442   (1011493) от 12.06.2021
 
 Neal Schon - Universe (2020) Reissue, 2021, Neal Schon Music [FLAC|Lossless|tracks + .cue] <Instrumental Guitar Rock>
@@ -628,119 +744,6 @@ VA - Fiesta Latina 2019 (80 Big Latin Hits 2019/2020!) [MP3|320 Kbps] <Latin, Re
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:549987BF72CA37B8B95B71D040DC2423D12207EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348680   (1004272) от 02.01.2020
-
-Ani Tsering Wangmo - Immeasurable Joy (2006) [FLAC|Lossless|tracks + .cue] <Tibetan Chants>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Siddhi Yang (5:49)
-02. She Nying Yang (6:06)
-03. Tarai Yang (6:52)
-04. Mani Yang (8:31)(   Читать дальше...   )Жанр: Tibetan ChantsПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4777DA693CDE2B26AAA461300654A41483CFF19D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349314   (1004225) от 02.01.2020
-
-Shinnobu - The Enigma III (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etheric Worlds III (4:57)
-02. Warriors of Light (5:31)
-03. Mirages (feat. Angelux Ruddy) (5:28)
-04. Enigma from Man (feat. Angelux Ruddy) (8:13)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2DD8F2B531D81D51F8898845B5FF9C612D243A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647055   (1004040) от 03.08.2021
-
-Dragoslav Pavle Aksentijevic - Древнее Сербское Псалмопение XIII-XIV вв. (2007) [MP3|320 кб/с]<Православные песнопения>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Православные песнопенияПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61CAD397C45BEAB5A3148894B584B13515F02A70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486968   (1003860) от 04.08.2021
-
-Firefall - Great Collection (2021) [FLAC|Lossless|image + .cue] <Country Rock, Pop Rock, Soft Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break Of Dawn (3:48)
-02. Headed For A Fall (4:09)
-03. Getaway (3:46)
-04. Leave It Alone (2:49)(   Читать дальше...   )Жанр: Country Rock, Pop Rock, Soft RockПродолжительность: 01:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5620FD7C08872F56873DB9D0D5E010995C2A5CF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

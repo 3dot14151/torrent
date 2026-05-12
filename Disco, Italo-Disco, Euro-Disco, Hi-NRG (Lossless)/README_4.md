@@ -1,3 +1,32 @@
+###  Публикация: 1089792   (950636) от 04.01.2017
+
+JohnnyM5 - Fantasy Of Love (2008) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Helpless (Original Euro Mix) (3:48)
+02. Loreen (5:49)
+03. I Need You (Album Mix) (3:53)
+04. Flames Of Love (Album Version) (3:57)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popФормат: CD, AlbumПродолжительность: 01:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:273CCBB9F481533E4A6B515496C70678C923159B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362637   (948317) от 24.02.2020
 
 Frank Lozano - The Album (2018) [FLAC|Lossless|image + .cue] <Italo-Disco>
@@ -724,32 +753,6 @@ Dead Or Alive - That's The Way I Like It: The Best Of Dead Or Alive (2010) Compi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9D300E778E2F716DEE346CC393F22FF04791A3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 293241   (902922) от 09.02.2011
-
-Dee D. Jackson - Space And Time (2010) [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DiscoПродолжительность: 01:11:34
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

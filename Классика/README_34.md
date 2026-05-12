@@ -1,3 +1,58 @@
+###  Публикация: 146399   (418564) от 17.10.2009
+
+VA - Избранное (2007) [MP3|320]<Классика>
+
+>>Классика
+>>Классика (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_418564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: КлассикаПродолжительность: 05:04:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947498   (417966) от 17.10.2015
+
+Beethoven - Chamber Music for Winds Vol.1 (Consortium Classicum) (1996) [FLAC| image +.cue]<Classical, Romantic Period, Chamber Music, Classical Period, Duet, Minuet, Septet>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Septet in E flat major, op.20
+01. Adagio - Allegro con brio (10:00)
+02. Adagio cantabile (09:34)
+03. Tempo di Menuetto (03:12)(   Читать дальше...   )Жанр: Classical, Romantic Period, Chamber Music, Classical Period, Duet, Minuet, SeptetПродолжительность: 00:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:067331F274A926CFFCF1CF74A0A86A9E98343345
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167546   (416639) от 20.09.2017
 
 David Garrett - Rock Revolution (2017) Deluxe Edition [MP3|320 Kbps] <Classical Crossover>
@@ -686,68 +741,6 @@ David Garrett - Music (2012) Deluxe Edition [MP3|320 кб/с]<Classical, Instrum
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:518C43E2ECC9253419AC1D8C0ED988F58F2AE05E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561498   (406085) от 17.10.2012
-
-Giuseppe Verdi - Rigoletto (Tullio Serafin, Orchestra & Chorus Of La Scala)  2CD (1986) [FLAC|Lossless]<Classical, Romantic Period, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, Romantic Period, OperaПродолжительность: 00:56:08 - CD1
-01:01:51 - CD2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CF7E9BE964A4330EEF2361D2D131DEE9232669D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561509   (406070) от 17.10.2012
-
-Anna Netrebko - 3 альбома (2006-2009) [FLAC|Lossless]<Classical, Vocal>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gianni Schicchi - O mio babbino caro [02:45]
-02. La Boheme, Act 1 - 'Quando men vo' (Musette's Waltz) [02:38]
-03. Lakme, Act 1 - Dome espais le jasmin (Blumen-Duett) [05:08]
-04. Le nozze di Figaro, Act 4 - 'Giunse alfin il momento' - 'Deh vieni non tardar' [03:29]
-05. Don Giovanni, Act 1 - 'Lа ci darem la mano' [03:23]
-06. Lucia di Lammermoor, Act 2 - 'Ardon gli incensi' (Wahnsinnsarie) [05:05]
-07. Norma, Act 1 - Casta Diva [05:48]
-08. Rusalka, Act 1 - Mesucku Na Nebi Hlubokem (Lied an den Mond) [05:03]
-09. La Traviata, Act 1 - 'Libiamo ne'lieti calici' (Brindisi) [03:08]
-10. Giuditta, Act 4 - Meine Lippen, die kussen s heis [05:38](   Читать дальше...   )Жанр: Classical, VocalПродолжительность: 01:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E001D7E5633F381BF5BCC5E280DD861DD87DBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 566870   (394862) от 31.10.2012
+
+Giuseppe Verdi - La Forza del destino (1986) 3CD [FLAC|Lossless]<Classical, Romantic Period, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical, Romantic Period, OperaПродолжительность: 01:03:51 - CD1
+01:06:19 - CD2
+00:33:44 - CD3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50D19348A8E80AB079D586D72EE20EA95084191F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 569419   (391505) от 03.11.2012
 
 Фёдор Шаляпин - Избранное (2012) [FLAC|Lossless]<классика, вокал>
@@ -727,35 +755,6 @@ Divna Ljubojevic & Melodi / Angelopoulos& Byzantine Choir of Greece - The Glory 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E49B25E791DA5AC1DEE0880462CAF132593EA85C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186554   (285853) от 25.11.2017
-
-Robert Schumann - Dichterliebe op.48 (Peter Schreier, Christoph Eschenbach) (1995) [FLAC|Lossless|image + .cue] <vocal>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dichterliebe Op. 48
-1. Im wunderschönen Monat Mai
-2. Aus meinen Tränen sprießen
-3. Die Rose, die Lilie(   Читать дальше...   )Жанр: vocalПродолжительность: 00:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02F381880B27B292905E15E1E76235F39D30D01B
 ```
 
 https://mybot314.ru/tekegram_catalog/

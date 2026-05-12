@@ -1,3 +1,89 @@
+###  Публикация: 924496   (559064) от 03.08.2015
+
+Genesis - Duke (1980) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559064.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Behind The Lines (5:36)
+A2. Duchess (6:36)
+A3. Guide Vocal (1:22)
+A4. Man Of Our Times (5:37)(   Читать дальше...   )Производство: Charisma Records / Nippon PhonogramЖанр: Progressive RockПродолжительность: 00:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E71868C9C0C7591109F2A7E68944F15264EC075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045217   (556920) от 25.08.2016
+
+Каунт Бейси - Когда Садится Солнце (1985) Записи 1940 - 1950гг. [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Когда Садится Солнце
+02. Пьеса Для Фортепиано
+03. Какой Медленный Блюз
+04. Привет, Мама Лоди(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA72C8EA6F00CD75F694F84876057A3284DA01B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045758   (556844) от 25.08.2016
+
+Автограф - Ирландия. Ольстер (1981) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ирландия, Ольстер
+02. Пристегните ремни безопасности
+03. Блюз ''Каприз''Жанр: Prog RockПродолжительность: 00:14:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B656221AD61289DCF82480F0FA1066A83985867C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046074   (556831) от 25.08.2016
 
 Оризонт - Мой Светлый Мир (1982) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
@@ -657,114 +743,6 @@ D1. Lost For Words (5:13)(   Читать дальше...   )Жанр: Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:643BE2B96630075DE560959D2BEF05EC6203370D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531893   (539717) от 06.08.2012
-
-Lady Gaga - 2 альбома (2008, 2011) [DTS 5.1|Tracks (upmix)]<Pop, dance>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Dance feat. Colby O'donis (4:04)
-02. Lovegame (3:36)
-03. Paparazzi (3:28)
-04. Poker Face (3:57)
-05. Eh, Eh (Nothing Else I Can Say) (2:55)
-06. Beautiful, Dirty, Rich (2:52)
-07. The Fame (3:43)
-08. Money Honey (2:52)
-09. tarstruck feat. Space Cowboy And Flo Rida (3:37)
-10. Boys Boys Boys (3:21)(   Читать дальше...   )01. Born This Way (Zedd Remix) (6:31)
-02. Judas (Goldfrapp Remix) (4:41)
-03. The Edge of Glory (Foster the People Remix) (6:10)
-04. You and I (Wild Beasts Remix) (3:51)
-05. Marry The Night (The Weeknd and Illangelo Remix) (4:04)
-06. Black Jesus Amen Fashion (Michael Woods Remix) (6:11)
-07. Bloody Mary (The Horrors Remix) (5:19)
-08. Scheisse (Guena LG Club Remix) (5:45)
-09. Americano (Gregori Klosman Remix) (6:08)
-10. Electric Chapel (Two Door Cinema Club Remix) (3:59)(   Читать дальше...   )Жанр: Pop, danceПродолжительность: 01:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:638ECCAF0B71D7E2996E9C7BC9A31B6600EA569A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531769   (539714) от 06.08.2012
-
-Tina Turner - Simply The Best (1991) [DTS 5.1|image (Upmix)]<Pop, Rock, R&B>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best (4:21)
-02. Better Be Good To Me (4:04)
-03. Can't Stand The Rain (3:34)
-04. What's Love Got To Do With It (3:47)
-05. Typical Male (4:44)
-06. Private Dancer (4:22)
-07. We Don't Need Another Hero (4:48)
-08. What You Get Is What You See (4:08)
-09. I Don't Wanna Lose You (4:16)
-10. Look Me In The Heart (3:38)(   Читать дальше...   )Жанр: Pop, Rock, R&BФормат: wav+cue'Продолжительность: 01:28:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B1BAFAD6408CFA58F7B07C733E469005AD2B15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 818710   (539388) от 04.09.2014
-
-Electric Light Orchestra - Zoom (2001) 2LP /2013, Big Trilby Records/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539388.jpg" />
-</div>
-
-
-###  Подробнее
-
-C1. A Long Time Gone (3:16)
-C2. Melting In The Sun (3:10)
-C3. All She Wanted (3:14)
-C4. Lonesome Lullaby (4:04)Жанр: Progressive RockПродолжительность: 00:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F19D02D023E97C2EA64943DC103E289DEFD80C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

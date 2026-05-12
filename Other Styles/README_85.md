@@ -1,3 +1,125 @@
+###  Публикация: 1147321   (607511) от 03.07.2017
+
+VA - Romantic Moods Of The Great Instrumentalists (2000) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gordon Langford (piano) - La Mer (Beyond the Sea) (3:19)
+02. Francis Goya (guitar) - Try a Little Tenderness (3:41)
+03. Terry Harrington (clarinet) - I'll Walk Alone (3:42)
+04. Simon Chamberlain (piano) - I Love Being Here With You (2:51)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFB35EACF82EEC982F34C586135CCC7204B6857C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525197   (607330) от 21.07.2012
+
+Прометей / Prometheus (2012) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 A Planet
+02 Going In
+03 Engineers
+04 Life
+05 Weyland
+06 Discovery
+07 Not Human
+08 Too Close
+09 Try Harder
+10 David(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B78F3D6352601A82290B9793F21336DDDABC233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913273   (607089) от 28.06.2015
+
+Navajo - Native American Dance Trance (2000) [MP3|320 кб/с]<Native American, World, Ethno, Trance>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Star Of Cherokee (5:05)
+02. Song Of The Red River (Creek) (5:12)
+03. Sun Of The Desert (Choctaw) (5:28)
+04. Rainbow Song (Chickasaw) (5:33)(   Читать дальше...   )Жанр: Native American, World, Ethno, TranceПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6882FEE6374A220698349E00395C46004131E5E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296564   (606793) от 20.04.2019
+
+T Bone Burnett - The Criminal Under My Own Hat (1992) Reissue 2003 [FLAC|Lossless|tracks + .cue] <Blues Rock, Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over You (02:20)
+02. Tear This Building Down (04:37)
+03. It's Not Too Late (04:27)
+04. Humans From Earth (02:49)(   Читать дальше...   )Жанр: Blues Rock, Folk RockПродолжительность: 00:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CD559FE3DFC91CDD9158B2C343A9C5E1A5205CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038010   (606601) от 28.07.2016
 
 Klaus Schulze's U.S.O. - Privée (2016) [MP3|320 Kbps] <Electronic, Ambient>
@@ -629,122 +751,6 @@ Lynn Tredeau - Shifting Sands (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pia
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D35B2407ED0629CA3FCF090324D4253423AD8F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149150   (602518) от 09.07.2017
-
-Edelis - Sensation of the World (2009) Rerecorded Version, 2017, ROMAN Music Records [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, Ethno>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602518.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Aspiration For Awakening (04:31)
-2. Atlantis (04:23)
-3. Myth (04:24)
-4. New Capability (05:10)(   Читать дальше...   )Жанр: New Age, Ambient, EthnoПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D8CFF43D0F8CA62D782B56F24FF290A87C9CF8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148736   (602505) от 09.07.2017
-
-Dolly Parton - The Real... Dolly Parton (The Ultimate Collection) (2013) 3CD [FLAC|Lossless|tracks + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Dumb Blonde
-02. Just Because I'm A Woman
-03. D.I.V.O.R.C.E.(   Читать дальше...   )Жанр: CountryПродолжительность: 02:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:267F760097CC60CF88E2E195F2974EA17A9FB4CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148943   (602487) от 09.07.2017
-
-Empire Of Love - Mysterious I-II (2016-2017) [FLAC|Lossless|WEB|tracks] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Children Of The Sun (4:54)
-02. Heya (5:45)
-03. In The Dream Of The Monk (4:32)
-04. Inside You (4:36)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:31:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2B497B5B3FD313FCEE8D0A9E9A90AA07316FB9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149108   (602365) от 09.07.2017
-
-VA - Sax & Sex Collection (1995)(10CD)[FLAC|Lossless|tracks + .cue] <Smooth Jazz, Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dave Stewart & Candy Dufler - Lili Was Here (04:18)
-02. Kenny G. - Let Go (05:48)
-03. David Sanborn - Goodbye (05:32)
-04. George Howard - Baby Come To Me (06:37)(   Читать дальше...   )Жанр: Smooth Jazz, Instrumental, Easy ListeningПродолжительность: 11:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74E5D4D4F5E7C4A69643488F4E6820CC46660E58
 ```
 
 https://mybot314.ru/tekegram_catalog/

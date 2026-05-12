@@ -1,3 +1,57 @@
+###  Публикация: 952746   (352899) от 02.11.2015
+
+Проекты - VideoHive - Ancient Trailer [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для эффектного представления текста.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1525E4E0A2FA5A5FAAE7C423842484025098B73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952731   (352890) от 02.11.2015
+
+Проекты - VideoHive - Xtreme Sports Graffiti Trailer - 8325950 [AEP]
+
+>>Проекты
+>>Спортивные (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект подходит для любых экстремальных видов спорта, от катания на коньках, серфинга, сноубординга, прыжков с парашютом, до банджи-джампинга, и многого другого.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8457FB033EE62077DEF4A3D020FB054E603CF2A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329475   (351967) от 05.10.2019
 
 VideoHive - Boardwalk Slideshow - 9089996 [AEP]
@@ -627,59 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A05E5340F3A225552D8D30F1317A1A04E0D6F49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953043   (350867) от 03.11.2015
-
-Проекты - VideoHive - Love Story Album - 6495916 [AEP]
-
->>Проекты
->>Свадебные и романтические (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотоальбом с элементами скрапбукинга.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5995F55FCA51B00FC917900D8ADB5B399696B5C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178411   (350668) от 30.10.2017
-
-Проекты - VideoHive - Spirit Of Travel Slideshow - 20322610 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spirit Of Travel Slideshow - проект для создания слайдшоу с последовательностью названий.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E648BC0B4E845EBDB6740A9803B1C6D8AF92904F
 ```
 
 https://mybot314.ru/tekegram_catalog/

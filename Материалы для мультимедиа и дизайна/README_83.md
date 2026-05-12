@@ -1,3 +1,109 @@
+###  Публикация: 1499962   (844153) от 04.10.2021
+
+3D модели - Daz 3D - Topsy 8 Merry and Bright Bundle - 79588 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topsy 8 для DAZ 3D из категории People
+Для Genesis 8 .Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98E03AAC6AC7627AED1B1251C7ED1D11D0BB0753
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 771599   (843351) от 29.03.2014
+
+Векторный клипарт - Животные / Animals [AI,EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Животные и зверушкиФормат: AI,EPS и превью в JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B85D26CB8EC989E0D4B11563FDD4B4D10FBBA2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379101   (842908) от 27.04.2020
+
+Растровый клипарт - Клипарт пиратский остров [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт на пиратскую тему.
+Автор serginionФормат: PNGРазрешение файлов: 1920x1280
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018CB816B2581D3E35E512352E57305B78A39520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379108   (842797) от 27.04.2020
+
+Шаблоны - NNM-Club - CD шаблоны от Snake1965 - 1379108 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842797.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD шаблоны от нашего одноклубника White1965.Формат: PSDРазрешение файлов: 600x600-850x600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C02E3A8A06ABA1E71E2847FA9E60970EC2F547AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112285   (842694) от 08.03.2017
 
 Шрифты - Ice kingdom Bold [TTF, OTF]
@@ -570,111 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:127F5B777F219C4EDBB3D4214A8B292DEE686482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379654   (838927) от 29.04.2020
-
-Кисти - Creative Market - 150 Weather Photoshop Brushes - 3092149 [ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838927.jpg" />
-</div>
-
-
-###  Подробнее
-
-150 Weather Brushes - это коллекция из 150 кистей фотошопа. Дайте вашей работе уникальный красивый вид. Кисти идеально подходят для украшения и дополнения фотографий и произведений искусства! Эти кисти имеют высокое разрешение и поэтому подходят как для веб, так и для печатных проектов.Формат: ABRРазрешение файлов: 2500x2500-5000x5000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C425A923A13854A7EF8F9EC95E63D61C50C3DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501051   (837858) от 08.10.2021
-
-3D модели - TurboSquid - Peugeot 508 PSE 2021 - 1683110 [Scanline|*.max, 3DS, C4D, FBX, LWO, OBJ, STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837858.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки PeugeotФормат: Scanline|*.max, 3DS, C4D, FBX, LWO, OBJ, STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B44D373A6B16E3FF1E87DC572052395DA1556F14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501054   (837767) от 08.10.2021
-
-3D модели - CGTrader - Hyundai Kona 2018 [3DS, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837767.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиль марки Hyundai.Формат: 3DS, C4D, FBX, LWO, MAX, OBJ, STL, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D123B3D2EC11B1E77F81AC6130E592491CEE09C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 772904   (836719) от 02.04.2014
-
-Векторный клипарт - Милые зверушки 2 / Cute animals 2 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рисованные зверушки
- :question: кого-то мне этот постер напоминает   :wink:Формат: EPS и превью в JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C6321C3A105E7D4CE1DCB247165E3999E03FE85
 ```
 
 https://mybot314.ru/tekegram_catalog/

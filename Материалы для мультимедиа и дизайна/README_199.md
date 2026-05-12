@@ -1,3 +1,115 @@
+###  Публикация: 1310160   (548793) от 22.06.2019
+
+Векторный клипарт - Vector Fauna Collection #04 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Фауна
+50 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3006CCE1A0109B310B4004CDEEDDAFECD1C87262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310151   (548786) от 22.06.2019
+
+Векторный клипарт - Vector Fantastic Heroes #40 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Сказочные герои
+50 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8931F174DC9A7471B3446F8086BFBE2C9CCC7382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310149   (548783) от 22.06.2019
+
+Векторный клипарт - Vector Fairy Collection #38 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Сказка
+25 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A74193D7A0E5582B772891D154D78CD3AFFE940D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310161   (548737) от 22.06.2019
+
+Векторный клипарт - Vector Fauna Collection #05 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Фауна
+50 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE9BF9888252005E515EDC34F786CFB565908880
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310113   (548555) от 22.06.2019
 
 Звуковые библиотеки - GetGood Drums - Invasion [Kontakt, OGG, MID]
@@ -582,110 +694,6 @@ Best Service - Galaxy Vintage D (виртуальный рояль) – нове
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3BC240EA535C943E94137CAC16D22200D35EB67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310238   (547564) от 23.06.2019
-
-Экшены - GraphicRiver - Watercolor Illustration Photoshop Action - 23280378 [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Watercolor Illustration - Это действие выполнено в чистом акварельном стиле. Действие довольно простое в использовании и, опять же, имеет 2 версии – тяжелую версию и мягкую версию. Действие хорошо сочетается с пейзажами и архитектурой, портретами и натюрмортами.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA73D1CBC85FA503A5EC01449DEF0F384CA1BBE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 694017   (547333) от 28.08.2013
-
-Растровый клипарт - Деньги 3 / Money 3 [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547333.jpg" />
-</div>
-
-
-###  Подробнее
-
-ДеньгиФормат: JPEGРазрешение файлов: 5500х5300-8500х12700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03A85B9E781BCCB1AC444E36BF72E2A69E7A64C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048259   (547314) от 01.09.2016
-
-Экшены - CreativeMarket - Colored Smoked [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Colored Smoked - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EACC39C194369A40A839D19B6925BB2AFFEEB3A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048242   (547302) от 01.09.2016
-
-Экшены - GraphicRiver - Sketch Art Photo Action [ATN, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sketch Art Photo - экшен для Вашего творчества.Формат: ATN, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE459FB7F0BA50DC5FC10CF43BE5AC9F702E3EFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

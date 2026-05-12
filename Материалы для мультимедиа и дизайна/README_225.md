@@ -1,3 +1,109 @@
+###  Публикация: 942745   (453241) от 01.10.2015
+
+Растровый клипарт - Скрап-набор ''Owls Love Fall'' [PNG, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удивительно красивый и нежный осенний скрап-набор.Формат: PNG, JPGРазрешение файлов: от 500х500 до 3600х3600 (300 dpi)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E1CBA8FC8E7CAA01E9F20E97E9539DF4CBDF8DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942774   (453097) от 01.10.2015
+
+Растровый клипарт - Фоны - Винтаж [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция винтажных фонов для Вашего творчества.Формат: JPGРазрешение файлов: 3600х3600 (300 dpi)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F9B6A744B9E3F0A3A588699328827A847FC27F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942503   (452844) от 01.10.2015
+
+Растровый клипарт - Shutterstock - Разное [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shutterstock это самый известный магазин с фотографиями. Огромная коллекция и качественные снимки. В этой раздаче часть моей большой коллекции Shutterstock. Все фотографии разложены по тематике. Берите то, что нужно. Или качайте все подряд на будущееФормат: JPGРазрешение файлов: 320х320 – 13125х12370
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB8F29984092E5AFE9E222A383D8E2FFA62D162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942791   (452832) от 01.10.2015
+
+3D сцены - Evermotion - Archinteriors Vol. 035 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной сборник сцен интерьеров от компании Evermotion!
+
+Данный сборник содержит 10 сцен, полностью затекстуренных и готовых к рендерингу. А так же файлы .psd с примерами пост-обработки сцен!Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EF28145B28AD6650A5DDCA00C09EBC829DF5833
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247438   (452649) от 15.09.2018
 
 Растровый клипарт - Deeezy - Ice Age Free 3D Lettering [PNG]
@@ -588,119 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A89067DD810ACFB8D1DAC21F9005149A8E20DA60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551929   (449933) от 25.09.2012
-
-Digital Juice - Swipes! 40: Screen Smashers (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Формат: 60 Full Screen Animated Wipes 30 - SD ( PAL & NTSC ) 30 - HD
-60 Matching Sound FX (2 - Sound effects per wipe, 1.5 Seconds average length)
-
-Экстримальная коллекция футажей с разбиванием во весь экран разных предметов: стёкол, кирпичей, льда, а так же рубкой дерева и разливанием кислоты. Такие эффекты можно добавить во многие жанры видео, особенно рекомендовано для жанра экшен
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5824C84A7A25C3E07B71D86EB59CD5371E2B0B3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549647   (449928) от 25.09.2012
-
-Digital Juice - Motion Design Elements Standart 26: Fireworks (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_449928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice - Motion Design Elements Standart 26: Fireworks (Full ISO)Название: Digital Juice Motion Design Elements 26 Fireworks Part1-2 DVD9-TSG
-Дата выпуска релиза: 04-30-2008
-Официальный сайт: www.digitaljuice.com/products/products.asp?pid=491 (not available)
-Тип раздаваемого: Video FX, Footage
-Расширение (тип) файлов: .iso (.mov, 1080 x 1080 to 1920 x 1080 at 60 fps)Motion Design Elements 026: Fireworks - коллекция фейерверков. Исторически сложилось ежегодно отмечать особо важные события нашей жизни, используя фейерверки. Являются ли фейерверки фигуративными или буквальными, результат всегда один и тот же - зрители ждут, затаив дыхание, чтобы увидеть первый красочный залп и затем начинают задаваться вопросом: что прибудет потом? Следующий взрыв будет более сильным? Будет ли что-то новое? Будет ли он ярче? А другой цвет?... С помощью этого сборника вы будете контролировать шоу!Используя эти 30 уникальных анимаций, вы сможете создать безграничное разнообразие фейерверков. И вы согласитесь, что никогда не (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551334   (449862) от 25.09.2012
-
-Digital Juice - Ready2Go: Collection 20 (AE) (Files)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449862.jpg" />
-</div>
-
-
-###  Подробнее
-
-The ready2go product line reaches an all new high! This 20th volume of projects and templates contains an exciting collection of powerful animated projects for After Effects that push the limits of professional style and suit a range of productions. The wide variety of unique looks in this volume can be easily put to work as-is or adapted for your latest production. Get your creative juices flowing with the professional, stylish looks in this collection and put your inspired ideas to work with ready-to-use well-designed template segments - in everything from wedding videos, business presentations and network show promos to broadcast TV commercials, sports highlights reels and training material.
-
-http://youtu.be/CvUaOPIyzE4
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3711E49765DCBA59D5DD89EA5391916679E32B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569734   (449103) от 14.08.2022
-
-Звуковые библиотеки - Heavyocity - Vocalise 3 [Kontakt, OGG]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в этот насыщенный, атмосферный и волнующий душу вокальный опыт. Vocalise 3 - это эмоциональное исследование, которое раскрывает красоту, интимность и глубокую силу человеческого голоса. От органических фраз до абстрактного шепота и навязчивых звуковых пейзажей - это нежный гибридный вокал, который выходит за рамки эмоций.Формат: Kontakt: NKI, NKX, NKA; OGG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:444BA0A1FD1568E72AE19F00AE0ADDBD3B322649
 ```
 
 https://mybot314.ru/tekegram_catalog/

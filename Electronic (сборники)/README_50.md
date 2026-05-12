@@ -1,3 +1,32 @@
+###  Публикация: 1119774   (805764) от 29.03.2017
+
+VA - Best of Deep-House. Volume 2. Spectral Life [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Deep-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moviero - Intro (Original Mix) (6:36)
+02. Aaron the Baron - The Time You Gave Me Love (Original Mix) (4:45)
+03. AFSHeeN - Tunnel - Radio Edit (3:40)
+04. Jaques Le Noir - Boy (Push My Botton)Жанр: Deep-HouseПродолжительность: 04:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D462429EA1A0A718005B31DC5C751B0DCCDED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384041   (805732) от 18.05.2020
 
 VA - Beatport Tech House: Sound Pack #81 (2020) [MP3|320 Kbps] <Tech, Deep House, Electro>
@@ -716,35 +745,6 @@ VA - Synth of Waves 8 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F83E0464970909DEDE628D2BFB7208F0CE71A9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505365   (802748) от 28.10.2021
-
-VA - Synth of Waves 7 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Efence - Cassette (Gertrudda Edit) (5:46)
-02. NightStop & Jenny - Moonlight Bubblebath (Gertrudda Special Edit) (4:39)
-03. Daytona Dreaming - Electric Voyager (4:41)
-04. Koto - Visitors (Synthwave Remix) (6:12)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:28:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B10DD881C4C5E21288781059AC8AC6734F7F27
 ```
 
 https://mybot314.ru/tekegram_catalog/

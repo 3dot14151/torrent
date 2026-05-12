@@ -1,3 +1,61 @@
+###  Публикация: 1722437   (56868) от 11.05.2024
+
+VA - The Essentials: Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)
+02. Mikhail Mordvinov - Fantasia in D Minor, KV 397 (5:34)
+03. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+04. The AI Consort - Canon and Gigue in D Major, T. 377 I. Canon (4:16)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AF2326726B6851A68C764EE22335A44BDF07760
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722641   (56781) от 12.05.2024
+
+Hauser, London Symphony Orchestra - Classic II (2024) [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый альбом Classic II стал продолжением всемирного успеха альбома Classic 2020 года. Для нового альбома HAUSER выбрал и воплотил в жизнь 17 незабываемых мелодий в новых аранжировках, записанных с London Symphony Orchestra под управлением Robert Ziegler'а. В альбоме Classic II, который он спродюсировал сам, HAUSER переосмыслил свои любимые мелодии в новом элегантном (   Читать дальше...   )01. Albinoni Adagio (5:55)
+02. Mozart Piano Concerto No. 23 (5:25)
+03. Arioso (3:46)
+04. Rachmaninoff Symphony No. 2 (5:25)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F75726D1B6E10C9170B2B3568F60EEADD27959D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724574   (55929) от 20.05.2024
 
 VA - The Essentials: Classical Crossover (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -684,64 +742,6 @@ VA - Greatest Violin Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7E97218A397EBB80CD4DEA1979DABCCCDBCB2B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750207   (43154) от 18.09.2024
-
-VA - 20 Greatest Cello Composers (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stockholm Chamber Duo - Le Carnaval des Animaux, R. 125 XIII. Le Cygne (2:53)
-02. Victor Yoran - Cello Suite No. 1 in G Major, BWV 1007 I. Prélude (1:47)
-03. Victor Yoran - Cello Suite No. 1 in G Major, BWV 1007 II. Allemande (6:51)
-04. Victor Yoran - Cello Suite No. 1 in G Major, BWV 1007 III. Courante (3:19)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9702436780AC3F608F502E94026684ECB6C0381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750483   (42955) от 20.09.2024
-
-Secret Garden - Songs In The Circle Of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Neoclassical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Renaissance (4:43)
-02. Lullaby For Grown-Ups (4:35)
-03. Fionnuala's Violin (3:57)
-04. Irish Waltz (3:32)(   Читать дальше...   )Жанр: Classical Crossover, NeoclassicalПродолжительность: 00:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25FE0C67C61A2E9F80EC9B362D23E979D8D4B421
 ```
 
 https://mybot314.ru/tekegram_catalog/

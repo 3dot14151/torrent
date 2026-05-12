@@ -1,465 +1,25 @@
-###  Публикация: 524613   (613620) от 18.07.2012
+###  Публикация: 1296184   (613447) от 16.04.2019
 
-[Wallpapers 16+] Gilrs Wallpaper Mix (19.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1680x1050 - 3000x2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD8B25F27055282FA8FF164AB3CFB254B0EF6D0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524114   (613615) от 18.07.2012
-
-[Wallpapers] Nature HD Wallpapers (17.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE5C3E58919406D16D93837FA502E20E2116AB00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524605   (613613) от 18.07.2012
-
-[Wallpapers] Nature Wallpapers (19.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2D82BCFBE28E80CF7EBA02AC3ED197490B561F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524133   (613612) от 18.07.2012
-
-[Wallpapers 16+] Wallpapers Sexy Girls Pack (18.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5616x3744
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35CAD6B033DF558257EF341C37756AB474016FEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524115   (613611) от 18.07.2012
-
-[Wallpapers] Beautiful Nature Wallpapers (17.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A676933E08FFE3B435BD6365CA4E4FCDA1571F7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523018   (613610) от 18.07.2012
-
-Розовый сад / The Rosegarden (1989) SATRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Адвокат Габриела Фройнд берет на себя защиту пожилого мужчины Аарона Райхенбаха, который напал в аэропорту на старика и избил его. Райхенбах отказывается разговаривать, что создает сложности для его адвоката. Тем не менее, Габриеле удается узнать, что потерпевший, Арнольд Кренн, является бывшим нацистским офицером, служившим в концентрационных лагерях. Кренн хочет, чтобы Райхенбах был осужден. Но Габриела открывает черные страницы прошлого, которое преследует героев… Сюжет фильма основан на реальных событиях — проведении медицинских экспериментов над двадцатью еврейскими детьми и последующей казни их в день рождения Гитлера.
-При копировании файлов и оформления раздачи на других трекерах - ОБЯЗАТЕЛЬНО размещать баннер и указывать релиз-группуЖанр: ДрамаРежиссер: Фонс РадемакерсАктеры: Лив Ульман, Максимилиан Шелл, Питер Фонда, Ян Никлас, Ханнс Цишлер, Курт Хюбнер, Георг Маришка, Гила Альмагор, Катарина Лена Мюллер, Ахим Руппел, Фридхельм Леманн, Марко КрёгерПеревод: Двуголосый закадровыйПродолжительность: 01:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:030688454678FF71659374CD475FE3E0E89D58F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524109   (613609) от 18.07.2012
-
-[Wallpapers] Mixed Wallpapers (17.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B13EF3776AFBA6D3CED7E5F96FC979B167F2F71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524566   (613608) от 18.07.2012
-
-VA - V2.3VerMix [Mixed by Master Ex.Mu.] (16.07.2012) [MP3|320 кб/с]<Dubstep>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Addergebroed - Don't Panic (VIP) (4:41)
-02 - Bare & Datsik - King Kong (Skeptiks Remix) (4:06)
-03 - Brainpain - You Need Air (Original Mix) (5:02)
-04 - Counterstrike, Gein - Pentagram (Sinister Souls Remix) (4:48)
-05 - Dub Elements - Loaded (Feat. Counterstrike) (5:23)
-06 - Paimon & Place 2b - Fat Sax (Original Mix) (5:43)
-07 - Sub Focus Feat. Kenzie May - Falling Down (VIP Mix) (4:37)
-08 - Going Quantum - Hello (Original Mix) (6:02)
-09 - Tim Ismag - Club On Fire (Barron Remix) (4:11)
-10 - Getter - AK-47 (Original Mix) (4:48)Жанр: DubstepПродолжительность: 00:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F06179242D50BE05CC912D394F90F40B4FAA4B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524612   (613607) от 18.07.2012
-
-[Wallpapers 16+] Wallpapers Sexy Girls Pack (19.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EAC212B9E7830BBB2D4BFBE7535EBC8E74DBA56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524446   (613606) от 18.07.2012
-
-Peter 'Wyoming' Bender - Canyon Eagle (2002) [MP3|128 кб/с]<Native American Ethno, Folk-Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613606.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wakan Kolaya 4:03
-2. Seminole Sundown 2:38
-3. Peyote Chant 3:20
-4. Wakan Kuja 0:49
-5. Wichi Tia To 3:31
-6. Canyon Eagle Rhapsody 5:47
-7. Coming & Going 5:46
-8. We Are All Related 3:00
-9. Mitakuye Oyasin 6:17Жанр: Native American Ethno, Folk-RockПродолжительность: 00:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDDA5C0A2D6E9DBD2DFDA8CA4759A3915676E02E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524116   (613605) от 18.07.2012
-
-[Wallpapers] Beautiful Nature HD Wallpapers (17.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6EA1C7EAF26A8E2270DC96CBC39E351D8B124B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524604   (613604) от 18.07.2012
-
-[Wallpapers] Best HD Wallpapers Pack (19.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49BF0C46700C4116D75ABBF870C4F328F2D0ADE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524132   (613603) от 18.07.2012
-
-[Wallpapers] Beautiful Nature Wallpapers (18.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE2E6964618010DE57AAF885572B9C490358D13A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296124   (613579) от 16.04.2019
-
-Wild Belle - Everybody One of a Kind (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rocksteady (02:57)
-02. Mockingbird (03:34)
-03. Everybody One of a Kind (02:58)
-04. Tumbleweed (02:38)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:30:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C75A7F89C4F56A9B34DD280D4057EFF1985FAE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296339   (613575) от 16.04.2019
-
-Matmos - Plastic Anniversary (2019) Thrill Jockey [FLAC|Lossless|tracks+.cue] <IDM, Experimental, Glitch, Abstract>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaking Bread (02:27)
- 02. The Crying Pill (04:25)
- 03. Interior With Billiard Balls & Synthetic Fat (04:12)
- 04. Extending The Plastisphere To GJ237b (00:11)(   Читать дальше...   )Жанр: IDM, Experimental, Glitch, AbstractПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5431F4188118D0DAAECB89DC12F47A69C292464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037407   (613557) от 24.07.2016
-
-Hands Off! 3.0.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hands Off! - контроль доступа в Интернет
-Этот функциональный и простой в использовании инструмент для платформы OS X может использоваться для мониторинга активности приложений, способных устанавливать подключение к Интернету. Благодаря Hands Off! пользователь сможет своевременно обнаружить признаки вредоносной или потенциально опасной деятельности, исключить вероятность (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 июля 2016Разработчик: One Periodic Inc.Поддерживаемая ОС: Mac OS X 10.9.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA3BC153DC046895D0D6B80C0125246274C66908
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037561   (613552) от 24.07.2016
-
-Формула 1. Гран-При Венгрии. Гонка (2016) HDTVRip [H.264/720p] [hand made 50fps]
+Футбол. Чемпионат Европы 2020. Отборочный турнир. 1-й тур. День 1-й. Обзор матчей (2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613447.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Российский гонщик команды "Торо Россо" Даниил Квят в этот уикенд впервые возвращается в Венгрию с того момента, как в 2015 году он финишировал здесь на втором месте, что является лучшим результатом в его карьере.
-
-В личном зачете лидирует Нико Росберг из "Мерседеса" (168), к которому вплотную подобрался его партнер по команде Льюис Хэмилтон (167), (   Читать дальше...   )Телекомпания: МАТЧ! АренаЖанр: Спорт, автоПродолжительность: 02:10:22
+21 марта 2019, четверг.
+Чемпионат Европы 2020. Отборочный турнир.
+Обзор матчей. 1-го тура.
+День 1-йТелекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:28:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C33A84AD0A3ED86A81A7B407954C695D80B2C382
+magnet:?xt=urn:btih:4D4CB9EACAE0F768B94AFAB7562D9521F2DFFF16
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -467,25 +27,194 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230632   (613550) от 13.06.2018
+###  Публикация: 1296251   (613443) от 16.04.2019
 
-Microsoft Office 2016 Standard 16.0.4705.1000 (2018.06) RePack by KpoJIuK [Multi/Ru]
+NASCAR-2019. 3-й Этап. Лас-Вегас / Monster Energy NASCAR Cup Series 2019. Pennzoil 400. Weekend (2019) IPTVRip [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613443.jpg" />
+</div>
+
+
+###  Подробнее
+
+NASCAR Cup Series - Сезон 2019 года
+01 марта-03 марта 2019 года. Лас-Вегас (штат Невада, США).
+3-й Этап. Pennzoil 400 presented by Jiffy Lube.
+01. Практика(   Читать дальше...   )Телекомпания: США, FS 1, Fox SportsЖанр: АвтоспортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 00:42:25 - 03:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:945612BE414B96C4D13D939CF75F5E00104BFA65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524375   (613422) от 18.07.2012
+
+Г.В. Залуцкий | Выдающиеся русские летчики [1953] [DJVU]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613422.jpg" />
+</div>
+
+
+###  Подробнее
+
+История отечественной авиации в лицах. Фигуры высшего пилатажа, впервые освоенные русскими летчиками. Иллюстрировано архивными документами и фотографиями.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E101FA802614FC9C80AA55F10EFC87BE798A361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524085   (613415) от 18.07.2012
+
+[Графика] Феликс Хидаят (Felix Hidayat): художник - иллюстратор (Индонезия), ник - nekomancerz
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Феликс Хидаят (Felix Hidayat): художник - иллюстратор (Индонезия), ник - nekomancerz
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8438B1407A6C738DCF417A94CC622CB91AC319D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524598   (613412) от 18.07.2012
+
+[Графика] Коллекция архитектурной графики (часть 1)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция архитектурной графики (часть 1)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6E336E7DB8FFB14154923A31301CC79AFB2E4E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524086   (613406) от 18.07.2012
+
+[Графика] Digital Art (17.07.2012)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Art
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E53F5FEB9E16A2D6707876E33466E603155110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524216   (613404) от 18.07.2012
+
+VA - Sunrise Chillout Gold Edition 100 Selected Tracks (2012) [MP3|320 кб/с]<Chillout, Lounge, Lo-Fi>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613404.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Continental Groove - Bawls of Prayer (6:47)
+2. Control 98 - Super Sax (5:17)
+3. XM Ensemble - Dark & Blonde (3:44)
+4. Deephouse 84 - A Night On the Beach (3:16)
+5. Montecarlo Dream - Del (5:57)
+6. Paul V - Cutdown (1:41)
+7. The Blue Rose - The Rainbow (4:02)
+8. Double T Project - Behind the Mirror (4:12)
+9. Shin Elto - Deep Mundo (4:44)
+10. Lounge Dam - Cap (5:47)(   Читать дальше...   )Жанр: Chillout, Lounge, Lo-FiПродолжительность: 06:58:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C83C4C0E14548391C9673C15317ED13359265C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296288   (613381) от 16.04.2019
+
+Privacy Eraser Free 4.49.3 Build 2869 + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613381.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
+Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:897B0B90CB9E2C8237FC271DB49304FE11877A41
+magnet:?xt=urn:btih:C8154D617FEF02FC352D36680F58164D8C81576F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -493,25 +222,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 524130   (613527) от 18.07.2012
+###  Публикация: 1295914   (613380) от 16.04.2019
 
-[Wallpapers] Best HD Wallpapers Pack (18.07.12)
+NASCAR-2019. Дайтона. Гонка 1-2 / Monster Energy NASCAR Cup Series 2019. Gander RV Duel. Race 1-2 (2019) IPTVRip [H.264/720p-LQ] [hand made 60fps] [EN]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613380.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+NASCAR Cup Series - Сезон 2019 года
+Gander RV Duel служатит квалификационной гонкой для Daytona 500.
+Четверг, 14 февраля 2019 года. Дейтона-Бич (штат Флорида, США).
+Gander RV Duel. Race 1(   Читать дальше...   )Телекомпания: США, FS 1Жанр: АвтоспортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 03:29:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3322F472F0A920C2344E6522FC3CF0965A68453
+magnet:?xt=urn:btih:CC87D05F65184CABEE70B8E673035261C9A445B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,25 +251,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 524606   (613526) от 18.07.2012
+###  Публикация: 1296240   (613377) от 16.04.2019
 
-[Wallpapers] Beautiful Nature Wallpapers (19.07.12)
+NASCAR-2019. 3-й Этап. Лас-Вегас. Гонка / Monster Energy NASCAR Cup Series 2019. Pennzoil 400. Race (2019) DVBRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613377.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+NASCAR Cup Series - Сезон 2019 года
+Воскресенье, 03 марта 2019 года. Лас-Вегас (штат Невада, США).
+3-й Этап. Pennzoil 400 presented by Jiffy Lube.
+Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:28:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80D77CBA238D4808101B829DCC82A93EB4216A71
+magnet:?xt=urn:btih:EA65E993FB3FC786B81B27B4A4D034528667BF8F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -545,25 +280,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 524134   (613525) от 18.07.2012
+###  Публикация: 1296289   (613375) от 16.04.2019
 
-[Wallpapers 16+] Sexy Girls Pack Wallpapers (18.07.12)
+Ветер / Обитель страха / The Wind (2018) WEB-DL [H.264/1080p-LQ] [MVO]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613375.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5616x3744
+Дикий Запад, конец XIX века. Где-то в бескрайних прериях живёт молодая пара. Муж часто отлучается на заработки в город и оставляет Лиззи одну, поэтому она очень обрадовалась, когда рядом поселилась ещё одна семейная пара. Теперь женщине есть с кем поговорить и провести время. Но забеременев, новая подруга начинает странно себя вести и утверждать, что где-то поблизости (   Читать дальше...   )Производство: США / Divide/Conquer, Mind Hive Films, Soapbox FilmsЖанр: Ужасы, вестернРежиссер: Эмма ТаммиАктеры: Майлз Андерсон, Кейтлин Джерард, Джулия Голден Теллес, Дилан МакТи, Мартин Си Паттерсон, Эшли ЦукерманПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: Английские (Full)Продолжительность: 01:27:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:396F5C5DD11CEDC4CC1D002CA2206618F2D3D609
+magnet:?xt=urn:btih:532305D777434E6C8B1F5B0F6E5EAF374AC075DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -571,34 +306,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 524154   (613524) от 18.07.2012
+###  Публикация: 1296330   (613374) от 16.04.2019
 
-Break Of Reality - The Sound Between + 5 Track Acoustic EP (2006) [MP3|320 кб/с]<Symphonic Rock>
+PrivaZer 3.0.68 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613374.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Beyond Recourse (04:11)
-02. Parabolic Cosmos (04:03)
-03. Broken (02:29)
-04. Sore Arms (03:59)
-05. Circles (05:04)
-06. Black Noise (00:29)
-07. A Blind Purpose (02:45)
-08. Scarred By Duty (04:34)
-09. Jade (01:13)
-10. Rise (03:34)(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 00:57:06
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7DC9F85F7B1613950A6DBEDE32081CA98D43DF7
+magnet:?xt=urn:btih:452E47D35690CF67604B6FC40687BE9868A7F15A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -606,33 +332,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 524218   (613521) от 18.07.2012
+###  Публикация: 1037131   (613361) от 24.07.2016
 
-Dean Evenson & Cha-Das-Ska-Dum - Native Healing (2001) [MP3|320 кб/с]<Native American, New Age, Ethnic Fusion>
+Ashampoo Photo Commander 14.0.6 Portable by speedzodiac [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613361.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Oklahoma Cry Song 07:05
-02. Coming Home 07:07
-03. Dudley's Song 08:01
-04. Lost Tracks 09:30
-05. Cheyenne's Song 05:51
-06. Cedar Flute Love Song 03:47
-07. The Earth Is Calling Our Name 07:49
-08. Sprit Wind 03:57
-09. Whispering Ancestors 08:25Жанр: Native American, New Age, Ethnic FusionПродолжительность: 01:01:35
+Ashampoo Photo Commander 14 обладает всеми необходимыми инструментами и эффектами для Ваших фотографий, и даёт Вам полный контроль над Вашей фото-коллекцией. Новички и фанаты фотографии получат блестящие результаты всего несколькими кликами. Фотографии, захватывающие дыхание - мгновенно, даже на старых ПК!Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63A5CF755EE5675D3DA50741DC98D723D7D27C59
+magnet:?xt=urn:btih:F605C9259B982BCD43B8A30045EF7361DD2D40E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,25 +358,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 524614   (613520) от 18.07.2012
+###  Публикация: 1037547   (613342) от 24.07.2016
 
-[Wallpapers 16+] Gilrs Wallpaper (19.07.12)
+Weather Animated Widgets 8.10 [Ru] - Анимированный виджет погоды
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613342.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5700x3802
+Weather Animated Widgets – анимированный погодный виджет с функцией показа времени. Анимация выполнена на высоком уровне. Погода может быть показана для любого города.Тип издания: ПираткаРелиз состоялся: 24.07.16Разработчик: BVL ApplicationsПоддерживаемая ОС: Android 4.0.3 +Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1F527B6075F05133A93DC482BD5342C79A7F222
+magnet:?xt=urn:btih:60AE42BE8DFBCDD7FF6C62C29835F9D41D4CAA61
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -666,34 +384,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 523638   (613514) от 18.07.2012
+###  Публикация: 220828   (613337) от 25.07.2010
 
-Chevy Woods - Gang Land (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
+Matt Darey - @ Record Club (20-07-2010) [MP3|192 kbps]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_613337.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Speed (Prod. By Track Sounds)
-02. Vice (Feat. Juicy J & Wiz Khalifa) (Prod. By Lex Luger)
-03. Hop Out (Feat. Juicy J & Soulja Boy) (Prod. By Ham Squad)
-04. Shine (Feat. Lola Monroe & Wiz Khalifa) (Prod. By Rob Holladay)
-05. Outchea (Prod. By Sledgren)
-06. Jacksonville (Prod. By ID Labs & Ritz Reynolds)
-07. Hazelwood (Prod. By Cardo & Sledgren)
-08. U.S.A. (Prod. By Young Jerz)
-09. Ca$h (Feat. Juicy J & Soulja Boy) (Prod. By Cardo and Sledgren)
-10. Circumstances (Prod. By ID Labs)(   Читать дальше...   )Жанр: Rap, Hip-Hop |Продолжительность: 01:24:54 |
+01. Sultan & Ned Shepard feat. Dirty Vegas - Crimson Sun (Adam K Vocal Club Mix)Жанр: Trance
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D61E5A48F2553CE9FF919906045CB82E832A8263
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -701,34 +410,294 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 524382   (613499) от 18.07.2012
+###  Публикация: 524394   (613332) от 18.07.2012
 
-Комар - Пустой трамвай (2011) [MP3|320 kbps] <Rock>
+[EN] Бигфут / Bigfoot (2012) HDTVRip
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613332.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Как-нибудь (03:31)
-02. Колесо (03:23)
-03. Смертельный номер (03:12)
-04. Пропадом пропадаю (03:21)
-05. Я не пьяный (04:01)
-06. Засмотрелся Богу в окна (03:24)
-07. Моя любовь (03:57)
-08. Чернила, как кровь (04:07)
-09. Старые песни (03:55)
-10. Меня с ней нет (03:16)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:41
+Звезды поп-культуры 70-х годов прошлого века Денни Бонадьюс и Барри Вильямс соревнуются между собой в поисках легендарного горного животного.Жанр: ФантастикаРежиссер: Брюс ДэвисонАктеры: Шерилин Фенн, Андре Ройо, Элис Купер, Ховард Хессеман, Брюс ДэвисонПеревод: ОтсутствуетПродолжительность: 01:25:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:41D6C0D92071E584638FBD7022706C5D686BC6FB
+magnet:?xt=urn:btih:6B462F520551B1D30246DCB68C7A959494BC86EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524638   (613317) от 18.07.2012
+
+Royal Hunt - 2 Альбома (1993-1998) (Японское издание) [MP3|320 кб/с]<Melodic Progressive Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613317.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Clown In The Mirror (5:23)
+ 2. Guitar Solo (2:53)
+ 3. Step By Step (4:14)
+ 4. Drums And Bass Solo (4:23)
+ 5. Running Wild (6:26)
+ 6. Epilogue (9:11)
+ 7. Age Gone Wild (4:47)
+ 8. Ten To Life (5:13)
+ 9. Legion Of The Damned (4:48)
+ 10. Kingdom Dark (6:30)(   Читать дальше...   )Жанр: Melodic Progressive MetalПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A82EBBC914AF681F45D2B3CE4088D3D4AAE4EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296300   (613303) от 16.04.2019
+
+Mailbird Pro 2.5.43.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mailbird — очень интересный почтовый клиент. Простой, удобный и с набором всех необходимых функций. Был создан после закрытия проекта Sparrow и от части копирует его простой интерфейс. Цель проекта: создание и дальнейшее развитие быстрого почтового клиента с доступным интерфейсом. В функциональном плане, это простой, но полнофункциональный почтовый клиент: поддержка (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F46BA4F5C072B9AB0D8801ADB5B204D0AAD2B88C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296154   (613302) от 16.04.2019
+
+Active PKiller 1.3 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Устали от постоянного зависания приложений? Не запускается диспетчер задач Windows? Решение есть! Попробуйте Active PKiller - самую мощную и простую в использовании утилиту для уничтожения активных зависших процессов комбинацией клавиш Ctrl + Alt + F4 (и без лишних запросов на подтверждение).Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAF2569EC72E2B6679C2ACF32EB414E80DD631D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545567   (613285) от 20.04.2022
+
+Nevercenter CameraBag Pro 2022.0.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613285.jpg" />
+</div>
+
+
+###  Подробнее
+
+CameraBag позволяет мгновенно применить одну из сотен прекрасных предустановок к вашим фотографиям и видео, а затем погрузиться глубже с помощью интуитивно понятных профессиональных настроек и пользовательских предустановок. Внимание CameraBag к интуитивно понятным инструментам и рабочим процессам не сводится к простому редактированию изображений, а к тому, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.03.2022Разработчик: © 2022 NEVERCENTERПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B14942AFBDCE06979DCE3E7F781032FA0C0B9734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545607   (613271) от 20.04.2022
+
+Allavsoft Video Downloader Converter 3.24.6.8145 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter поддерживает загрузку фильмов, музыкальных видео, плейлистов, спортивных видео, лекций и многого другого с бесплатного веб-сайта для обмена видео, такого как Facebook, Dailymotion, eHow, и более 100 сайтов для обмена видео.Тип издания: macOS SoftwareРелиз состоялся: 02.04.2022Разработчик: © 2022 AllavsoftПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15918EA83CDCE6312D5BE5D43F1C9CA2C7533899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545665   (613259) от 20.04.2022
+
+NetWorker Pro 8.2.7 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613259.jpg" />
+</div>
+
+
+###  Подробнее
+
+NetWorker - это приложение, которое удобно отображает информацию о сети в строке меню. А также имеет окно с дополнительной информацией о текущем активном сетевом адаптере.Тип издания: macOS SoftwareРелиз состоялся: 20.04.2022Разработчик: © 2016-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B35FBC0AB434EF472189880F33890FB188EF7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037416   (613251) от 24.07.2016
+
+Video Editor Weave v1.3.9b [Ru/Multi] - удобный минималистический видеоредактор
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный и минималистический видеоредактор + интеграция с Journey. Weave это новый способ записи и сшивания фрагментов ваших моментов в короткое время, видео монтаж в формате высокой четкости. Редактируйте и улучшайте видео с необходимыми инструментами. Создание различных настроений с 60 великолепных пресетами. Превратите свой видео в произведения искусства, выбрав (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 30.12.2015Разработчик: Two App Studio Pte. Ltd.Поддерживаемая ОС: Android 4.3+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64606587241D0FE0744A67F9840844955808C3FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037421   (613250) от 24.07.2016
+
+Манхэттенская ночь / Manhattan Night / Manhattan Nocturne  (2016) BDRip [H.264/1080p] [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613250.jpg" />
+</div>
+
+
+###  Подробнее
+
+С просьбы соблазнительной незнакомки разобраться в нераскрытом убийстве ее мужа начинается неприятная история сексуальной одержимости и шантажа, которая может стоить журналисту Портеру Рену его работы, семьи и даже жизни.Производство: США, DeCubellis Films, Untravelled Worlds, Fable House, Nocturne Pictures, Big Indie PicturesЖанр: триллер, драма, криминал, детективРежиссер: Брайан ДеКьюбелисАктеры: Ивонн Страховски, Эдриан Броуди, Дженнифер Билз, Линда Лавин, Кэмпбелл Скотт, Стивен Беркофф, Кевин Брезнахан, Амели МакКендри, Томас Баир, Мария-Кристина Оливерас, Уилл Бейнбринк, Чинаса ОгбуагуПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4FDCBD6024B39E48975F0C377051E73510EDE7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037512   (613239) от 24.07.2016
+
+Microsoft Office 2013-2016 C2R Install 5.8 Full | Lite by Ratiborus [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа предназначена для on-line установки и активации Office 2013/2016 C2R. Так же имеется возможность создать свой дистрибутив Office для последующей установки Office off-line.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88324AC34F4A7252ED7A221BCF333B0669D67028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 221495   (613221) от 25.07.2010
+
+Rebekka Bakken - Is That You? (2005) [FLAC|Lossless]<Jazz/ Folk/ Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_613221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Jazz/ Folk/ PopПродолжительность: 00:46:26
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

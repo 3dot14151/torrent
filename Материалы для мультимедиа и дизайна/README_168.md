@@ -1,3 +1,111 @@
+###  Публикация: 1035277   (628426) от 16.07.2016
+
+Экшены - CreativeMarket - Bubble Photoshop Action [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bubble - экшен для Вашего творчества.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:802FB13FADF08687E140FE5888576CD46C09D432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035325   (628418) от 16.07.2016
+
+Экшены - GraphicRiver - Hand Draw Photoshop Action [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hand Draw - экшен для Вашего творчества.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB18E47F6E13CEB1C6A52D64C79323DE3501A4C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035319   (628408) от 16.07.2016
+
+Экшены - CreativeMarket - Dream Lights Photoshop Action [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dream Lights - экшен для Вашего творчества.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E743EE2B4159EE996E1E653546557D12106202D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520068   (628319) от 10.07.2012
+
+Шаблоны сайта - Расширение JCE Editor для joomla 1,5, 1.6, 1.7, 2.5 + платные плагины
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628319.jpg" />
+</div>
+
+
+###  Подробнее
+
+JCE это Javascript HTML WYSIWYG редактор.
+Один из самых популярных редакторов, ОСУ удобный и мощный редактор для редактирования вашего сайта.
+Позволяет управлять медиа и файлами, есть административный интерфейс управления конфигурацией редактора.
+В данном релизе представлена версия для Joomla 1.6 -1.7, Но также может работать и на joomla 2,5! (Лично у меня работает)
+В раздачу включены платные расширения: jce_filemanager, jce_mediamanager, jce_templatemanager, jce_imgmanager_ext, jce_iframe, jce_fullpage, jce_emotions, jce_caption, а так же плагин plg_jcemediabox + русский язык для самого редактора и всех плагинов.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C20A9F64958FD0DFB0011E521B7778F5FC46369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035318   (628318) от 16.07.2016
 
 Экшены - GraphicRiver - Pure Photoshop Action [ATN, ABR]
@@ -584,110 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DFE2DDFE05A5FC14583CC7C9D842F6281F7917C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035921   (624648) от 18.07.2016
-
-Экшены - GraphicRiver - DJ Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624648.jpg" />
-</div>
-
-
-###  Подробнее
-
-DJ - экшен для Вашего творчества.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD158E7509A869B908297FE25418C3220FF8BD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035927   (624569) от 18.07.2016
-
-Экшены - GraphicRiver - Water Reflection PS Action [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Water Reflection- экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40221682027FE237F14B20963F343FC004B48944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035888   (624568) от 18.07.2016
-
-Экшены - GraphicRiver - Music Notes Photoshop Action V03 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Замечательный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25AE3B09D19AD89B1FDA1281BDA54591184FC50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035893   (624482) от 18.07.2016
-
-Шаблоны - Elegantflyer - Hair Style – Tri-Fold PSD Brochure Template [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двух-сторонняя складывающая рекламная брошюрка, портфолио.Формат: PSDРазрешение файлов: 3657х2631 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37123B7BA5CC454675D71040D1363638A85DF701
 ```
 
 https://mybot314.ru/tekegram_catalog/

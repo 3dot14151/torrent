@@ -1,3 +1,58 @@
+###  Публикация: 1525047   (129078) от 22.01.2022
+
+Windows 10 Enterprise LTSC 21H2 (Build 19044.1466) x64 by Brux [Ru]
+
+>>След.
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка windows 10 выполнена на основе оригинальных образов Microsoft Windows 10.0.19044.1288 Version 21H2 (2021 Update) (MSDN). Предназначена как для домашних пользователей, так и для рабочих станций, где требуется минимальное отклонение от оригинала. Все изменения в сборке производились исключительно при помощи DISM.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8F96A8C37902CB6CD9CE41F8033FC34523A7CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824644   (128814) от 15.10.2025
+
+Windows 10 Enterprise LTSC 2021 21H2 19044.6456 (Updated October 2025) by FaTaL [Ru]
+
+>>След.
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборки основаны на официальных образах MICROSOFT MSDN (дата выпуска: ноябрь 2021):
+ru-ru_windows_10_enterprise_ltsc_2021_x86_dvd_cdf355eb.iso
+ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7.iso
+(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF9C392A6BA0D14D30FD960E16B6C0CB2AB779F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686012   (126839) от 21.12.2023
 
 Windows 10 22H2 (19045.3803) x64 (3in1) by Brux [Ru]

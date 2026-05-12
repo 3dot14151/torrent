@@ -1,3 +1,88 @@
+###  Публикация: 461540   (903884) от 29.02.2016
+
+Armin van Buuren - The Music Videos 1997-2009 (2010) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Say Never (Feat. Jacqueline Govaert)
+02. Fine Without You (Feat. Jennifer Rene)
+03. Unforgivable (Feat. Jaren)
+04. In And Out Of Love (Feat. Sharon Den Adel)(   Читать дальше...   )Производство: TME/Open Gate Records, Armada Music BVЖанр: TranceПеревод: ОтсутствуетПродолжительность: 01:02:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:017C1CA2EE3F3BD7F5414E9F153D2433EDB4F99A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 636585   (903290) от 29.03.2013
+
+Сборник видео Адриано Челентано / Adriano Celentano Videos (до 2012 года включительно) DVD5 from WEBRip
+
+>>След.
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляемый диск несколько необычен. Как правило, я не выкладываю то, что делаю для себя, но в данном случае это правило было нарушено. Ну не мог не поделиться!
+Фигура Челентано стоит особняком среди большой массы популярных (в свое время) итальянских певцов. И не только потому, что он еще и талантливый артист, снявшийся в огромной массе фильмов (часть из них, (   Читать дальше...   )Жанр: Italian Music
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A853BE58A3FDCA13E8243A7C02E3CFA4E898388E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099559   (903049) от 02.02.2017
+
+Olga Vels - The Sound Of Love (2017) WEBRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Olga Vels весьма одарённая молодая девушка (и по секрету - очень красивая) родилась в г. Новосибирске, проживает Радонеж Московская обл. В её клипах идеальное сочетание сентиментальности и энергетики, интеллекта и эмоций, высокого исполнительского мастерства и элегантной манеры исполнения. Все клипы на мой взгляд освящены целительной энергией солнечного света. Наполненные (   Читать дальше...   )01. Dead Can Dance - The Snake And The Moon [06:11]
+02. Submotion Orchestra - Hard To Stay [03:56]
+03. Fever Ray - Dry and Dusty [03:45]
+04. Enigma - Temple of Love - Erotic Dreams [04:40](   Читать дальше...   )Производство: РоссияЖанр: Ambient, Chillout, New Age, LoungeРежиссер: Olga Vels (клипмейкер)Продолжительность: 04:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A36ECA2C431B730E66F82A37CABA8AC6E344D1FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 637061   (902628) от 30.03.2013
 
 Nells - Watch My Body (2013) WEBRip [H.264/1080p]
@@ -606,89 +691,6 @@ Anna Cyzon - Into The Sun (2013) WEBRip [H.264/720p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1F81366F46BAB2CE6DA37F3230E32FCA3B51156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370582   (893489) от 29.03.2020
-
-Трупный Яд - Чума (Black Death) (2020) WEBRip [H.264/1080p-LQ] <Thrash>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоклип (2020) Трупный Яд - Чума (Black Death) Vayper
-CDA Трупный Яд - 1995 - О.В.О. При О.В.ДЖанр: ThrashПродолжительность: 00:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6172C9E1F13EB6FC615E8B4132265310BD3488DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370684   (893417) от 29.03.2020
-
-Skrik - Апофеоз (COVID-19. Коронавирус, Италия) (2020) WEBRip [H.264/1080p-LQ] <Hardcore, Crust-Punk>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоклип Skrik - Апофеоз (COVID-19. Коронавирус, Италия)
-CDA Skrik (2020) Жупелъ ЕP (Hardcore, Crust, Россия)Производство: СМЕРЧ-ИНФОЖанр: Hardcore, Crust-PunkПродолжительность: 00:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E222BC7E2F4021C36C0F1DE87CF960CD884796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993716   (893177) от 06.03.2016
-
-VA - Весенний марафон № 226: Хиты до Утра (2016) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весенние (05.03.2016) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. Guard - Give It Up (Official Video) (00:03:14)
-02. Jana Kramer - Said No One Ever (Official Video) (00:03:00)
-03. Kat DeLuna ft. Jeremih - What A Night (Official Video) (00:03:02)
-04. Nicole Cherry - Cine iubeste (Official Video) (00:03:34)(   Читать дальше...   )Жанр: Pop, Dance, Latino, House, Reggae, Rap, Hip-HopПродолжительность: 01:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51C1CB2952041FC9EF3E0E4237C3D1843D363E98
 ```
 
 https://mybot314.ru/tekegram_catalog/

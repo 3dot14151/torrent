@@ -1,3 +1,32 @@
+###  Публикация: 1460989   (1021770) от 10.04.2021
+
+VA - TOP 40 Ремиксы PROMODJ АПРЕЛЬ 2021 (2021) [MP3|320 Kbps] <EDM, Dance, Electro, Pop, Trance, House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Юлия Морозова & Vasiliy Arefiev - А дождь не проходит (Nikolay Lavrentiev remix)
+02.Юлия Долотова - Моя планета ( Udaw Remix )
+03.Тимур Timbigfamily Девочка Хайп (M-DimA Remix)
+04.Тимур TIMBIGFAMILY - Неровно дышу (OST «Внук») (Eddie G Remix)(   Читать дальше...   )Жанр: Remix, Dance, ElectroПродолжительность: 02:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB32A9839296DCAA08B854C1DA53F7E3EA86980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461797   (1021639) от 11.04.2021
 
 VA - Beatport Techno Electronic: Sound Pack #270 (2021) [MP3|320 Kbps] <Techno, Electro>
@@ -716,35 +745,6 @@ VA - Record Super Chart 24.04.2021 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBCEDE0A22783156985E8FA9F0EC20D448C527B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465651   (1018867) от 27.04.2021
-
-VA - Крутые пушки Весна 2 2021 [MP3|320 Kbps] <Club, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATB - Let U Go 2021 (DJ Nick White Remix) (5:15)
-02. David Guetta feat. Kid Cudi - Memories (Jenia Smile Ser Twister Extended Remix) (4:11)
-03. Morandi feat. Helene - Save Me (Jenia Smile Ser Twister Extended Remix) (4:11)
-04. Akon Eminem x Frost amp Twistsound x Butesha amp Vlad Kuzmenko - Smack That (Danil Siyanov Mash Up Radio Edit) (3:02)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 07:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:966142C990B176D4DAF6010AC3579C1DB8C94789
 ```
 
 https://mybot314.ru/tekegram_catalog/

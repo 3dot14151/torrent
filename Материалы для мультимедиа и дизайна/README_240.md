@@ -1,3 +1,107 @@
+###  Публикация: 562595   (405537) от 19.10.2012
+
+Digital Juice - Jump Backs SD 27: International Flags (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Juice Jump Backs - коллекция высококачественных бесшовных анимированных фонов посвященных разным тематикам продолжительностью 10-30 секунд.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD7D85D0FF8C389D0B7680C70D53D766411DCFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562554   (405535) от 19.10.2012
+
+Digital Juice - Jump Backs SD 55: Drift Away I (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Juice Jump Backs - коллекция высококачественных бесшовных анимированных фонов посвященных разным тематикам продолжительностью 10-30 секунд.Разрешение файлов: 720х576
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CCB070691ACB7E8325555F98E7F18FDBF0F42D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562581   (405530) от 19.10.2012
+
+Digital Juice - Jump Backs SD 39: Base Camp II (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Juice Jump Backs - это сборник включающий анимированные фоны различных тематик, которые являются идеальными для выделения текста и графики и могут быть использованы в любой программе видеомонтажа. Все клипы бесшовные, каждый примерно 15-30 секунд.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:175F09063FA3D459FF4E712B510D6315C1A4326B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562560   (405505) от 19.10.2012
+
+Digital Juice - Jump Backs SD 50: Fresh Crawl (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Juice Jump Backs - коллекция высококачественных бесшовных анимированных фонов посвященных разным тематикам продолжительностью 10-30 секунд.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F865AD28E744AAAF256AB2BAD1D5303C1A1F17B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562607   (405475) от 19.10.2012
 
 Digital Juice - Editor's Themekit 100: Medicinal Effects (Full ISO)
@@ -575,113 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED989182264F370E59615938AA3451B7E2B95FBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169135   (403941) от 26.09.2017
-
-Шаблоны - Осеннее волшебство [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Календарь с фоторамкой на 2018 год
-Автор: KoaressФормат: PSDРазрешение файлов: 3508x4961
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:446DAC9C14E32D8856FD44F23BF5CB318F1D3329
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169411   (403114) от 27.09.2017
-
-Растровый клипарт - Autumn Gold #3 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт осень золотая на прозрачном фонеФормат: PNGРазрешение файлов: 134x680-4522x1574
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:602ABB254ED045F9144032AD80DA681011920C4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169397   (403099) от 27.09.2017
-
-Шаблоны - Старый парк [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Календарь с фоторамкой на 2018 год
-Автор: KoaressФормат: PSDРазрешение файлов: 3508x4961
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE39C5D204A6A7B132974CC5799EE6E1C54D075A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169392   (403066) от 27.09.2017
-
-Шаблоны - Дыхание осени [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Календарь с фоторамкой на 2018 год
-Автор: KoaressФормат: PNGРазрешение файлов: 4961x3508
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FDD58BEFE6F203931C11C68F6B9B48C8DE695B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

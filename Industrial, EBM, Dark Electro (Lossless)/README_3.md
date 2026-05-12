@@ -1,3 +1,32 @@
+###  Публикация: 1545596   (609511) от 22.04.2022
+
+Death Loves Veronica - Corruption for the Insidious (2022) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Gothic, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - In the Night Comes Evil (00:02:44)
+02 - When I Was Dead (00:04:34)
+03 - Whore (00:05:20)
+04 - Hate Me (00:04:35)(   Читать дальше...   )Жанр: Darkwave, Gothic, IndustrialПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BA8D04D09BBB678277EEEA1AE9A3D6BC6360AF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546146   (609507) от 22.04.2022
 
 IC3PEAK - Kiss Of Death (2022) [FLAC|Lossless|WEB-DL|tracks] <Coldwave, Darkwave, Witch House>
@@ -722,35 +751,6 @@ Karloz Manufactura (Broken Fabiola, Industria Secundaria, Stranger Dreams) - 25 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:353214F1D7DBC30BD726563B394B87C96D1C9F09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245406   (471908) от 06.09.2018
-
-Blakk Harbor - Madares (2018) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Experimental, Tribal, Industrial, Ambient, Drone, Techno>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunken (04:38)
- 02. Moondrone (04:57)
- 03. Eastern Trails (05:47)
- 04. Sacred Grounds (06:20)(   Читать дальше...   )Жанр: Experimental, Tribal, Industrial, Ambient, Drone, TechnoПродолжительность: 00:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:852396ADF0A73962E83BECAF41B2FF32570BFE91
 ```
 
 https://mybot314.ru/tekegram_catalog/

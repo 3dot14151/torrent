@@ -1,25 +1,25 @@
-###  Публикация: 1226246   (657086) от 19.05.2018
+###  Публикация: 903476   (657983) от 31.05.2015
 
-VA - Trance Favorites Episode 013 (2018) [MP3|320 Kbps] <Trance>
+Thurisaz - The Pulse of Mourning (2015) [FLAC|image+.cue]<Melodic Death/Progressive/Black Metal>
 
->>Electronic
->>Trance
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657983.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dominik Von Francois - 100 States Of Trance (Cosmic Heaven Remix)
-02. Samvel - Arctic Echoes (Mosahar Remix)
-03. AQUADREAMR - Existential (Original Mix)
-04. Noize Compressor - Black & Chrome (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:15:33
+01. Longing... (3:06)
+02. ...For A Change (2:39)
+03. Patterns of Life (7:00)
+04. Rays of Light (6:25)(   Читать дальше...   )Жанр: Melodic Death/Progressive/Black MetalПродолжительность: 00:44:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8EA8B6FFC69AB6353AE5A0278BF740CB261C5543
+magnet:?xt=urn:btih:1A6928972184BD04F9A2778AD35AB2E453283C0B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,105 +27,22 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226206   (657085) от 19.05.2018
+###  Публикация: 903421   (657982) от 31.05.2015
 
-Vaccine - Decryption (2014) Auxiliary Transmissions [FLAC|Lossless|WEB-DL|tracks] <IDM, Abstract, Downtempo, Experimental>
+Власти Великобритании намерены ужесточить наказание за интернет-троллинг
 
->>Архив торрентов
->>Архив Музыки
+>>Поговорим
+>>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657982.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Decryption (05:11)
- 02. Bad Habit (04:29)
- 03. Nurse (04:57)
- 04. Electrolyte (Decryption Part 2) (04:45)Жанр: IDM, Abstract, Downtempo, ExperimentalПродолжительность: 00:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:808C540498802C1D4E7C9AFCF4C3E2F5A329E322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226048   (657084) от 19.05.2018
-
-От группы Благоева к «Союзу Борьбы» [1886-1894 гг.] (1921) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Статьи и воспоминания: К. М. Норинского, В. А. Шелгунова, В. Невского, М. Ольминского. Материалы по делу М. И. Бруснева и Юв. Мельникова. Речи рабочих 1 мая 1891 г.Жанр: История, политология, публицистика, документалистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E72034B1C6F4315D2A1DBF01B6FE725B257106
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225834   (657083) от 19.05.2018
-
-Хоккей. НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Восточной конференции. 2-й матч. Тампа-Бэй Лайтнинг – Вашингтон Кэпиталз (13.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657083.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 мая 2018 года, понедельник. 03:00 МСК
-НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Восток. 2-й матч
-Тампа-Бэй Лайтнинг – Вашингтон Кэпиталз
-Стадион: Амали-Арена (Тампа, США), 19092 зрителя (98 % при вместимости 19500)(   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:57:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F270DFBC879EC27947BC6360F0FBCE5403DADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226164   (657082) от 19.05.2018
-
-Журнал | Elle Decoration [France] №263 (июнь 2018) [PDF] [Fr]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пользующийся большой популярностью журнал "Elle Decoration" - замечательный и полезный интернациональный журнал о современном интерьере. Для тех, кто думает о перестройке и обустройстве дома, журнал будет помощником в области качественных материалов и тенденций интерьерной моды. В любом номере — дизайнерские новости, демонстрация лучших дизайн-объектов (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
+В Великобритании за троллинг будут сажать в тюрьму на два года
+Правительство Соединённого Королевства подготовило законопроект, который увеличивает срок тюремного заключения за интернет-троллинг до двух лет. Сейчас те, кого привлекают к ответственности за хулиганство в сети, проводят за решёткой в среднем чуть более двух месяцев. Политолог Ричард Спенсер убеждён, (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -137,371 +54,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226086   (657081) от 19.05.2018
+###  Публикация: 903470   (657981) от 31.05.2015
 
-Хоккей. НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Западной конференции. 3-й матч. Вегас Голден Найтс – Виннипег Джетс (16.05.2018) WEB-DL [H.264/1080p-LQ]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657081.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 мая 2018 года, четверг. 04:00 МСК
-НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Запад. 3-й матч
-Вегас Голден Найтс – Виннипег Джетс
-Стадион: Ти-Мобайл Арена (Парадайс, США), 18477 зрителей (99 % при вместимости 18693)(   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:56:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226034   (657080) от 19.05.2018
-
-Dave Brubeck - Interchanges '54 (1991) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audrey
-02. Jeepers Creepers
-03. Pennies From Heaven
-04. Why Do I Love You(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570B1331275DC10BD61D0204B8ADEB2F8BADFA88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226032   (657079) от 19.05.2018
-
-Хоккей. НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Восточной конференции. 3-й матч. Вашингтон Кэпиталз – Тампа-Бэй Лайтнинг (15.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657079.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 мая 2018 года, среда. 03:00 МСК
-НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Восток. 3-й матч
-Вашингтон Кэпиталз – Тампа-Бэй Лайтнинг
-Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18506 зрителей (100 % при вместимости 18506)(   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:56:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8DB6CADE71B136B643222A51590A02B9A2F5E9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226145   (657078) от 19.05.2018
-
-Хоккей. НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Восточной конференции. 4-й матч. Вашингтон Кэпиталз – Тампа-Бэй Лайтнинг (17.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657078.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 мая 2018 года, пятница. 03:00 МСК
-НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Восток. 4-й матч
-Вашингтон Кэпиталз – Тампа-Бэй Лайтнинг
-Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18506 зрителей (100 % при вместимости 18506)(   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226274   (657077) от 19.05.2018
-
-VA - Kaimo K - Call It What It Is - Best Of (2018) [MP3|320 Kbps] <Trance>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaimo K & Sue McLaren - Call It What It Is
-02. Audrey Gallagher & Kaimo K - Lullaby
-03. Beat Service & Ana Criado - An Autumn Tale (Kaimo K Remix)
-04. Kaymo K - Uncharted(   Читать дальше...   )Жанр: TranceПродолжительность: 05:26:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226103   (657076) от 19.05.2018
-
-Hubert Laws - Say It With Silence (1978) 2016, Sony Music [FLAC|Lossless|image + .cue] <Smooth Jazz, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Baron [05:55]
-02. False Faces [06:20]
-03. Love Gets Better [05:09]
-04. It Happens Everyday [07:42](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D35A5B9AC36DC8C3FF7362AC110D7308870AE205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226153   (657075) от 19.05.2018
-
-VA - Black Hole Trance Music 05-18 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christina Novelli & HAKA - Worlds Collide (Extended Mix)
-02. Clef & Canberra - Wonder Years (Extended Mix)
-03. Marcus Santoro - Whispers (Extended Mix)
-04. Dennis Sheperd & DIM3NSION - Amigos (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E061AB79944B5C43B1B1D972579699325C8A67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226208   (657074) от 19.05.2018
-
-raison d'être - Alchymeia (2018) Cyclic Law [FLAC|Lossless|tracks+.cue] <Ambient, Dark Ambient, Drone>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nigredo (17:17)
- 02. Albedo (17:51)
- 03. Citrinitas (17:25)
- 04. Rubedo (18:27)Жанр: Ambient, Dark Ambient, DroneПродолжительность: 01:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F7DEFE43CB7E68EB1BBD5F4123153CFECC2B5B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226198   (657073) от 19.05.2018
-
-VA - Markus Schulz & Arkham Knights - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz:
-01. DT8 Project - ClimbЖанр: Trance,Progressive TranceПродолжительность: 02:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F08BB4C255A2EC360A8B4134D78EC849128027DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226222   (657072) от 19.05.2018
-
-VA - Aly & Fila - Future Sound of Egypt 548 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amari & Nico Morano feat. Jinadu - Desire (Eelke Kleijn Extended Remix)
-02. Darin Epsilon - Niflheim (Original Mix)
-03. Matter - Star. Rock. (Lanvary Remix)
-04. SEQU3L - Jelly Bell (Paul Angelo & Don Argento Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58500E38A0E48EA2F73FD052C5BD124BF61C5897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226197   (657071) от 19.05.2018
-
-subtractiveLAD - Everything We Failed to Be (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, IDM, Electro>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything We Failed to Be (05:28)
- 02. Ex-Libertine (04:32)
- 03. Around the Edges (05:34)
- 04. Cheekbones (07:01)(   Читать дальше...   )Жанр: Techno, IDM, ElectroПродолжительность: 01:12:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226175   (657070) от 19.05.2018
-
-Газета | 1000 секретов [Украина] №9 (май 2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657070.jpg" />
-</div>
-
-
-###  Подробнее
-
-«1000 секретов» - это полная энциклопедия домашнего хозяйства, в которой можно найти советы на все случаи жизни: по обустройству квартиры, по уходу за собой и растениями, о взаимоотношениях в семье, кулинарные рецепты и схемы вязания, а также многие другие. Перед вами издание, которое не только собирает по крупицам народную мудрость, но и дает возможность каждому (   Читать дальше...   )Жанр: Народные советыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:880D3E90F4FC9F6592492EBD169C385AE67079CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226104   (657069) от 19.05.2018
-
-VA - German Top 100 Single Charts 18.05.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
+VA - Billboard Hot 100 Singles Chart 06th June (2015) [MP3|256-320 кб/с]<Hip-Hop, Country, EDM, Synthpop, Electro-R&B>
 
 >>Неофициальные сборники
->>Pop (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657981.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Capital Bra - Neymar (feat. UFO361)
-002. Calvin Harris & Dua Lipa - One Kiss
-003. Michael Schulte - You Let Me Walk Alone
-004. Gzuz - ¿ Warum ?(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:44:46
+01. Taylor Swift - Bad Blood (Feat. Kendrick Lamar) 03:19
+02. Wiz Khalifa - See You Again (Feat. Charlie Puth) 03:49
+03. Fetty Wap - Trap Queen 03:42
+04. Walk The Moon - Shut Up And Dance 03:17(   Читать дальше...   )Жанр: Hip-Hop, Country, EDM, Synthpop, Electro-R&BПродолжительность: 06:05:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:048FA8B89610A142A0693676619C06489DDAB877
+magnet:?xt=urn:btih:0C1352D1B5400D18669DB5AD3783B875CCD824EA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -509,25 +83,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226163   (657068) от 19.05.2018
+###  Публикация: 903657   (657980) от 31.05.2015
 
-Журнал | Elle Decoration [Россия] №6 (25) (июнь 2018) [PDF]
+Luciferian Light Orchestra - Luciferian Light Orchestra (2015) Limited Edition [MP3|320 кб/с]<Occult Rock, Hard Rock>
 
->>Журналы
->>Домоводство (журналы)
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657980.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Elle Decoration" является источником вдохновения для ведущих дизайнеров и декораторов мира. Для людей, задумывающихся о строительстве и обустройстве дома, он служит путеводителем в мире современных материалов и тенденций интерьерной моды. В каждом номере — архитектурные новости, выбор лучших дизайн-объектов и знакомство с их создателями, практические советы (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
+Группа создана лидером шведской симфо-металл группы01. Dr. Faust on Capri
+02. Church of Carmel
+03. Taste the Blood of the Altar Wine
+04. A Black Mass in Paris(   Читать дальше...   )Жанр: Occult Rock, Hard RockПродолжительность: 00:38:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6EB3BDA4980D78FC2A6E492CB8E5FDCB3C214B50
+magnet:?xt=urn:btih:B1A4425F5D14108E93EC0E04BE989064C9EA544C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -535,26 +112,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485629   (657067) от 26.03.2022
+###  Публикация: 514871   (657975) от 24.06.2012
 
-Алессандро Гатти | Приключения Клинкуса в городе на деревьях [5 книг] (2021-2022) [FB2, EPUB, MOBI]
+Рассмеши комика Россия. Сезон №1. Выпуск №8 (2012.06.24) SATRip
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Архив торрентов
+>>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657975.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга 1. История о погасших огнях. ISBN: 978-5-04-156380-6. Год: 2021.
-Клинкус Кора не мог и представить, что однажды окажется… в таинственном городе на деревьях! Здесь очень здорово: Листвянка необычайно красивая, а горожане очень дружелюбные. Уже много лет жители секретного города используют слёзы дракона для его освещения, ведь это безопасно и очень удобно. Но (   Читать дальше...   )Жанр: Детская литература/ФантастикаПеревод: Лариса ЗолоеваФормат: FB2, EPUB, MOBI
+Новая развлекательная программа, в которой любой человек, уверенный, что обладает комическим талантом, имеет возможность заработать миллион рублей… за пять минут! Участникам программы предстоит рассмешить не кого-нибудь, а тех, кто всю жизнь шутит профессионально - Максима Галкина и Владимира Зеленского! Игра проходит в пять этапов. Каждый этап длится всего одну минуту. На каждом этапе участник имеет возможность отказаться от дальнейшей борьбы и забрать свой текущий выигрыш в пять, двадцать пять, сто или двести пятьдесят тысяч рублей. Пятая решающая минута стоит миллион!
+Если за это время хотя бы один из комиков не удержится от смеха - выигрыш у участника в кармане! Увильнуть от выплаты заслуженного гонорара у Галкина и Зеленского не получится - за их мимикой внимательно следит хладнокровный рефери Роман Емельянов. От него не утаится ни смех, ни ухмылка, ни даже движение бровей комиков!..Жанр: Тв-Шоу, ЮморПродолжительность: ~ 00:32:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8CF574ED5C57A663407463E7D7B6722B9514F4C4
+magnet:?xt=urn:btih:6A5E1666FFB831D038FC47E6958A502064FD195A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -562,21 +139,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539707   (657066) от 26.03.2022
+###  Публикация: 514817   (657972) от 24.06.2012
 
-Bigasoft Total Video Converter 6.4.2.8118 RePack (& Portable) by TryRooM [Multi/Ru]
+Видео-приложение к журналу "Рыбачьте с нами". Выпуск № 35. Июль 2012 (2012) DVDRip
 
->>нет
->>нет
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657972.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Bigasoft Total Video Converter - мощный видеоконвертер, позволяющий конвертировать практически любые видеофайлы в различные форматы. Программа распознает свыше 40 видео и аудио форматов и поддерживает конвертирование между свыше 30 форматами (AVI, Xvid, DivX, H.264, MP4, 3GP, MKV, WMV, RM, FLV, MOV, WebM, VP8, 720p, 1080p, 1080i HD, AVCHD видео и многими другими). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Очередной выпуск видео-приложения к журналу "Рыбачьте с нами" за Июль 2012 года.
+1. Россия - Чемпион (Польша, май 2012 г.) 2. Ловля фидером с приманкой на волосяной оснастке. 3. Понемногу обо всем. 4. Рыбалка на Кольском-3.5. На горных реках Кавказа. 6. Рыбалка без границ-3 (реки Монголии, таймень, хариус, ленок). 7. Рыболовный магазин на диванеЖанр: Документальный, Видовой, СпортПеревод: Не требуетсяПродолжительность: 01:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B3EAC10239B0124B89ED9F88ED3E19A1272AF18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514850   (657971) от 24.06.2012
+
+BBC: Горная горилла / BBC: Mountain Gorilla (2010) BDRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657971.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сердце Африки, растянувшись по границам Руанды, Уганды и Конго пролегает горное царство. Это дом для последних в мире 700 горных горилл. Больше 50-ти лет они становятся жертвами перекрестного огня в жестокой гражданской войне, подогревающейся постоянно растущим людским населением. Однако им удается выживать под постоянным наблюдением специальной группы людей. Ученые установили камеры и получили привилегию изучать секреты существования этих животных.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3 серии ~ 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEAEB1061DE5D5DC6F495EB01FA65EB4ECA01A85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514814   (657969) от 24.06.2012
+
+Алые паруса 2012 (2012.06.23) IPTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657969.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ночь с 23 на 24 июня 2012 года в Санкт-Петербурге состоялся самый романтический праздник лета – «Алые паруса». Это торжество стало одним из знаковых событий жизни Северной Пальмиры. В самую светлую из белых ночей в акваторию Невы вошёл корабль-мечта под алыми парусами – символ надежды, исполнения желаний и яркого будущего. Торжественные мероприятия развернулись (   Читать дальше...   )Жанр: Концерт, ТВ-ШоуПродолжительность: 03:13:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4629ACDD89C263A8AF7380058A8A058122E4FC0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514455   (657968) от 24.06.2012
+
+Laurindo Almeida, Salli Terri, Martin Ruderman - Duets With Spanish Guitar (1990) [FLAC|Lossless]<Classical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ibert - Entr'acte [03:16]
+02. Villa-Lobos - Bachianas brasieleiras No. 5  - Aria [05:57]
+03. Desportes - Ronde [02:04]
+04. Ovalle - Azulco [01:31]
+05. Chopin - Prelude in E minor, Op. 28 No. 4 [02:18]
+06. Almeida - O Cacador [01:51]
+07. Desportes - Pastorale joyeuse [02:41]
+08. Ovalle - Tres pontos de santo [04:10]
+09. Gossec - Tambourin [01:31]
+10. Henrique - Boi-Bumba [01:39](   Читать дальше...   )1990Жанр: ClassicalФормат: CDПродолжительность: 00:55:41
 
 ## Скачать торент
 ```bash
@@ -588,27 +253,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539594   (657065) от 26.03.2022
+###  Публикация: 513486   (657967) от 24.06.2012
 
-Хоккей. НХЛ 2021-2022. Вашингтон Кэпиталз - Баффало Сэйбрз (25.03.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+Gustaf Hildebrand (+ Lithium & Lacus Somniorum) - 6 albums (2003-2012) [FLAC|Lossless] <Dark Ambient, Drone, Noise, Industrial, Experimental>
 
->>Спорт и активный отдых
->>Хоккей
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657967.jpg" />
 </div>
 
 
 ###  Подробнее
 
-26 марта 2022, суббота. 02:00 МСК
-Стадион: Кибэнк-центр (Баффало, США), 9 740 зрителей (51% при вместимости 19 070)
-Главный судья: Иэн Уолш (Филадельфия, США); Главный судья: Жан Эбер (Монктон, Канада)Телекомпания: NBCS-WAЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:01:51
+01. Cataclysmic Variable (06:26)
+02. Array (05:04)
+03. Nomadic Singularity (06:04)
+04. Heterodyne (05:40)
+05. Manifold (05:06)
+06. Decaying Orbit (05:39)
+07. Nucleus (05:42)
+08. Accretion (06:17)
+09. Vacuum Geometry (06:04)2003-2012Жанр: Dark Ambient, Drone, Noise, Industrial, ExperimentalПродолжительность: 00:52:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A1393F8CCC8EECE8F61EDDD06C1D86150486700
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -616,25 +287,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536362   (657064) от 26.03.2022
+###  Публикация: 514582   (657966) от 24.06.2012
 
-Мадам Бовари / Madame Bovary (1991) BDRip [H.264] [DVO]
+Игрушечные солдатики / Toy Soldiers (1991) HDTVRip
 
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657966.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Экранизация одноимённого романа Гюстава Флобера. История Эммы Бовари — конфликт идеализированной, «книжной» (в понимании главной героини) жизни и суровой реальности. Не сумев смириться с отягощающей, скучной и бессмысленной судьбой, она ввязывается в череду опасных и дерзких поступков, которые приводят к трагическому финалу…Производство: Франция, Canal+ (fr), CED Productions, Conseil Général de l'Eure...Жанр: драма, мелодрамаРежиссер: Клод ШаброльАктеры: Изабель Юппер, Жан-Франсуа Бальмер, Кристоф Малавуа, Жан Янн, Люка Бельво, Кристиана Минаццоли, Жан-Луи Мори, Жан-Клод Буйо, Саблен Кампо, Флоран ГибассьеПеревод: профессиональный двухголосыйСубтитры: нетПродолжительность: 02:22:38
+Когда учащиеся элитарного колледжа взяты в заложники южноамериканскими террористами, им ничего не остается, как вступить в смертельную схватку. Сержант армии встает во главе отряда студентов в их отчаянной попытке противостоять террору.Жанр: Боевик, Триллер, ДрамаРежиссер: Дэниел Питри мл.Актеры: Шон Эстин, Уил Уитон, Кит Куган, Эндрю Дивофф, Р. Ли Эрми, Мейсон Эдамс, Денхолм Эллиот, Луис Госсет мл., Джордж Перес, Т. Э. РасселПеревод: Профессиональный (двуголосый, закадровый)Продолжительность: 01:47:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31FAABDDA9888884D77C675D0EFCF5D00A49088A
+magnet:?xt=urn:btih:8D448617374EAA8758952CE451EDF13AAC921B04
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -642,80 +313,433 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539628   (657063) от 26.03.2022
+###  Публикация: 514762   (657963) от 24.06.2012
 
-PixPlant 5.0.40 [En]
+Юлий Даниэль | Говорит Москва [2010] [MP3]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть-антиутопия Говорит Москва, рассказывающая о введении в СССР Указом Президиума Верховного Совета Дня открытых убийств, единодушном одобрении инициативы со стороны трудящихся масс и непросто дающемся отдельным гражданам неприятии чудовищного праздника.Жанр: Фантастика, антиутопия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9CE35332F57E4AD2DAA5CDF80E27C235395E42F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514787   (657962) от 24.06.2012
+
+VA - Goa Culture Vol. 6 (2 cd) (2012) [MP3|320 кб/с]<Psychedelic / Progressive, Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657962.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Продолжительность - 01:13:32
+
+ 01. Zyce & Flegma - Underwatch 7:10
+ 02. Nerso - Desert Oasis 7:24
+ 03. Lyctum - Chance to Change 8:11
+ 04. Zyce - Seconds Minutes Hours 7:52
+ 05. Middle Mode - Age of Change (Sonic Entity rmx) 8:25
+ 06. Timelock - Disconnected (Gameboy rmx) 8:18
+ 07. Man Machine - Vector 7:58(   Читать дальше...   )Жанр: Psychedelic / Progressive, Full OnПродолжительность: 02:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:650FCA97F9A5AD5E2475940B70904C5FF916B0C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514710   (657961) от 24.06.2012
+
+VA - Rock Hits of 20th Century Vol.1 (2012) [MP3|320 кб/с]<Hard Rock, Heavy Metal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Accept - Winter Dreams (04:41)
+02. AC-DC - Highway To Hell (03:27)
+03. Aerosmith - Dream On (04:23)
+04. America - You Can Do Magic (03:42)
+05. Animals - Hous Of Rising Sun (04:25)
+06. AXE - Now Or Never (03:44)
+07. Barclay James Harvest - Love On The Line (04:29)
+08. Bobby 'Blue' Bland - Ain't No Love In The Heart Of This City (03:46)
+09. Bon Jovi - Always (05:47)
+10. Bonfire - You Make Me Feel (04:39)Жанр: Hard Rock, Heavy MetalПродолжительность: 05:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C8E5BF27C24026F70FACE91C51E246825DC5259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225897   (657959) от 18.05.2018
+
+VA - The Soul Healer: Original Trance Party (2018) [MP3|320 Kbps] <Progressive, Uplifting, Vocal Trance>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657959.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A & Z - Symbols (Extended Mix)
+002. Phillip J feat. Kim Casandra - Release Me (4 eYe Remix)
+003. Darren Porter - Light Speed (Extended Mix)
+004. Orano feat. Karen Elliot - Fairytales (Mysterious Movement Remix)(   Читать дальше...   )Жанр: Progressive, Uplifting, Vocal TranceПродолжительность: 10:50:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225476   (657957) от 18.05.2018
+
+Священник Виктор Кузнецов | Мученики нашего времени. Иеромонах Нил (Савленков), Игорь Тальков, митрополит Николай (Ярушевич) и другие (2009) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Священники и миряне, претерпевшие смерть ради Веры и Отечества - наши маяки во тьме падшего мира. Замучившие, убившие их изверги, являются исполнителями, слугами сатанинских сил. Мученическая смерть праведников, к сожалению, не становится в наше апостасийное время не только широко оповещаемой сенсацией, но даже мало-мальски известным событием. Жёсткий заговор молчания (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08854661AC66E8A342194F371C7B3DAFDCA4E407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225845   (657956) от 18.05.2018
+
+DAVI - Boarding Call (2018) Maxi Single & EP [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boarding Call (7:07)
+ 02. Boarding Call (Armen Miran Remix) (6:56)
+ 03. Boarding Call (Hraach Remix) (7:47)
+ 04. Corrected (7:08)Жанр: Deep Progressive HouseПродолжительность: 00:28:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA1C2783B7D72E8BBC9DA0061C44FC4C70710A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225517   (657955) от 18.05.2018
+
+Священник Виктор Кузнецов | Старец. Архимандрит Кирилл (Павлов) (2012) [PDF]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657955.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем издании представлено текстовое изложение бесед, рассказов знающих, окормляющихся у известного всем, одного из старейших и почтеннейших, духовника трёх наших Патриархов — архимандрита Кирилла (Павлова). Здесь собраны откровенные повествования духовных чад старца, и тех, кто имел встречи и беседы с ним. Они составлены на основании живых свидетельств, непосредственных (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226010   (657954) от 18.05.2018
+
+Crystal Ball - Сrуstаllizеr (2018) Limited Edition [FLAC|Lossless|image + .cue] <Melodic Power Metal, Hard Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crystallizer (3:56)
+ 02. Curtain Call (3:33)
+ 03. Alive For Evermore (3:47)
+ 04. S.O.S. (3:58)(   Читать дальше...   )Жанр: Melodic Power Metal, Hard RockПродолжительность: 00:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7946B111DD32BE73E205A2D99C30971DA3FBC076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225903   (657953) от 18.05.2018
+
+VA - Twilight: Deep House Mix (2018) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657953.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Loud Luxury ft. brando - Body (Dirtcaps Remix)
+002. Legendary Boy - Alga (Roland Cortante Remix)
+003. Nova Casa - Jazz Reflections (Original Mix)
+004. Armin van Buuren ft. Conrad Sewell - Sex, Love & Water (Loud Luxury Remix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 08:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6359AABF658376A17777091C2F91F1E9F9BAF3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226001   (657952) от 18.05.2018
+
+Хоккей. Чемпионат мира 2018. 1/4 финала. США – Чехия (17.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657952.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 мая 2018 года, четверг. 17:15 МСК
+82-й Чемпионат мира по хоккею с шайбой 2018 года
+1/4 финала.
+США – Чехия(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 02:04:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225769   (657951) от 18.05.2018
+
+VA - Beautiful Day (featuring R. Stewart, J. Cocker, Free and many more) (2004) [APE|Lossless|image + .cue] <Rock, Rhythm & Blues, Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rod Stewart – You Wear It Well
+02. Tears For Fears – Everybody Wants To Rule The World
+03. Joe Cocker & Jennifer Warnes – Up Where We Belong
+04. Free – All Right Now(   Читать дальше...   )Жанр: Rock, Rhythm & Blues, SoulПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AE456C90D5FA29FD2ECCA39956FCFBE66132176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225936   (657950) от 18.05.2018
+
+Mozilla Firefox Quantum 60.0.1 Portable by PortableApps [Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657950.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PixPlant – очень мощный и нестандартный графический редактор, который специализируется на создании высококачественных бесшовных текстур и трехмерных карт. Получить эти оригинальные проекты вы сможете из обычных изображений, просто воспользовавшись уникальными технологиями обработки данной программы.
+Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62FFC65416A52672449FCDAB357750FF7CBA456F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225964   (657949) от 18.05.2018
+
+Хоккей. Чемпионат мира 2018. 1/4 финала. Россия – Канада (17.05.2018) HDTV [H.264/1080i-LQ]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657949.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 мая 2018 года, четверг. 17:15 МСК
+82-й Чемпионат мира по хоккею с шайбой 2018 года
+1/4 финала.
+Россия – Канада(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:59:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225977   (657948) от 18.05.2018
+
+DJ Nik One - Сториз (2018) [MP3|320 Kbps] <Rap, Hip-hop>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Инъекция (feat. Fuze Krec)
+02. 911 (feat. SLIMUS & Bumble Beezy)
+03. Будет больше (feat. 5Плюх & Гурмэ)
+04. Bingo (feat. GIDRA)(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226026   (657947) от 18.05.2018
+
+Аманда Проуз | История матери (2018) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всегда ли рождение ребенка – счастье? Об этом не принято говорить, но бывает так, что появление детей разрушает семью. Это случилось с Джессикой и Мэттью. Их брак дал трещину, когда Джессика узнала, что беременна. Она не была готова к этому, и, хотя Мэттью был счастлив, ее не покидало болезненное чувство неправильности происходящего.
 
-Софт обладает интуитивно понятным интерфейсом, гибкой моделью управления (   Читать дальше...   )Язык интерфейса: Английский
+Материнство не принесло Джессике (   Читать дальше...   )Жанр: Современная зарубежная литература, Психологическая прозаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:215F17489DCACCB4616D9959A7A3D7A9BA59DDD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539657   (657062) от 26.03.2022
-
-Игра смерти / Si wang you xi / Game of Death (1978) UHD BDRip [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преступный синдикат зловещего доктора Лэнда контролирует гонконгский шоу-бизнес: все артисты обязаны отчислять мафии немалые суммы со всех своих доходов. Молодой актер Билли Ло вступает в борьбу с преступным синдикатом. Жёлто-чёрный костюм, использованный во время съёмок этого фильма, был использован Квентином Тарантино во время съёмок фильма «Убить Билла».
-Название (   Читать дальше...   )Производство: Гонконг, США / Concord Productions Inc., Golden Harvest Company Ltd.Жанр: Боевик, Триллер, Драма, КриминалРежиссер: Роберт Клауз, Брюс ЛиАктеры: Брюс Ли, Коллин Кэмп, Дин Джаггер, Гиг Янг, Таи Чунг Ким, Бяо Юэнь, Роберт Уолл, Карим Абдул-Джаббар, Мел Новак, Хью О`БрайанПеревод: Многоголосый закадровый (Superbit)Язык озвучки: РусскийСубтитры: Русские, английскиеПродолжительность: 01:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC317089504A0CB1E31FF60650E1F2A99309CC7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539555   (657061) от 26.03.2022
-
-Э.Г. Эйдемиллер и др. (ред.) | Детская психиатрия, психотерапия и медицинская психология (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот учебник уникален. До настоящего времени в России существовали только монотематические учебники – психиатрии, с минимальным описанием психотерапии и медицинской психологии. Построение этого учебника осуществляется по принципу интеграции. Специфика нервно-психических расстройств у детей, «аномальное» поведение часто ошибочно расценивается специалистами как патология, (   Читать дальше...   )Жанр: МедицинаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:417E8BE17BB4190B5CFB714614E07665265379F4
+magnet:?xt=urn:btih:063DFFE0A85359C577A043B369059F6DE5653ABC
 ```
 
 https://mybot314.ru/tekegram_catalog/

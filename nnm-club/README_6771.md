@@ -1,25 +1,25 @@
-###  Публикация: 1201706   (790984) от 27.01.2018
+###  Публикация: 1510266   (791591) от 16.11.2021
 
-VA - Популярный бикини микс (2018) [MP3|256-320 Kbps] <Pop, Dance>
+VA - Day off Background Music (2021) [AAC|~297 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791591.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 2 Маши - Время 3:24
-02. 7hills - Танцы 3:46
-03. 140 Ударов В Минуту - Катажина 3:46
-04. Alex Opium - Не Обижу 3:45(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:09:21
+01. The Entelechia Society - Apollonian Eyes (5:46)
+02. Miraflores - Habanera (5:49)
+03. Adaptationes Mirabiles - Near the Mill (5:53)
+04. Schriever - Sublime (5:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BCBE7F0234909BCD3AF7829DB017197E5D2DA342
+magnet:?xt=urn:btih:A096B62F861D578593104513DF77962D3003A809
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,115 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201918   (790983) от 27.01.2018
+###  Публикация: 1510499   (791590) от 16.11.2021
 
-Trish Kerr - Clover (2018) [MP3|320 Kbps] <Blues Rock, Jazz Rock, Female Vocal>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clover
-02. Three
-03. Never Gonna Get It
-04. Insideline(   Читать дальше...   )Жанр: Blues Rock, Jazz Rock, Jazz, Female VocalПродолжительность: 00:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A43841F495DE8B5ECAE5909FAE6AB6FDD959AFC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201947   (790982) от 27.01.2018
-
-Dream Wife - Dream Wife (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie Pop, Dream Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Make Out
-02. Somebody
-03. Fire
-04. Hey Heartbreaker(   Читать дальше...   )Жанр: Indie Rock, Indie Pop, Dream PopПродолжительность: 00:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B699BDBAC3CD4EDC5FC2A2754AFE4D2A6EECFA26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202064   (790981) от 27.01.2018
-
-Katie Melua / Кэти Мелуа - Secret Symphony (2012) Dramatico, DRAMCD0078, UK & Europe [MP3|320 Kbps] <Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gold In Them Hills 3:32
-02. Better Than a Dream 3:11
-03. The Bit That I Don't Get 3:13
-04. Moonshine 2:42(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD8D3A05F3A4919467E25EDD466CE6EF64F12AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202002   (790980) от 27.01.2018
-
-Above & Beyond - Common Ground (2018) [MP3|320 Kbps] <Trance>
+Keep It 1.11.6 [Multi]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791590.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Inconsistency Principle
-02. My Own Hymn (Feat. Zoë Johnston)
-03. Northern Soul (Feat. Richard Bedford)
-04. Naked (Feat. Justine Suissa)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:02:20
+Создавайте заметки со встроенными стилями, которые хорошо выглядят и хорошо читаются на всех ваших устройствах. Заметки могут содержать контрольные списки, маркированные и пронумерованные списки, изображения, ссылки и другие вложения.Тип издания: macOS SoftwareРелиз состоялся: 16.11.2021Разработчик: Reinvented SoftwareПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Арабский и  Иврит
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D4B18A50127393229A4B61668D6D0B19658E745
+magnet:?xt=urn:btih:B041F7A62DE6486BB0757189EDD8399D6EF372A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,25 +53,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202096   (790979) от 27.01.2018
+###  Публикация: 1510439   (791589) от 16.11.2021
 
-Владимир Высоцкий и Марина Влади. Последний поцелуй (2007) HDTVRip
+Alfred 4 Powerpack 4.6.1 [En]
 
->>Документалистика и Телепередачи
->>Посвящение искусству
+>>Программы для macOS
+>>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791589.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм расскажет о мало известных страницах этого романа. Своими воспоминаниями в эксклюзивном интервью поделится и сама Марина Влади. Зрители увидят и редкие документальные кадры с Владимиром Высоцким.Производство: РоссияЖанр: Документальный, искусство, биографияРежиссер: Наталья Гугуева, Аркадий КоганАктеры: Всеволод Кузнецов, Марина Влади, Владимир Высоцкий, Никита Высоцкий, Юрий Любимов, Александр Митта, Иван ДыховичныйСубтитры: ОтсутствуютПродолжительность: 00:51:37
+Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
+Вызвать окно Alfred очень просто — по умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.11.2021Разработчик: Running with Crayons LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:014E992681E5599D78BCFD3A4B86841D84B523E1
+magnet:?xt=urn:btih:9C5945A779C46357F806B83BFA5B536FB9EA668A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,110 +80,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202065   (790978) от 27.01.2018
+###  Публикация: 1510292   (791588) от 16.11.2021
 
-Orphaned Land - Unsung Prophets & Dead Messiahs (2018) [MP3|320 Kbps] <Folk Metal, Progressive Metal, Oriental>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790978.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-1. The Cave
-2. We Do Not Resist
-3. In Propaganda(   Читать дальше...   )Жанр: Folk Metal, Progressive Metal, OrientalПродолжительность: 01:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:871519FD72F168A46CDB2003111F32B12DD2A188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201703   (790977) от 27.01.2018
-
-VA - Trance 100 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790977.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Armin van Buuren feat. Josh Cumbee  -  Sunny Days (PureNRG Remix)  3:11
-002.  W&W, Vini Vici  -  Chakra (Original Mix)  3:23
-003.  Aly & Fila, Ferry Tayle  -  Concorde (Original Mix)  4:19
-004.  Paul van Dyk  -  I Am Alive (Original Mix)  4:38(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal Trance, ProgressiveПродолжительность: 05:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FE81B8D567A281AEFA1C5CC1B3EB517C4770483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202034   (790976) от 27.01.2018
-
-Владимир Высоцкий и Марина Влади. Последний поцелуй (2007) DVDRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает об одной из самых красивых историй любви 20-го века. По мнению всех, кто был свидетелем отношений между знаменитой французской актрисой Мариной Влади и великим русским поэтом и актером Владимиром Высоцким, это была та необыкновенная любовь, о которой мы обычно читаем лишь в книгах.
-Их роман не воспринимали всерьез. Им завидовали. О них сплетничали. (   Читать дальше...   )Производство: Россия / Студия "Встреча"Жанр: Документальный, искусство, биографияРежиссер: Наталья Гугуева, Аркадий КоганАктеры: Всеволод Кузнецов, Марина Влади, Владимир Высоцкий, Никита Высоцкий, Юрий Любимов, Александр Митта, Иван ДыховичныйПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7D9B911C636CED5EB46A068A4017BA57F122B60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201926   (790975) от 27.01.2018
-
-Alternate File Shredder 2.211 [Multi/Ru]
+OnyX 4.1.1 for macOS Monterey 12 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791588.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа для безвозвратного удаления файлов и папок. Может не только удалять существующие файлы, но и затирать свободное пространство. Из дополнительных настроек присутствует изменение количество проходов стирания, игнорирование защиты от записи, затирание имен файлов, изменение размеров файлов, замена информации случайными данными вместо нулей и др.Язык интерфейса: Русский, Английский, др.
+Приложения для настройки macOS бывают разных форм и цен, и вы можете выбрать то, которое соответствует вашим потребностям, будь оно сосредоточено на поиске и исправлении как можно большего количества системных ошибок и проблем или на повышении общей производительности вашего Mac.
+Универсальный инструмент для обслуживания, настройки и очистки системы Утилита OnyX (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.11.2021Разработчик: Titanium SoftwareПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:457319186CE0C9AA5B09FBE80A54A9C5416C2338
+magnet:?xt=urn:btih:4E0B76BABCA73946E6ABC39F08F68153E5C1EB67
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -280,28 +107,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202029   (790974) от 27.01.2018
+###  Публикация: 1510421   (791587) от 16.11.2021
 
-Katie Melua / Кэти Мелуа - Pictures (2007) Japan issue [MP3|320 Kbps] <Jazz, Pop>
+Keyboard Maestro 10 v10.0.1 [En]
 
->>Jazz, Blues, Soul
->>Jazz
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791587.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mary Pickford 3:13
-02. It's All In My Head 4:04
-03. If The Lights Go Out 3:15
-04. What I Miss About You 3:49(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:52:28
+Keyboard Maestro - мультифункциональная утилита, которая может создавать макросы, для автоматизации каких-либо повторяющихся действий, вызываемых с помощью клавиатурных сочетаний, для приложений, окон, документов, буфера обмена и т.д.
+А что если вам нужно отправить картинку в определенную папку Dropbox или залить на хостинг изображений? В этих случаях цепочка действий (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.11.2021Разработчик: © 2021 Stairways Software Pty Ltd.Поддерживаемая ОС: OS X 10.13 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:502DFFC02D11CB07A75E67A1BB919EA77080E43D
+magnet:?xt=urn:btih:BE308BEF5CE477BDE72B8C5C1D51BEAEE5F98026
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -309,28 +134,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201995   (790973) от 27.01.2018
+###  Публикация: 1510498   (791586) от 16.11.2021
 
-Maynard Ferguson - Primal Scream (1976) 2004, Wounded Bird [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Big Band>
+Net Radar 1.3 fix [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Net Radar отслеживает состояние вашего VPN-соединения и показывает текущее географическое положение публичного IP-адреса вашего интернет-соединения в строке меню.
+Net Radar отслеживает подключение к VPN на двух уровнях, внутренне и внешне. Внутренне - Net Радар отслеживает начало и конец VPN соединений. После каждого изменения, Net-радар проверяет статус VPN извне (   Читать дальше...   )Тип издания: macOS X SoftwareРелиз состоялся: 28.11.2020Разработчик: BetamagicПоддерживаемая ОС: macOS X 10.14 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DBF485E468D27EFB56E52B859E329644510176B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510334   (791585) от 16.11.2021
+
+James Moody - Moody's Mood For Love (1957) 1998, GRP Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791585.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Primal Scream [07:10]
-02. The Cheshire Cat Walk [10:10]
-03. Invitation [05:33]
-04. Pagliacci [05:56](   Читать дальше...   )Жанр: Jazz Fusion, Big BandПродолжительность: 00:36:13
+01. Foolin' the Blues [5:08]
+02. Plus Eight [3:59]
+03. I'm in the Mood for Love [3:09]
+04. Phil Up [2:37](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:31:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D72CF4FB07983A011F5FB832019210531DCBFA1F
+magnet:?xt=urn:btih:8448C78A7A9CCA645F503668AC9B3892C2E44522
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -338,28 +190,192 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202068   (790972) от 27.01.2018
+###  Публикация: 1510416   (791584) от 16.11.2021
 
-Katie Melua / Кэти Мелуа - Secret Symphony (2012) Special Bonus Edit 2xCD [MP3|320 Kbps] <Jazz, Pop>
+AweCleaner Professional 5.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791584.jpg" />
+</div>
+
+
+###  Подробнее
+
+AweCleaner - это универсальное средство для очистки Mac, которое не только помогает пользователям Mac легко и быстро очищать все ненужные файлы, но также может удалять приложения, находить / удалять большие файлы, находить / удалять дублирующиеся файлы, освобождать память, управлять жесткими дисками и т.д. Это комплексное программное обеспечение для очистки также (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.11.2021Разработчик: MagoshareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CDBAFB19610C2C572CD87A827181D049A789FDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510296   (791583) от 16.11.2021
+
+FileMaker Pro 19 v19.4.1.36 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791583.jpg" />
+</div>
+
+
+###  Подробнее
+
+FileMaker Pro - это платформа для разработки и для создания приложений.
+Выполните цифровую трансформацию с Claris FileMaker. Быстро создавайте собственные приложения, которые решат ваши бизнес-задачи сегодня - и завтра. Ускорьте свой бизнес, раскройте творческий потенциал своей команды и добейтесь лучших результатов.Тип издания: macOS SoftwareРелиз состоялся: 03.11.2021Разработчик: © 2021 Claris International Inc.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0830E3302CF2D06B8C85313DF33A92AEFB5BC021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510341   (791582) от 16.11.2021
+
+Motörhead - Everything Louder Forever (2021) [AAC|~345 Kbps] <Hard Rock, Metal>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791582.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Overkill (5:11)
+1.02. We Are Motörhead (2:22)
+1.03. Snaggletooth (3:49)
+1.04. Rock It (3:53)(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 02:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D38C1B82ED64F0EA9F9403D18F32ECEB092691C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510446   (791581) от 16.11.2021
+
+Permute 3 v3.7.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 16.11.2021Разработчик: © 2021 Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:058C89D84D26C05DFCB61EC18A6265B4F370B207
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510294   (791580) от 16.11.2021
+
+Wondershare UniConverter 13.2.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare UniConverter - это полный набор инструментов для работы с видео, который позволяет конвертировать, редактировать, улучшать, загружать, записывать, систематизировать, захватывать и просматривать видеофайлы. Конвертируйте видео практически в любой формат видео с 30-кратной скоростью преобразования.
+Самое быстрое универсальное решение для развлечений с цифровым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2021Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C064319C280A840A7DB55A24C137C4CB617AC987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510395   (791579) от 16.11.2021
+
+Gayle Adams - 2 Albums (1980, 1982) Reissue CD, 1992, Unidisc [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская диско исполнительница и автор песен, родившаяся в Вашингтоне, округ Колумбия. Записала эти два альбома для лейбла Prelude Records, ориентированного на танцы, в начале 1980-х годов. Ее самые известные хиты - "Stretchin' Out" (1980) и "Love Fever" (1982).01. Your Love Is A Live Saver (5:55)
+02. Stretchin' Out (6:11)
+03. The Love Of My Man (3:35)
+04. You Brought It On Yourself (5:27)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 02:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01884E899154A88EDB4A59394B5F67793648FFAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510252   (791578) от 16.11.2021
+
+Jihye Lee Orchestra - Daring Mind (2021) [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Big Band>
 
 >>Jazz, Blues, Soul
->>Jazz
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791578.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Secret Symphony 4:06
-02. The Flood 4:00
-03. A Moment of Madness 4:08
-04. If You Were a Sailboat 3:58(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 02:08:57
+01. Relentless Mind (feat. Sean Jones, Alan Ferber) (Lee) - 6:21
+02. Unshakable Mind (Lee) - 9:59
+03. Suji (Lee) - 8:56
+04. I Dare You (Lee) - 5:51(   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Big BandПродолжительность: 01:04:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:757F1D80CD7C5836D866E73C864055C9F8464015
+magnet:?xt=urn:btih:BD1FE019D610A9905852FF446F907CD2F897FF7A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -367,25 +383,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201435   (790971) от 27.01.2018
+###  Публикация: 1510257   (791577) от 16.11.2021
 
-А. К. Тимирязев и др. | Диалектика в природе. Сборник по марксистской методологии естествознания (1928) [DJVU, PDF]
+Grant Miller - Best Of Grant Miller (Greatest Hits & More) (2020) [AAC|~350 Kbps] <Pop, Disco>
 
->>Научная и техническая литература
->>Точные и естественные науки
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791577.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Только живая, учитывающая своеобразие каждой области явлений, выведенная из фактической взаимозависимости явлений, диалектика, а не привнесенная в них извне априорная конструкция, может дать положительные результаты, т.-е. такие, которые выдерживают испытание фактами, опытом, и от которых, следовательно, естествоиспытатель не может и не будет отмежевываться с той (   Читать дальше...   )Жанр: История, науковедение, естествознание, химия, физика, геометрия, математикаФормат: DJVU, PDF
+01. Colder Than Ice (5:35)
+02. Red For Love (5:28)
+03. Doctor For My Heart (5:19)
+04. I'm Alive Tonight (4:00)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:14:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1622945B777EF8976649DF4145D6AACADA2B99D
+magnet:?xt=urn:btih:D867E9D96E65A573A6055642E7AB7904F0A8CCEB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -393,28 +412,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201949   (790970) от 27.01.2018
+###  Публикация: 1510453   (791576) от 16.11.2021
 
-Ernesto Cortazar - Memories Of The Fall (2010) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
+Coming soon 3 v3.12 [Multi/Ru]
 
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791576.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Memories Of The Fall (3:37)
- 02. Lady (4:11)
- 03. Living A Dream (3:43)
- 04. Falling Leaves (3:15)(   Читать дальше...   )Жанр: New Age, Piano, Classical, RomanticПродолжительность: 00:36:45
+Получите самую свежую информацию о предстоящих выпусках фильмов.Тип издания: macOS SoftwareРелиз состоялся: 16.11.2021Разработчик: © 2021 Ivan KashkarovПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и Французский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD54449724C3E90FEC289DCEB8D7EAE430F5CAFB
+magnet:?xt=urn:btih:203905AD17D53744DBCB4E19CEFD7C7FAF354650
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -422,28 +438,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202049   (790969) от 27.01.2018
+###  Публикация: 1201793   (791575) от 26.01.2018
 
-Neil Davidge - BRITANNIA (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
+Векторный клипарт - Happy Valentines Day hearts collection 11 [EPS]
 
->>Other Styles
->>OST (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791575.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Make Amends (04:01)
-02. The Sun Will Not Rise Tomorrow (03:10)
-03. You Spoke (02:25)
-04. The Scariest Thing (02:26)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:55:40
+Векторный клипарт для дизайна.
+День Святого Валентина
+11 EPS + Jpeg PreviewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD49EE35723E09C929A2B3973375E350C99249F7
+magnet:?xt=urn:btih:4BA766710B572419212DF16B098AE735F93B4302
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -451,25 +466,164 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275340   (790968) от 10.01.2019
+###  Публикация: 1201728   (791574) от 26.01.2018
 
-Microsoft Visual C++ AIO Runtime Libraries Full Pack by Wilenty 09.01.2019 [En]
+Муни Витчер | Нина и сила Абсинтиума (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791574.jpg" />
+</div>
+
+
+###  Подробнее
+
+В шестой книге главная героиня, мадридская школьница по имени Нина, узнав о загадочной смерти своего деда Михаила Мезинского, мага и алхимика, приезжает в Венецию и становится его наследницей. Дедушка завещает ей не только магическую Книгу и другие атрибуты магии и алхимии, но и главное дело своей жизни - спасение планеты Ксоракс, или Шестой Луны. Нина и ее друзья (   Читать дальше...   )Жанр: ФэнтезиПеревод: Валерий НиколаевФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69620799CF620F7A9347CF3A8C921475D3C67473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201777   (791573) от 26.01.2018
+
+Векторный клипарт - Vector Flowers Collection #30 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Цветы
+25 Ai +Jpg PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12CE62CE61E9293A6F30CCDB40277E8EA1DA75C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201842   (791572) от 26.01.2018
+
+Man Of No Ego - Web Of Life (2015) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psybient, Downtempo, Psychill>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Galactic Girl (06:56)
+ 02. Nebra (05:10)
+ 03. Kali Yuga (04:33)
+ 04. Vega (04:16)(   Читать дальше...   )Жанр: Ambient, Psybient, Downtempo, PsychillПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E70B67B71E40884395924ECDD95220E34073A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201727   (791571) от 26.01.2018
+
+Муни Витчер | Нина и Золотое Число (2014) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791571.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пятой книге приключения нашей знакомой мадридской школьницы Нины Де Нобили продолжаются! Казалось, прекрасная планета Ксоракс, Шестая Луна, спа­сена - ее злейший враг князь Каркон повержен. Но не тут-то было... Прошло совсем немного времени, и силы Зла вновь поднялись на борьбу! Юной алхимичке Нине и ее верным друзьям на этот раз предстоит сразиться не только с (   Читать дальше...   )Жанр: ФэнтезиПеревод: Валерий НиколаевФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28E0634D086F73444495682851EF611BE2AAEFF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201573   (791570) от 26.01.2018
+
+VA - Ministry Of Sound: Piano House Classics (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alison Limerick  -  Where Love Lives (Radio Edit)  3:48
+02.  Bizarre Inc.  -  Playing with Knives  3:18
+03.  Black Box  -  Ride On Time  4:32
+04.  K.Klass  -  Let Me Show You  3:35(   Читать дальше...   )Жанр: HouseПродолжительность: 07:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52D47BCC4DAA18952C98C213EFB02A6DAF1C44C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201639   (791569) от 26.01.2018
+
+SMPlayer 18.2.0 + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791569.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Microsoft Visual C++ Redistributable Package – это распространяемые пакеты, которые устанавливают компоненты среды выполнения библиотек Visual C++. Данные компоненты необходимы для выполнения приложений, разработанных с помощью среды программирования Visual Studio. В состав этих компонентов входят: среда выполнения C (CRT), стандартный C++, MFC, C++ AMP и OpenMP. (   Читать дальше...   )Язык интерфейса: Английский
+SMPlayer - мощный мультимедиа проигрыватель, который позволяет воспроизводить большинство известных аудио и видео форматов без потребности в дополнительных кодеках. Также умеет воспроизводить DVD диски и видео-потоки из Internet.
+Приложение представляет собой полноценную графическую оболочку для MPlayer, обеспечивающую как базовые функции MPlayer (воспроизведение (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C54B92965316BFA6D0F0640A1A99AA2DAF38D59D
+magnet:?xt=urn:btih:B08281D321480FEA194D04A4C63A4CA55ABA0278
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -477,25 +631,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274761   (790967) от 10.01.2019
+###  Публикация: 1201746   (791568) от 26.01.2018
 
-Дэниел Пинк | Таймхакинг: Как наука помогает нам делать всё вовремя (2018) [MP3]
+Даниэла Стил | Зов предков (2018) [MP3]
 
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791568.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Таймхакинг — методика «взлома» стандартного подхода к планированию и распределению своего времени. Хотите успевать больше, прилагая меньше усилий? Руководство по таймхакингу поможет настроиться на правильный ритм жизни и работы, чтобы четко распределять свое время в зависимости от целей и приоритетов. «Не торопиться, но успевать» — звучит обнадеживающе. Как при этом (   Читать дальше...   )Жанр: Популярная психология, саморазвитиеПродолжительность: 06:56:06
+Новый роман знаменитой Даниэлы Стил — красивая история о торжестве любви над предательством, в которой будущее и прошлое тесно сплелись между собой в удивительный узор, побуждающий сердце биться сильнее в предвкушении восхитительных переживаний и радостных открытий.
+Привычный мир Бриджит Николсон разлетелся на куски, когда ее выгнали с работы, а мужчина, с которым (   Читать дальше...   )Жанр: Любовный романПродолжительность: 16:38:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD3789222C0FC5D3A59FDACD2CDF1C87895B7FA8
+magnet:?xt=urn:btih:DB48B572E32F12C31A1A8BC1EBE9B208EB5E6030
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -503,25 +658,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275087   (790966) от 10.01.2019
+###  Публикация: 1201774   (791567) от 26.01.2018
 
-Текстуры - Creative Market - Watercolor Bundle + Extras - 395424 [JPG]
+Векторный клипарт - Fotolia - Flyer gift card Valentine's Day [EPS]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791567.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это набор ярких и красочных акварельных текстур. Эти текстуры могут быть использованы для множества идей, например листовки, обои, презентации PowerPoint, заголовки, обои и т.д.Формат: JPGРазрешение файлов: 3450x2700
+Векторный клипарт для дизайна.
+День Святого Валентина
+25 EPS + Jpeg PreviewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:674B674B268F23C47F8347E8718C89A6D614876E
+magnet:?xt=urn:btih:F26BE61B2A3EF9E1ECD48AFB83587C682CE15475
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -529,189 +686,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275343   (790965) от 10.01.2019
+###  Публикация: 1201747   (791566) от 26.01.2018
 
-NNM-Club Sound Cleaner Collection from nazarvlad
+Ладушка - Солнцеворот (2018) [MP3|320 Kbps] <Folk Metal, Folk Rock>
 
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791566.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эксклюзивная коллекция музыкальных треков и звуковых эффектов AudioJungle к проектам After Effects от нашего одноклубника nazarvlad, стоявшего у истоков и активного члена группы Sound cleaner.Формат: WAV, MP3
+01. Масленица
+02. Горсти серебра
+03. Усладов пир
+04. Русалья ночь(   Читать дальше...   )Жанр: Folk Metal, Folk RockПродолжительность: 00:47:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED0937DA6AB3FB1F5551EADF53C811BFEA6E8454
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275155   (790964) от 10.01.2019
-
-Агент Джонни Инглиш 3.0 / Johnny English Strikes Again (2018) BDRemux [H.264/1080p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда все агенты секретной службы Её Величества внезапно выходят из строя, в игру вступает запасной вариант. Образец английского стиля и любимец роковых красоток; король безвыходных ситуаций и хранитель аналоговых традиций в цифровом мире, агент Джонни Инглиш — боль и гордость британской разведки. Этому парню есть что взбалтывать, и он взболтает не по-детски.Производство: Великобритания, Франция, США, Universal Pictures, Studio CanalЖанр: Боевик, Комедия, ПриключенияРежиссер: Дэвид КеррАктеры: Эмма Томпсон, Ольга Куриленко, Роуэн Аткинсон, Джейк Лэси, Бен Миллер, Миранда Хеннесси, Адам Джеймс, Пиппа Беннетт-Уорнер, Ирена Тишина, Джеймс ИлсПеревод: Дублированный (iTunes)Субтитры: Английские (Full, SDH, SDH-Colored)Продолжительность: 01:28:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B2593532BD4CB59ECA2E332C6089C8179BAED30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275220   (790963) от 10.01.2019
-
-39 Days to Mars (2018) [Multi/Ru] [macOS Native game]
-
->>Игры для macOS
->>Quests, Adventure, Arcade для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790963.jpg" />
-</div>
-
-
-###  Подробнее
-
-39 дней до Марса - это кооперативная головоломка-приключение в стиле стимпанк.
-
-Займите место сэра Альберта Уикса и Достопочтимого Кларенса Бакстера, двух исследователей 19-го века, которые были отобраны для экспериментального полета на Марс на "Ужасающем Корабле Ее Величества".
-(   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 2018Разработчик: It's AnecdotalПоддерживаемая ОС: 10.8 +Жанр: Приключенческие игры, КооперативЯзык озвучки: английскийЯзык интерфейса: русский, английский, французский, немецкий +
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED975859E8A1CA220A7B7C5BAA10993DA742C5F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587886   (790962) от 10.01.2019
-
-Ой, мороз, мороз! (2005) DVDRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иногда, чтобы исправить свою судьбу, полезно сыграть роль другого человека. Жизнь героя этой взрослой сказки действительно зашла в тупик. Он - бывший офицер спецназа, отбывающий срок по ложному обвинению. Уже несколько лет подряд в канун Нового года он бежит из колонии, чтобы отомстить…
-Однако у судьбы свои планы и в этот раз все будет совсем иначе. Роль Деда Мороза, (   Читать дальше...   )Жанр: КомедияРежиссер: Николай ЩербаковАктеры: Владимир Епифанцев, Стася Задорожная, Ирина Шипова, Павел Лысенок, народная артистка РФ Раиса Рязанова, заслуженные артисты РФ: Роман Мадянов, Виктор Проскурин, Борис Клюев и Валерий Гаркалин, Сергей КагадеевПродолжительность: 01:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A05E8F7E7157F07F03EBE23A5494D679E9467653
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275078   (790961) от 10.01.2019
-
-VA - Empire Records - Red Star (2019) [MP3|320 Kbps] <Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Protector 101 - Lost Scene 3
-02. Apoxyz - Centurion Report (Reprise)
-03. Danger Mode - Final lap pt. 2 - Race of no return
-04. Hypnosis - Argonauts (Album Version)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DA3B1746C64CA0CACAA01BC3A2C1F5D99641B2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 428000   (790960) от 10.01.2019
-
-Как живете, Караси? (1991) DVD9
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по повести Евгения Козловского «Как живете?..»
-Отставной полковник КГБ, собрав на своей даче картотеку людей, сотрудничавших в прежние годы с Комитетом, снова вызывает их, перестроившихся, к себе и заставляет выполнять определенные поручения. Но и на него находятся акулы покрупнее — представители мафии, догадавшиеся, какой куш можно теперь содрать с бывших (   Читать дальше...   )Жанр: Трагикомичная историяРежиссер: Михаил Швейцер (Золотой теленок, Мертвые души, Крейцерова Соната) Софья Милькина (Время вперед, Крейцерова Соната).Актеры: Николай Пастухов (...полковник Картошкин), Евгений Евстигнеев (...диссидент), Валерий Золотухин (...Дмитрий Никитич Тищенко), Александр Калягин (...«человечек»), Леонид Куравлев (...самое высокое начальство), Евгений Миронов (...Никита), Анна Назарьева (...Машенька), Марина Кондратьева, Инна Выходцева, Андрей Харыбин, Владимир Привалов, Павел Семенихин (...столяр), (   Читать дальше...   )Субтитры: нетПродолжительность: 01:03:15+00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55685350D8DE1864FF22A7771DE0A1EA8B663398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275072   (790959) от 10.01.2019
-
-Лукас / Lukas (2018) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790959.jpg" />
-</div>
-
-
-###  Подробнее
-
-На что ты готов ради дочери? Герою придется ответить на этот вопрос, столкнувшись лицом к лицу с полицией, мафией и Интерполом.Производство: Франция, Бельгия /Labyrinthe Films, Atchafalaya Films, UmediaЖанр: Боевик, драмаРежиссер: Жюльен ЛеклеркАктеры: Жан-Клод Ван Дамм, Свева Альвити, Сами Буажила, Сэм Лаувейк, Каарис, Кевин Янссенс, Алиса Версет, Карлос Шрам, Димитри Тивайос, Лорен Д'ИлайаПеревод: Многоголосый профессиональный (iTunes)Субтитры: Французские (форс)Продолжительность: 01:26:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:675ACFBFE64AD40F36F27352900C7FF68EBFCD8A
+magnet:?xt=urn:btih:08F8DFD0B9A14A9E68D658E30EB5F2063DD0FDD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

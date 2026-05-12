@@ -1,25 +1,126 @@
-###  Публикация: 1032532   (646051) от 07.07.2016
+###  Публикация: 517517   (645711) от 02.07.2012
 
-Human Error - Intersection (2016) [MP3|320 Kbps] <Drum & Bass>
+[Графика] Martin Swanston
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Martin Swanston
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC908EBFC1E373B5ED6DAA5179C5B69CEAFF1CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517538   (645710) от 02.07.2012
+
+[Графика] Работы украинского художника Игоря Кухарского
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы украинского художника Игоря Кухарского
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:562E41FD72A10DD92A4D5218E93C038EE6614405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517545   (645704) от 02.07.2012
+
+[Wallpapers]Wonderful Nature HDWallpapers 011
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B21425A90596E7486F3C0DEBEF56A849505410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517695   (645702) от 02.07.2012
+
+[Wallpapers] Best HD Wallpapers Pack (02.07.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E130919077042A976F55A689DBC8B337557F38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517878   (645701) от 02.07.2012
+
+VA - Заводной летний музон (2012) [MP3|256 кб/с]<Pop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645701.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fearless (feat MC Shot)
- 02. Anger
- 03. My Nation
- 04. Lose My Soul (feat Sisley)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:54:38
+Жанр: PopПродолжительность: 06:07:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA075F12F817F084F358F818B8E321A4091023C6
+magnet:?xt=urn:btih:08389ACE3FB46EAC190B887B9970245290DA2CB5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +128,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032523   (646049) от 07.07.2016
+###  Публикация: 1032330   (645694) от 07.07.2016
 
-Dr Meaker - Dirt & Soul (2016) [MP3|320 Kbps] <Drum & Bass>
+Чистилка 2.16.245 Portable [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чистилка - представляет собой простой и удобный инструмент для очистки системы от различных "зловредов". С ее помощью вы сможете избавиться от надоедливой рекламы на вашем компьютере, и удалить программы-зловреды, включая те, которые пропустил ваш антивирус. Программа проста в использовании и имеет русскоязычный интерфейс, поэтому разобраться в ней не составит (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF6ABE065D34F70609731E7D675A820E3C5C5383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032546   (645681) от 07.07.2016
+
+BurnAware Professional 9.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645681.jpg" />
+</div>
+
+
+###  Подробнее
+
+BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B4D3786786EBADC7102F0C198E6F13BFBA13A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905767   (645656) от 08.06.2015
+
+VA - Black Hole Radio: The Compilation May (2015) [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645656.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Deep in My Heart (feat. Lorna King)
- 02. Right Back (feat. Sian Evans)
- 03. Wanna Feel Love (feat. Yolanda)
- 04. Remedy (feat. Romaine Smith)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:55:56
+01. Sean Tyas - 9am (Radio Edit) (03:38)
+02. Markus Schulz - Destiny (Radio Edit) (03:49)
+03. Pure NRG - Pump Up the NRG (Radio Edit) (03:29)
+04. Bobina - Flying Kitten (Radio Edit) (03:07)(   Читать дальше...   )Производство: Black Hole HollandЖанр: TranceПродолжительность: 01:05:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DAD0FF2F9FA60A98F958D9FE3C2BD7B17DF79B80
+magnet:?xt=urn:btih:1E2062D3062192DFEE27859CC3D995EC581E8911
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,300 +209,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032178   (646048) от 07.07.2016
+###  Публикация: 904466   (645650) от 08.06.2015
 
-Alina (Wegel) - 3 альбома (2003-2005) [FLAC|Lossless|image + .cue] <Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Увела чужого парня я
-02. Холодно
-03. Не таи, скажи
-04. Волшебная страна(   Читать дальше...   )Жанр: PopПродолжительность: 02:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDC43E5E3F4889726D824A9DFB31329BD51D6092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032432   (646047) от 07.07.2016
-
-Ежи Пильх | Безвозвратно утраченная леворукость (2008) [FB2, RTF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежи Пильх является безусловным лидером издательских продаж в категории немассовой литературы. Его истинное амплуа - фельетонист, хотя пишет он и "традиционную" прозу. Жанры под пером Пильха переплетаются, так что бывает довольно трудно отличить фельетон от прозы и прозу от фельетона. "Безвозвратно утраченная леворукость" - сборник рассказов-фельетонов. (   Читать дальше...   )Жанр: Современная художественная проза, Современная зарубежная прозаПеревод: Татьяна ИзотоваФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D76ED622BC0E4CC03A60078C48C34338B22FB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032540   (646046) от 07.07.2016
-
-Freqax - Meant To Believe (2016) LP [MP3|320 Kbps] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meant to Believe (Intro)
- 02. Dark Times
- 03. Life (with Instinkt)
- 04. We, The World(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EADC35098B1EC3C68A0C643603383C7BEE3886A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032507   (646045) от 07.07.2016
-
-TC - Unleash The Wolves (2016) LP [MP3|320 Kbps] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Start A Riot
- 02. Have You
- 03. Next Hype (ft. Jakes)
- 04. Storm Brew (ft. Stylo G)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D16263CE7F70E562DC24B58FA88FDB190A3A0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032085   (646044) от 07.07.2016
-
-VA - Psychedelic Gatherin (2016) [MP3|320 Kbps] <Trance, Psychedelic, Psy Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yner -  Contradictory Nightmare (Original Mix) 7:26
-02. Sensitive Seeds -  Inside A Simulation (Original Mix) 6:33
-03. Principles of Flight -  Peintre Sonore (Original Mix) 8:32
-04. Abstract Layers -  Permafrost (Original Mix) 9:09(   Читать дальше...   )Жанр: Trance, Psychedelic, Psy TranceПродолжительность: 01:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2903DA3E690AA24E10DB1DB378C38C77D37EBB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 679367   (645973) от 15.07.2013
-
-СашаТаня (2013) WEBRip (cезон 1, серия 24)
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_645973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал про молодую семью Сергеевых. После окончания института Саша и Таня вместе со своим маленьким сыном Алёшкой решили пожить самостоятельно и сняли квартиру в Южном Бутово. Райончик конечно не из лучших, но зато и цены на жилье тут доступные, ведь Саша не собирается пользоваться миллиардами своего папы. Но Сильвестр Андреевич не собирается так просто отставать (   Читать дальше...   )Жанр: КомедияПродолжительность: 00:21:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032427   (645963) от 07.07.2016
-
-Гарольд Роббинс | Воспоминания минувших дней (1995) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Характерные черты творчества Роббинса — захватывающий сюжет, динамичное развитие событий, обостренное внимание к проблемам. Особую увлекательность придают постоянно присутствующие элементы детектива. В настоящем издании представлен малоизвестный роман американского писателя.Жанр: Любовный романПеревод: Д. МишинФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB15F138611CD1EEA273DD0BEA4EC76C76823D02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032493   (645960) от 07.07.2016
-
-Siba.pro - Discography 8 Releases (2006-2016) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient, Neo-Classical, Glitch>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Planet (03:43)
- 02. 10000 ly (04:17)
- 03. StarHunter (03:28)
- 04. Black Sea (03:51)(   Читать дальше...   )Жанр: Downtempo, Ambient, IDM, Neo-Classical, Trip-Hop, Glitch •Продолжительность: 00:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5794DE8D0C93AFCF3BAB96A80CD85402130080B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 216803   (645942) от 07.07.2010
-
-[Chi] Наследие Мира Долины Цзючжайгоу / JiuZhaiGou Valley World Heritage (2009) BDRip [HQ-Video]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_645942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Национальный парк "Долина Цзючжайгоу" это природный заповедник на севере Сычуани, провинции на юго западе Китая. Парк известен своими многочисленными многоуровневыми водопадами и красочными озерами. Цзючжайгоу был объявлен список Всемирного наследия ЮНЕСКО в 1992 году. Он относится к категории V (заповедной).Жанр: документальныйРежиссер: Чиен Кун /Chien Kun/Перевод: ОригинальныйФормат: AVI
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 216580   (645940) от 07.07.2010
-
-NG: Борт №1 / On Board Air Force One (2009) HDTVRip 720p
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_645940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это самый знаменитый самолёт на земле. Его миссия перевозить и защищать президента США. Присоединяйтесь к нам чтобы, как ни когда ранее, наблюдать перипетии американской истории. Наполненное ужасом небо 11 сентября... Посадка в полном опасностей раздираемом войной Багдаде... И первый официальный полёт с новым американским президентом... На борту ни с чем несравнимого (   Читать дальше...   )Производство: National GeographicЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 216676   (645929) от 07.07.2010
-
-Стильная штучка / Sweet Home Alabama (2002) DVDRip
+Китайские ворота / China Gate (1957) VHSRip [EN / RU, ES Sub]
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_645929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645650.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Комедия, МелодрамаРежиссер: Энди ТеннантАктеры: Риз Уизерспун, Джош Лукас, Патрик Демпси, Кэндис Берген, Мэри Кэй Плэйс, Фред Уорд, Джин Смарт, Итэн Эмбри, Мелани Лински, Кортни Гейнс и др.Перевод: ДублированныйПродолжительность: 01:44:21
+В 1954 году, во время французской войны в Индокитае, женщина контрабандист и группа французского иностранного Легиона наемников, проникает на вражескую территорию, чтобы уничтожить склад с оружием.Производство: США, Globe Enterprises See more.Жанр: Боевик, Военный, Драма, Приключения.Режиссер: Сэмюэл Фуллер.Актеры: Джин Бэрри, Энджи Дикинсон, Нэт «Кинг» Коул, Пол Дубов, Ли Ван Клиф.Перевод: Отсутствует.Язык субтитров: Русский, испанский.Продолжительность: 01:35:45.
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:EC707E595F61EFB0015A526FC88CF82021C1BA02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -357,34 +235,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 346033   (645916) от 05.06.2011
+###  Публикация: 906317   (645645) от 08.06.2015
 
-SunnyLand Bluesband - Discography (1997-2002) [FLAC, APE|Lossless]<Blues-Rock>
+USDownloader 1.3.5.9 (08.06.2015) Portable [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Universal Share Downloader - это программа для скачивания файлов. В первую очередь оптимизирована под скачивание (в том числе полностью автоматическое) с различных файлообменных серверов типа rаpidshаrе.cоm, LetitBit, Deposit и прочих, сайтов с видео YouTube.com, RuTube.com и прочих. Universal Share Downloader поддерживает более 120! Вам достаточно добавить в программу (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F07C3CBCE585E04934317F53400D8A0C46BF470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 346222   (645630) от 05.06.2011
+
+Шагай веселее, Дживс! / Step Lively, Jeeves! (1937) DVDRip
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: КомедияРежиссер: Юджин ФордеАктеры: Артур Тричер, Патриция Эллис, Роберт Кент, Алан Дайнхарт, Джордж Гивот, Хелен Флинт, Джон Харингтон, Джордж Купер, Артур Хаусман, Макс Вагнер ...Перевод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F7035E22F696D2B573B504B762203D77A158C38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 679780   (645616) от 15.07.2013
+
+VA - Vintage Reggae Cafe (2013) [MP3|320 кб/с]<Reggae>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_645916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645616.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Blues, Classic Rock, Southern RockПродолжительность: 00:57:05
-
-01. Slow Roll (5:25)
-02. Blue Suede Shoes (3:50)
-03. Birmingham Babe (3:13)
-04. Lets Talk (7:17)
-05. God Moves On The Water (4:00)
-06. Big Time (3:16)
-07. Waitig On The A.D.A.C (7:19)
-08. Same Old Blues (3:54)(   Читать дальше...)
+01. Natty Bong - Blue Jeans (04:17)
+02. Sublime Reggae Kings - Human (03:50)
+03. Freedom Dub - Somebody That I Used to Know (04:10)
+04. The Reggister's - Back to Black (03:40)(   Читать дальше...   )Жанр: ReggaeПродолжительность: 00:44:57
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:0B652649DBCFB1260C823559AC4E66B10ABC84E7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -392,54 +316,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 906465   (645883) от 08.06.2015
+###  Публикация: 517703   (645600) от 02.07.2012
 
-Анатомия дня (08.06.2015) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645883.jpg" />
-</div>
-
-
-###  Подробнее
-
-С момента появления жанра телевизионных новостей прошло более полувека. За это время то, что мы привыкли считать новостями, изменилось до неузнаваемости. Другой объем информации, невероятное количество спикеров и иное понимание самой сути информационного повода. Ответом на эту эволюцию станет новое ежедневное шоу «Анатомия дня», сочетающее в себе практически все (   Читать дальше...   )В выпуске: Умерла Джуна. Почему знаменитая целительница жила последние годы затворницей и что называла главной трагедией своей жизни? Персики раздора: как в Европе назревает раскол из-за антироссийских санкций и когда Греция выйдет из Евросоюза? Если есть борода, я скажу тебе «нет»: ученые признали мужской аксессуар рассадником бактерий. У кого из наших знаменитостей борода (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC04D18F75FF797F64E7FC63C9981CDF3EEE6D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905948   (645882) от 08.06.2015
-
-Mudcat - You Better Mind (2015) [MP3|320 кб/с]<Blues Rock>
+Being - Arrival [EP] (2011) [MP3|320 кб/с]<Progressive Metal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645600.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. When Mama's Happy (4:20)
-02. Calamity Jane (3:33)
-03. Falling (3:17)
-04. Spitting In The Eye Of The Devil (5:46)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:55
+1. Cosmonaut
+2. DNA
+3. A Glorious Dawn
+4. Story For A Muse
+5. A Part, Apart
+6. Perpetual Groove
+7. Arcane Academic
+8. Mindflay (Bonus Instrumental)Жанр: Progressive MetalПродолжительность: 00:42:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CFA0D2C0DA690B9F98FE36EB665095A490B20328
+magnet:?xt=urn:btih:F85EFB775ABB83A31D446E4CDB571FD60C9427DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -447,54 +349,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 679737   (645877) от 15.07.2013
+###  Публикация: 517870   (645599) от 02.07.2012
 
-СашаТаня (2013) WEBRip (cезон 1, серия 25)
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_645877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал про молодую семью Сергеевых. После окончания института Саша и Таня вместе со своим маленьким сыном Алёшкой решили пожить самостоятельно и сняли квартиру в Южном Бутово. Райончик конечно не из лучших, но зато и цены на жилье тут доступные, ведь Саша не собирается пользоваться миллиардами своего папы. Но Сильвестр Андреевич не собирается так просто отставать (   Читать дальше...   )Жанр: КомедияПродолжительность: 00:21:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032506   (645850) от 07.07.2016
-
-Sound Apparel - Requiem (2016) Single [MP3|320 Kbps] <Trance>
+VA - Avto Club Июль (2012) [MP3|320 kbps]<Club>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645599.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Requiem (Original Mix) (10:27)
-02. Requiem (Uplifting Mix) (9:24)
-03. Requiem (Orchestral Mix) (5:08)
-04. Requiem (Extended Mix) (11:17)Жанр: TranceПродолжительность: 00:36:16
+01. Darius & Finlay feat. Carlprit & Nicco - Do It All Night 2k12 (CK Stone Mix Edit)
+02. Oliver Giacomotto, David Amo & Julio Navas - Get Together (Original Mix)
+03. Young Rebels & Francesco Diaz - Timbuktu (Daniel Ortega & Mike Moorish Remix)
+04. Madonna - Frozen '12 (Junior Mix Tribalicius Mix)
+05. NataShe & Adriana - Here & Now (Original Mix)
+06. Erick Morillo, Eddie Thoneick - If This Aint Love (Baggi Begovic Remix)
+07. Jim Noize - Play Girl (C.W.C.G. Extended Mix)
+08. Manuel Sahagun - You Make It Easy (Original Mix)
+09. Michael S. - Rewind (Extended Mix)
+10. Bladi feat. Dr Mako - Alive (Extended Mix)(   Читать дальше...   )Жанр: ClubПродолжительность: 05:03:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB139404556A015018FDED952BFB671BFD7C8991
+magnet:?xt=urn:btih:46AF1A1489786BFBA945B04CC8FEFBC9CFC4887E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -502,173 +384,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032363   (645849) от 07.07.2016
+###  Публикация: 517540   (645596) от 02.07.2012
 
-Футбол. Чемпионат Европы 2016. 1/2 финала. Португалия - Уэльс (06.07.2016) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645849.jpg" />
-</div>
-
-
-###  Подробнее
-
-06 июля 2016, среда. 22:00 МСК
-1/2 финала
-Стадион:  Стад де Люмьер (Лион, Франция) , 55679 зрителей (94 % при вместимости 59500)
-Главный судья:  Юнас Эрикссон (Сигтуна, Швеция)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: русский (Михаил Мельников (превью), Константин Генич, Роман Гутцайт)Продолжительность: 02:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:724407A6C8398039E3CD3E4141D0F62035DC1956
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032492   (645848) от 07.07.2016
-
-Alex Wright - Golden Gate (2016) Single [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golden Gate (Extended Mix) (7:28)Жанр: TranceПродолжительность: 00:07:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68A97ABEF8F6748D9AE89B07D1A29AC1A78D474C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032348   (645841) от 07.07.2016
-
-Футбол. Чемпионат Европы 2016. 1/2 финала. Португалия - Уэльс (06.07.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645841.jpg" />
-</div>
-
-
-###  Подробнее
-
-06 июля 2016, среда. 22:00 МСК
-1/2 финала
-
-Стадион: Стад де Люмьер (Лион, Франция) , 55 679 зрителей (94 % при вместимости 59 500)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Михаил Мельников (превью), Константин Генич, Роман Гутцайт)Продолжительность: 02:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A221FE0125CE452F22E046CFFBCCF255FA7C578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517654   (645837) от 02.07.2012
-
-Merendine - New World Disorder (2012) [MP3|320 kbps] <Thrash Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The New Rebels (03:34)
-02. Revolution (04:03)
-03. We Know The Trick (04:32)
-04. Stand Up And Fight (05:11)
-05. Declaration (04:38)
-06. New World Disorder (04:41)
-07. Servants (04:43)
-08. Blind People (03:07)
-09. Freedom (05:15)
-10. Spin Doctors (03:54)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BF93D2DDEE0E31BF85D459E81F9DDDB4D0C7F84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516690   (645836) от 02.07.2012
-
-Myon & Shane 54 - International Departures 135 (2012-06-28) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	International Departures - Intro	(00:24)
-02.	Armin van Buuren feat. Nadia Ali vs. Thomas Gold - Who's Watching Marsch (Myon & Shane 54 Mashup)	(05:15)
-03.	Garrido & Skehan feat. Isobel Mai - Stay (EDU Remix)	(06:20)
-04.	Stereo Palma feat. Craig David - Our Love (Myon & Shane 54 Summer Of Love Remix)Жанр: TranceПродолжительность: 00:59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B67D14B0D409EA0B30380BDCB632E6757E4300E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517528   (645835) от 02.07.2012
-
-[Wallpapers] Nature Wallpapers (01.07.12)
+[Графика] Художник Александр Павленко
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645596.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Nightrhino (John Connell)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E40216066CA6D1D215E043377D6D54E30541C5C
+magnet:?xt=urn:btih:81EF6326AF6F64ACC14C23B084092CB09E637485
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -676,25 +410,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 517527   (645832) от 02.07.2012
+###  Публикация: 518116   (645595) от 02.07.2012
 
-[Wallpapers] Best HD Wallpapers Pack (01.07.12)
+Журнал | Yes! №163 [Июль 2012] [PDF]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645595.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Yes! – авторитетный советчик, чье мнение очень важно для его молодой и активной аудитории. Журнал говорит на одном языке со своими читателями обо всех важных для них проблемах.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A68DB0FFE619BCB20EEA4F2F002E3E19EF2D1E2E
+magnet:?xt=urn:btih:74D0796DC5B97CB795DD61EC08AA7B259780AFA1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -702,33 +436,287 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 517947   (645831) от 02.07.2012
+###  Публикация: 518016   (645593) от 02.07.2012
 
-Shamanizm Parallelii - Psychedelic Dreams (2012) [MP3|320 кб/с]<Downtempo>
+VA - Танцевальный Хит Стандарт (2012) [MP3|256 кб/с]<Dance, Pop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645593.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Space Calling (6:37)
-2. Bells Of Time (3:21)
-3. Second Fall (0:55)
-4. Datura (6:17)
-5. Dream's Diver (7:54)
-6. Dead Stars Traces (5:07)
-7. Very Strange Dream (3:20)
-8. I Cant Speak English As Well As Afro American But I Can Think The Same Way (5:29)
-9. Psychedelic Dreams (6:28)Жанр: DowntempoПродолжительность: 00:45:28
+001. David Guetta feat. Usher - Without You
+002. Chris Garcia feat. Sherry St Germain - I Rock Alone
+003. Jessie J Feat. B.O.B - Price Tag
+004. Paul van Dyk feat. Austin Leeds - Verano (Original Edit)
+005. Linkin Park - Iridescent
+006. Inna - House Is Going On (Radio Edit)
+007. Jay Sean Ft. Pitbull - I'm All Yours (Full Official Version)
+008. Picco - Mi Cafe (Ph Electro Remix Edit)
+009. Bryce Feat. Carlprit - Dance With Me 2011
+010. Christina Aguilera - Express (Radio Edit)(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 05:47:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C49E853C1D1C0244226FC98B34E966BF70F2B7E
+magnet:?xt=urn:btih:C565E7D55C3E5ACE53BCD5255FA10B9ABE935205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517942   (645587) от 02.07.2012
+
+VA - German TOP 100 Single Charts (01.07.2012) [MP3|186-283 кб/с]<Dance, Club, Vocal, House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Toten Hosen - Tag Wie Diesen 04:28
+02. Linkin Park - Burn It Down 03:51
+03. Loreen - Euphoria 03:02
+04. Carly Rae Jepsen - Call Me Maybe 03:14
+05. Tacabro - Tacate 03:31
+06. Flo Rida - Whistle 03:45
+07. Oceana - Endless Summer 03:12
+08. Lykke Li - I Follow Rivers 04:41
+09. Maroon 5 Feat. Wiz Khalifa - Payphone 03:51
+10. Of Monsters And Men - Little Talks 04:26(   Читать дальше...   )Жанр: Dance, Club, Vocal, HouseПродолжительность: 06:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6558E1BFFF65A4D0AF6D8C5913777D8685C69162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032434   (645578) от 07.07.2016
+
+Dr.Web LiveDisk CD/USB 9.0.0 (06.07.2016) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dr.Web LiveDisk - бесплатное загрузочное антивирусное решение на базе Linux и CureIt! для восстановления зараженной системы Windows.
+Новое средство заменяет Dr.Web LiveUSB и позволяет создавать загрузочный USB-носитель. Dr.Web LiveDisk USB - антивирусный загрузочный носитель для восстановления работоспособности системы Windows, зараженной вирусами, руткитами или (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B69A39FA717C40458E55491541E22374363B19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032101   (645574) от 07.07.2016
+
+VA - Sounds of Reggae Vol 1 (The Best of Reggae and Dancehall Selected by Sly and Robbie) (2016) [MP3|320 Kbps] <Reggae>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bob Marley – Soul Rebel 03:42
+02. Sly & Robbie – Wedding Anniversary 04:48
+03. Black Uhuru – Aquarius 04:14
+04. Third World – Dem Man Deh 03:52(   Читать дальше...   )Жанр: ReggaeПродолжительность: 04:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D01CC40D63EC53263884008A1FFBAD8FF453451
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 216831   (645542) от 07.07.2010
+
+Жизнь и необычайные приключения солдата Ивана Чонкина (1994) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_645542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноименной сатирической книги Владимира Войновича.
+
+В небольшой деревушке Красное совершает вынужденную посадку военный самолёт У-2. Командование не имеет возможности отбуксировать самолёт и решает выставить возле него часового.
+В воинской части неподалёку от Красного проходит службу рядовой Иван Чонкин. Неказистый и простодушный солдат, с внешностью, далёкой от образцового воина, отбывает воинскую обязанность в хозяйственном подразделении полка, занимаясь тем, что убирает навоз. Именно его командование отряжает на пост возле самолёта в деревне Красное...Жанр: КомедияРежиссер: Иржи Менцель.Актеры: Геннадий Назаров, Зоя Буряк, Владимир Ильин, Валерий Золотухин, Алексей Жарков и др.Продолжительность: 01:45:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906325   (645533) от 08.06.2015
+
+VueScan Pro 9.5.14 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645533.jpg" />
+</div>
+
+
+###  Подробнее
+
+VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 700 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1CD30621F1E69604ED1C1DE8A9F3D7019D7654E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906455   (645532) от 08.06.2015
+
+Macgo Windows Blu-ray Player 2.15.1.1979 RePack (& Portable) by AlekseyPopovv [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Blu-ray Player – это лучший проигрыватель для воспроизведения Blu-ray видео и просмотра HD Blu-ray дисков, а также видео и музыки во многих других форматах в ОС Windows. Плеер очень удобен в использовании, не прихотлив, имеет приятный дизайн и интуитивно понятный интерфейс, поддерживает аппаратное ускорение, что увеличивает производительность при умеренном (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F612E5A7F978DAE302A0E7242E928A558FA066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906406   (645529) от 08.06.2015
+
+Disarmonia Mundi - Cold Inferno (2015) [FLAC|image+.cue]<Melodic Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creation Dirge (5:28)
+02. Stormghost (4:25)
+03. Behind Closed Doors (3:16)
+04. Coffin (4:01)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5D2984996A8457E0B3BAAC2C1CB0DF1B06AFA06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906260   (645525) от 08.06.2015
+
+VueScan Pro 9.5.14 RePack (& Portable) by AlekseyPopovv [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645525.jpg" />
+</div>
+
+
+###  Подробнее
+
+VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 700 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:459D842F08B08D4EEDC56C1663CA197629D34199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906506   (645523) от 08.06.2015
+
+Vivaldi 1.0.196.2 Technical Preview [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto. Внешний вид (   Читать дальше...   )Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD18FC7AC7E0F5ABCC87E04B5CC25645C14540E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

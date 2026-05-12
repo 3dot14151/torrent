@@ -1,3 +1,32 @@
+###  Публикация: 1491661   (908724) от 26.08.2021
+
+Xu & Darren Harper - Arising & Ceasing Of Things (2021) Rottenman Editions [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flickering Of Shadows & Leaf (03:40)
+ 02. A Dove Singing Near Broken Glasses (08:08)
+ 03. Early Morning Chords (08:32)
+ 04. Arising & Ceasing Of Things (07:38)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC22D1293DFDE49FCAF20C40D811285F5E8EBCEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991505   (905912) от 28.02.2016
 
 Moby - Hotel : Ambient (2014) Reissue [FLAC|Lossless|tracks + .cue] <Ambient>
@@ -707,33 +736,6 @@ Juta Takahashi - Collection 7 Releases (2007-2019) Lunisolar Records [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F180D3EDC728550786B3A9F36228F80D81149B1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038936   (830769) от 04.05.2020
-
-Massimo Magrini (Bad Sector, Olhon) - Discography 46 Releases (1995-2019) [FLAC|Lossless|tracks+.cue, tracks] <Dark Ambient, Industrial, Experimental, Noise, Ambient>
-
->>След.
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Part I (19:00)
- 02. Part II (19:00)Тип издания: CD, Vinyl, WebЖанр: Dark Ambient, Industrial, Experimental, Noise, Ambient •Продолжительность: 37:38:55 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:766AC707973B107A45459E06EBD4D76A3E82C50B
 ```
 
 https://mybot314.ru/tekegram_catalog/

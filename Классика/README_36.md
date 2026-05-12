@@ -1,3 +1,73 @@
+###  Публикация: 570658   (387194) от 07.11.2012
+
+Stockholm Baroque Orchestra / Maria Lindal - Dancing Bach (2006) [DST 5.0, 2.0 1bit/2822,4kHz |SACD-R]<Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Suite No. 2 In B Minor BWV 1067
+1. Ouverture
+2. Rondeau
+3. Sarabande
+4. Bourree I & II
+5. Polonaise & Double
+6. Menuet (Violin 1: Lars Warnstad)
+7. Badienerie
+Sonata In G BWV 1021 (Maria Lindal, Violin)
+8. Adagio(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F9E86B81259C46D6DBF1E102124D77EF4652B81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570741   (387068) от 07.11.2012
+
+Brecon Baroque, Rachel Podger - J.S. Bach - Violin Concertos (2010) [DST 5.0, 2.0 1bit/2822,4kHz |SACD-R]<Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto In A Minor, BWV 1041
+1. Allegro
+2. Andante
+3. Allegro Assai
+Concerto In E Major, BWV 1042
+4. Allegro
+5. Adagio
+6. Allegro Assai
+Concerto In G Minor After BWV 1056
+7. Allegro(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B6BEA72D0DE5DD61826292459678E7FC3CBB91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570791   (386772) от 07.11.2012
 
 Knud Vad - J.S. Bach: Complete Organ Works (2005) Box Set 18SACD [DST 5.1, 2.0|1bit/2.8 MHz |SACD-R]<Classical>
@@ -691,61 +761,6 @@ Andrea Bocelli - Cinema (2015) Deluxe Edition [MP3|320 кб/с]<Pop/Classical Cr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D25FF9243F0BC7D345D831008C1E2A4465390D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327848   (366020) от 29.09.2019
-
-Piano Novel - Lumino Forest (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melody for a Constellation (4:19)
- 02. Connected Colors (3:46)
- 03. Scintillations (2:45)
- 04. Cosmoflower (2:29)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57DF7783702E56FCDE03B1BDA8CE88706B3CF09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574204   (365595) от 16.11.2012
-
-Beethoven - Complete Piano Sonatas, Kurfursten Sonatas, Sonatinas: Peter Takacs (2011) 11 Hybrid SACD Box Set [FLAC|Lossless]<Classical/Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical/PianoПродолжительность: 01:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3154FE2D773054B95E04E7F8838AB90B63A6422
 ```
 
 https://mybot314.ru/tekegram_catalog/

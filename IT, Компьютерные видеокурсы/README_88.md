@@ -1,3 +1,31 @@
+###  Публикация: 1652724   (194313) от 13.08.2023
+
+Stepik, Илья Фофанов | React - Полное руководство (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный курс предназначен для тех, кто много слышал о библиотеке React, но при этом ни разу полноценно не пробовал поработать с ней.
+Обучение построено вокруг небольшого учебного проекта, который вы начнете разрабатывать практически с первых лекций.
+Таким образом, по мере разработки вы будете гармонично подходить к каждой следующей теме, изучая ее применительно к (   Читать дальше...   )Производство: StepikЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 13:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F12F766EEE47A1E6DD1C5F62B889D540ABA41A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653406   (194269) от 16.08.2023
 
 Andrii Piatakha | Software Architecture and Clean Code Design in OOP (2022) WEBRip [EN]
@@ -692,34 +720,6 @@ Thinknetica Pro, Анна Буянова | Старый Добрый Код: к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AED485B8898C9924A138F58ADA0D46CB4E27987D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658200   (191405) от 07.09.2023
-
-Udemy, Very Academy, Zander | Full Stack - React Django DRF Channels Project - djChat (2023) WEBRip [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191405.jpg" />
-</div>
-
-
-###  Подробнее
-
-The course focuses on building a chat server administration API and integrating it with a front-end templating framework. It also covers API integration and building chat services with features like authentication.
-
-The first module covers source control and project initiation, including creating a new Django DRF project and configuring environment variables. It (   Читать дальше...   )Производство: Udemy, Very AcademyЖанр: React, Typescirpt, Django, DRF, RESTЯзык озвучки: АнглийскийПродолжительность: 28:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5223D6B5B6435B5C1AA18E2F4C3E6379CE4DE51A
 ```
 
 https://mybot314.ru/tekegram_catalog/

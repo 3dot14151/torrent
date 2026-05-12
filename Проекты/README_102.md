@@ -1,3 +1,57 @@
+###  Публикация: 1012206   (794456) от 30.04.2016
+
+Проекты - VideoHive - Cinematic Parallax [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слайд шоу.
+Проект для использования в After Effect.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E5EC5980C00B858D61784D4DF7C1C7D2BF9C5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012254   (794454) от 30.04.2016
+
+Проекты - VideoHive - Big Titles Pack - 15078771 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Титры для Вашего творчества.
+Проект для использования в After Effect.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E68256198CE901B919E093A604091049733578E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012222   (794446) от 30.04.2016
 
 Проекты - VideoHive - Quick Logo Sting Pack 10: Clean Rotation [AEP]
@@ -627,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13AC4551355F25AC96677B8804DF62047BF91B1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386628   (793280) от 30.05.2020
-
-Проекты - VideoHive - Travel Map USA - United States of America - 25922874 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект предназначен для построения маршрута путешествия по США... Дерзайте!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0273E059D86ED91A52EAD0EE252652BB5769148
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386834   (793164) от 30.05.2020
-
-Проекты - VideoHive - Movie Title - Speed Racer - 25799491 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Динамичный кинематографический проект с текстовой последовательностью. Можно использовать для рекламы предстоящих событий в мире авто и мото спорта, экстремальных видах спорта и других событий.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BFE86B593B73483E3A0134E0E8EFD94E9979784
 ```
 
 https://mybot314.ru/tekegram_catalog/

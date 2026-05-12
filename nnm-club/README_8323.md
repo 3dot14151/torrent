@@ -1,74 +1,21 @@
-###  Публикация: 1528986   (733569) от 04.02.2022
+###  Публикация: 1528468   (734482) от 02.02.2022
 
-Сайонара / Sayonara (1957) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по одноимённому роману Джеймса Миченера. Майора Ллойда Грувера, героя авиации, переводят из Кореи в Японию. Он противник межрасовых браков, в том числе брака его сослуживца Джо Келли, решившего жениться на японке. Тем не менее, по просьбе Джо, майор становится свидетелем на их свадьбе. У Ллойда не складываются отношения с Эйлин Уэбстер, дочерью генерала; у (   Читать дальше...   )Производство: США, Pennebaker Productions, William Goetz ProductionsЖанр: драма, мелодрамаРежиссер: Джошуа ЛоганАктеры: Марлон Брандо, Патриция Оуэнс, Джеймс Гарнер, Марта Скотт, Миико Така, Миёси Умэки, Ред Баттонс, Кент Смит, Дугласс Уотсон, Рэйко КубаПеревод: профессиональный многоголосый (SomeWax), профессиональный двухголосый (НТВ+ ( Елена Борзунова и Олег Мартьянов))Субтитры: русские, английские SDHПродолжительность: 02:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1192A028BF1174D52515DE460234987A3A5DB7A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528958   (733568) от 04.02.2022
-
-Пол Тремблей | Голова, полная призраков (2021) [MP3, Вероника Райциз]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733568.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 лет назад.
-Жизнь семьи Барретт рушится, когда они узнают о диагнозе своей четырнадцатилетней дочери Марджори. У девочки все признаки острой шизофрении, и, к отчаянию родителей, врачи не в силах остановить ее безумие. Тогда Барретты обращаются к священнику, который предлагает провести обряд экзорцизма, веря в то, что в Марджори вселился демон. А чтобы покрыть бесконечные (   Читать дальше...   )Жанр: Мистический триллерПродолжительность: 09:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA5DB7E06537C23D086DC14DEA7DBEBA7FE30CB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528974   (733567) от 04.02.2022
-
-VA - Best New Hype: Deep Tech House (2022) [MP3|320 Kbps] <Deep, Tech House, Electro>
+VA - Unlockations (2020) [AAC|~330 Kbps] <Deep House, Organic House>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_734482.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Откройте для себя бесконечные возможности электронной музыки со сборником Best New Hype. Музыка представляемого сборника, по сути является экспериментальной и слушать ее - это как исследование творческого процесса современных музыкантов-новаторов.001. Funkwise - Swing High
-002. Venice Monster Pets - Not Your Hands
-003. Tlazohtla - Profundidades
-004. House Nerds Sa - Yorubas In Amazon(   Читать дальше...   )Жанр: Deep, Tech House, ElectroПродолжительность: 09:52:12
+01. Slow Hearts - Balance Bird (Original Mix) (9:48)
+02. Birds of Mind - Orissa (Original Mix) (6:46)
+03. Lauge, Alvaro Suarez - Nordic Skies (Original Mix) (7:52)
+04. Death On The Balcony - How Many Roads (Original Mix) (9:26)(   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 01:19:34
 
 ## Скачать торент
 ```bash
@@ -80,84 +27,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528943   (733566) от 04.02.2022
+###  Публикация: 1528470   (734481) от 02.02.2022
 
-Пётр Налич - Vivamus (2022) [MP3|320 Kbps] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733566.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Izza Love
-2. Sampo
-3. Бури
-4. За море(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081F19AD8D8AE6BCBC1944823CE5792E5C96753F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528799   (733565) от 04.02.2022
-
-Tony Martin - Thorns (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший вокалист BLACK SABBATH Tony Martin назвал свой новый сольный альбом "Thorns".
-
-В числе гостевых музыкантов, которые появятся на диске – Danny "Dante" Needham (VENOM), Magnus Rosen (ex-HAMMERFALL), Scott McClellan, Greg Smith и младший сын Мартина Joe.01. As The World Burns
-02. Black Widow Angel
-03. Book Of Shadows
-04. Crying Wolf(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE192CE34BA42A3EC1E761C1297A98AE1B188F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529007   (733564) от 04.02.2022
-
-VA - Fields Of Gold: Easy Listening Music (2022) [MP3|320 Kbps] <Easy Listening, Funk>
+VA - Unlockations, Vol. 2 (2021) [AAC|~331 Kbps] <Deep House, Organic House>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_734481.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Для треков этого сборника характерны простые, легко запоминающиеся мелодии, доступность музыкального языка и некая "несерьёзность". Тем не менее,такая музыка охватывает различные музыкальные жанры, предназначенные в основном для развлекательных целей, нередко служащие фоном для различных занятий, отличающиеся несложным содержанием и легко доступным для (   Читать дальше...   )001. Polinesia - What Lovers Do
-002. Great Lake Swimmers - What Was Going Through My Head
-003. Les Baxter - Jealousy
-004. Ariah - Dharma(   Читать дальше...   )Жанр: Easy Listening, FunkПродолжительность: 05:59:02
+01. Nodo - Secret Valley (6:26)
+02. Mundos Sutis - What Do You Picture (7:18)
+03. Mule Arg - Reikishi (7:52)
+04. Marian (AR) - Ancient Soul (7:12)(   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 01:16:42
 
 ## Скачать торент
 ```bash
@@ -169,24 +56,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528781   (733563) от 04.02.2022
+###  Публикация: 1528471   (734480) от 02.02.2022
 
-Korn - Requiem (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative-Metal, Nu-Metal>
+VA - Unlockations, Vol. 3 (2021) [AAC|~322 Kbps] <Deep House, Organic House>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_734480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Forgotten (3:17)
-02. Let The Dark Do The Rest (3:40)
-03. Start The Healing (3:28)
-04. Lost In The Grandeur (3:50)(   Читать дальше...   )Жанр: Alternative-Metal, Nu-MetalПродолжительность: 00:32:41
+01. Nodo - Murmur (6:56)
+02. Niko Garcia - Forgiveness (8:09)
+03. Peshta Gora - Gde to Tam (7:32)
+04. Ilias Katelanos - Spring Dayz (6:59)(   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 01:14:13
 
 ## Скачать торент
 ```bash
@@ -198,55 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529028   (733562) от 04.02.2022
+###  Публикация: 1528472   (734479) от 02.02.2022
 
-Дуглас  Стюарт | Шагги Бейн (2022) [MP3, Амир Рашидов]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Победитель Букеровской премии 2020 года. Роман такой сокрушительной силы, настолько пронзительный и настоящий, что своей болезненной искренностью влюбил в себя тысячи читателей.
-Агнес Бейн, когда выпьет, спит крепко. Малыш Шагги ставит на ей на тумбочку четыре кружки. Вода – утихомирить похмелье. Молоко – успокоить желудок. Остатки выдохшегося стаута – снять напряжение (   Читать дальше...   )Жанр: Cовременная зарубежная литератураПродолжительность: 17:24:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAA4825D77050B87B7850E8DA7BB555B4F19D771
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529038   (733561) от 04.02.2022
-
-ППК - Воскрешение (2001) [AAC|~321 Kbps] <Electro>
+VA - Lo-Fi Dose to Chill: Chillout Your Mind (2022) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo, Lo-Fi>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734479.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Воскрешение (Space Club Mix) (8:04)
-02. Воскрешение (Wellenrausch Remix) (6:47)
-03. Воскрешение (MaUVe Remix) (8:00)
-04. Воскрешение (Trailer Trash Remix) (8:23)(   Читать дальше...   )Жанр: ElectroПродолжительность: 00:43:50
+01. Living Room - Holy Moly – That's a Groove (3:08)
+02. Digby Jones - Mr Big (Original Mix) (4:40)
+03. Patiotic - Acoustic Brain (1:59)
+04. Dellasollounge - Don't Go (Original Mix) (2:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, Lo-FiПродолжительность: 00:55:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB4A1CCF1386E10A5E6AF5EE8539CAEDCD4EFD4A
+magnet:?xt=urn:btih:CA4C88D93884B3A29C6B6915A4D803CB96C70476
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -254,24 +114,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528928   (733560) от 04.02.2022
+###  Публикация: 1528463   (734478) от 02.02.2022
 
-VA - Trance 2021 Top 100 (2022) [MP3|320 Kbps] <Trance, Vocal Trance>
+Darpan & Bhakta - Temple of Glowing Sound, Vol. 2 (2006) [AAC|~314 Kbps] <Tribal, Downtempo, Trance>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_734478.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Steve Allen & Paul Skelton feat. Deirdre McLaughlin - Fairytales (Original Mix) (3:41)
-002. 4 Strings & Trance Classics feat. Ellie Lawson - Safe From Harm (Omar Sherif Remix) (3:23)
-003. Michael Angelo & Solo - Every Time We Said Goodbye 2021 (Original Mix) (3:30)
-004. BiXX - The High Road (Original Mix) (3:36)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 06:02:58
+01. Astral Flight (4:57)
+02. Telepathine (4:36)
+03. Axis Mundi (9:35)
+04. Neural Pathways (3:07)(   Читать дальше...   )Жанр: Tribal, Downtempo, TranceПродолжительность: 00:51:29
 
 ## Скачать торент
 ```bash
@@ -283,57 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528767   (733559) от 04.02.2022
+###  Публикация: 1528458   (734477) от 02.02.2022
 
-Korn - Requiem (2022) [FLAC 2.0|96/24|tracks|WEB-DL] <Alternative-Metal, Nu-Metal>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forgotten (3:17)
-02. Let The Dark Do The Rest (3:40)
-03. Start The Healing (3:28)
-04. Lost In The Grandeur (3:50)(   Читать дальше...   )Жанр: Alternative-Metal, Nu-MetalПродолжительность: 00:32:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529021   (733558) от 04.02.2022
-
-Mr.Credo - Fantasy (2013) [AAC|~349 Kbps] <Dance>
+Bhakta - India all Over (2003) [AAC|~291 Kbps] <Tribal, Downtempo, Trance>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734477.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (3:09)
-02. Hsh-Bola (5:16)
-03. Huligano (3:41)
-04. Technomafia (5:15)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:01:38
+01. Om Namo (5:24)
+02. The Wheel (4:36)
+03. That Secret Word (4:02)
+04. Lord Shiva (4:10)(   Читать дальше...   )Жанр: Tribal, Downtempo, TranceПродолжительность: 01:06:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9B8FCB1800999C751745F7D8B583551796CDC98
+magnet:?xt=urn:btih:6300E381C3D8F5A0E2EB6EC755FE5030B3BC206A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -341,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528954   (733557) от 04.02.2022
+###  Публикация: 1528462   (734476) от 02.02.2022
 
-VA - Hard Rock Advanced (2022) [MP3|320 Kbps] <Metal, Hardcore, Hard Rock>
+Darpan & Bhakta - Temple of Glowing Sound, Vol. 1 (2006) [AAC|~341 Kbps] <Tribal, Downtempo, Trance>
 
->>нет
->>нет
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734476.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это не об одиночестве. Скорей о безысходности, о конце, о смерти чего-то: любви, жизни, надежд. Гениальность музыки хард рока в том, что каждый вкладывает свой философский смысл в песни через призму своего восприятия. И неважно, какой это смысл. Ведь правда у каждого своя!001. Soul Glo - B.O.M.B.S.
-002. Suidakra - Vortex Of Carnage
-003. Upper Lip - Mirrors & Masks
-004. Endless Chain - All Of The Above(   Читать дальше...   )Жанр: Metal, Hardcore, Hard RockПродолжительность: 09:10:31
+01. Blessing (1:55)
+02. Om Tara (5:06)
+03. Reflections (5:44)
+04. Jai Ma (4:12)(   Читать дальше...   )Жанр: Tribal, Downtempo, TranceПродолжительность: 00:53:53
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:E68889A0D6C793889DDCB33298CA10076E4C6C2C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -370,26 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528967   (733556) от 04.02.2022
+###  Публикация: 1528465   (734475) от 02.02.2022
 
-Рука могущества / Im Banne des Unheimlichen (1968) BDRip [H.264]
+VA - Ibiza Live Radio 2 (2019) [AAC|~318 Kbps] <Chill Out, Downtempo, Deep House>
 
->>нет
->>нет
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734475.jpg" />
 </div>
 
 
 ###  Подробнее
 
-26-й фильм кинокомпании Rialto по произведениям Эдгара Уоллеса.
-Во время похорон богатого и влиятельного сэра Оливера из его гроба раздается зловещий хохот. Журналистка местной газеты Пегги Уорд, ставшая личной свидетельницей этих странных событий, пишет об этом статью, чем вызывает в городе настоящую панику среди жителей. Дело в том, что сэр Оливер был знаменит (   Читать дальше...   )Производство: Германия (ФРГ) / Rialto Film Preben-PhilipsenЖанр: Триллер, Криминал, ДетективРежиссер: Альфред ФорерАктеры: Йоахим Фуксбергер, Хуберт фон Майеринк, Сив Маттсон, Вольфганг Килинг, Пинкас Браун, Клод Фаррель, Петер Мосбахер, Зигфрид Раух, Отто Штерн, Ренате ГроссерПеревод: Многоголосый профессиональный, Петербург 5-й каналСубтитры: НемецкиеПродолжительность: 01:28:47
+01. Marga Sol - Crystal Light (Original Mix) (5:48)
+02. Helly Larson, Miss Disk - Deep Dreams (Original Mix) (6:58)
+03. Darles Flow - Myth of Living (Original Mix) (6:18)
+04. Miss Luna, Q Derhino - Welcome to the Family (Original Mix) (6:33)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Deep HouseПродолжительность: 01:32:06
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:5BFCF09AFD17104F060B339B78828F6BA7FDF470
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -397,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529009   (733555) от 04.02.2022
+###  Публикация: 1528459   (734474) от 02.02.2022
 
-VA - New Release Dancehall (2CD) (2022) [MP3|320 Kbps] <Dancehall, Riddim, Dub, Reggaeton>
+Bhakta - Snow on Venus (2003) [AAC|~345 Kbps] <Tribal, Downtempo, Trance>
 
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734474.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это направление музыки, которая объединяет людей по всему миру, где нет разделения на бедных и богатых, плохих и хороших, это социальная танцевальная музыка с жарким колоритом Latino, которая родилась на уличных вечеринках, а не в душном зале.CD 01:
-
-001. Sizzla - Baddest Man
-002. Terror Fabulous - Call For Peace(   Читать дальше...   )Жанр: Dancehall, Riddim, Dub, ReggaetonПродолжительность: 10:58:16
+01. One Traveling Snowflake (1:39)
+02. Bhakta, Chirag - Unknown Territory (6:57)
+03. Manish, Bhakta - Snow on Venus (12:40)
+04. Nadama, Bhakta - Falling Leaf (4:55)(   Читать дальше...   )Жанр: Tribal, Downtempo, TranceПродолжительность: 00:56:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1BB149079834E6F9DF5BE708CA22F244F014801B
+magnet:?xt=urn:btih:2F14F4800BE8DE48A4A29DD4ACA6004B1CA3F773
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -426,25 +259,172 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529019   (733554) от 04.02.2022
+###  Публикация: 1528464   (734473) от 02.02.2022
 
-Calibre 5.36.0 + Portable [Multi/Ru]
+VA - Ibiza Live Radio 1 (2018) [AAC|~326 Kbps] <Chill Out, Downtempo, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CarolinaBlue & MisterSmallz - Free Your Mind (Original Mix) (8:04)
+02. Lenny Fontana, D-Train - When You Feel What Love Has (NYC Deeper Dubb Mix) (7:31)
+03. Miss Luna - Move with You (Original Mix) (5:52)
+04. Mathew Brabham, DJ Nasty Deluxe - In the Jungle (Marga Sol & Darles Flow Remix) (5:46)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Deep HouseПродолжительность: 01:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:244FD40FF04CC50A61BE066D8F9C6200D45BECCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528466   (734472) от 02.02.2022
+
+VA - The Best of Lump Records (2020) [AAC|~320 Kbps] <Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omerar Nanda - Some God Ruled It (7:20)
+02. Hot Oasis - Wadi Tarabin (7:31)
+03. Dandara - Mira La Luna (6:14)
+04. Jota Karloza - Om Kleem (7:26)(   Читать дальше...   )Жанр: Organic HouseПродолжительность: 02:32:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77534F3EB2C6A2F5A555D0C63F3AA223C0CDB4F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528525   (734471) от 02.02.2022
+
+VA - Beyond the Sunset (Selected Chill out Tunes), Vol. 4 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris le Blanc, Pat Lawson - Beyond the Sunsets (Ibiza Late Night Mix) (4:59)
+02. Jason Cabrera - Red Apple (Original Mix) (3:07)
+03. Gaba Milani - Open Your Eyes (Original Mix) (5:02)
+04. Las Dalias Ensemble - Sundown At Cafe del Mar (Original Mix) (3:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:21:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB2AD6B20520329FBBB1486295E741A9BDE0E63D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528523   (734470) от 02.02.2022
+
+VA - Beyond the Sunset (Selected Chill out Tunes), Vol. 2 (2021) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stefano Monza - People from Ibiza (Chill-Out Mix) (4:12)
+02. Mikis Theodorakis, Francesco Diaz - Desire (Chilling Chambers) (Original Mix) (4:26)
+03. Chill Out Hotel - Human (Original Mix) (5:24)
+04. Eva Pacifico - Caliente (Lenny Ibizarre Remix) (8:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ECD9347D7FEAF0C043A695F85212393F8559A55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528524   (734469) от 02.02.2022
+
+VA - Beyond the Sunset (Selected Chill out Tunes), Vol. 3 (2021) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nolan Rivera - Farra (Original Mix) (4:02)
+02. Eskadet - Translation (Original Mix) (4:34)
+03. Mikis Theodorakis, Francesco Diaz - Remembering Zorbas (Original Mix) (5:08)
+04. Lazy Hammock - Star Soul (Original Mix) (7:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D87FD7F9E744442C476FDF823859502C63F4C9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528595   (734468) от 02.02.2022
+
+UctoX 2 v2.9 U2B [Multi]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734468.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Calibre - простая и удобная программа для управления библиотекой и универсальный конвертер электронных книг с большим количеством возможностей. Программа поможет упорядочить вашу библиотеку книг без особых трудностей. Также в её состав входят: утилита для преобразования одного формата в другой, интегратор новостей, программа для синхронизации данных с электронным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+UctoX - это мощное приложение для выставления счетов, которое позволяет оставаться удобным для пользователей, предлагая широкий спектр функций для управления финансовыми отчетами.
+Управлять финансовыми документами вашей компании, отслеживать счета-фактуры, банковские выписки, инвестиции и многое другое, с помощью этого интуитивного приложения
+Если вы управляете малым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.02.2022Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63892A2CFDF16EAB4C6986F5F44378C5C8279130
+magnet:?xt=urn:btih:093A82465606563B78A914D6FBCF999F2150F149
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -452,21 +432,82 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529069   (733553) от 04.02.2022
+###  Публикация: 1528488   (734467) от 02.02.2022
 
-Тимоти Зан | Звёздные Войны / Траун: приквелы (Книга 3). Измена (2021) [MP3, Павел Константиновский]
+Count Basie - Live At The Savoy (1954) 1989, LaserLight [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
 
->>нет
->>нет
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734467.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Если я буду на службе Империи, то буду верен вам». Такое обещание дал гранд-адмирал Траун Императору Палпатину во время их первой встречи. С тех пор, став одним из самых эффективных инструментов Империи, Траун преследует ее врагов до самых границ разведанной галактики. Однако, даже владея таким отточенным оружием, как Траун, Император мечтает о чем-то более разрушительном. (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаПродолжительность: 13:18:22
+01. One O' Clock Jump [4:14]
+02. Dance Of The Gremlins [4:19]
+03. Basie Talk [3:59]
+04. Blee Blop Blues [2:53](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0A1828CA1F0527C2A642A124666B442F8A93F14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528521   (734466) от 02.02.2022
+
+VA - Beyond the Sunset (Selected Chill out Tunes), Vol. 1 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria Alvarez - Space (Terrace Mix) (8:53)
+02. Chuck Mertens - Moshy (Original Mix) (5:51)
+03. Benirras - Bora Bora (At Night Mix) (6:14)
+04. Jeffrey Campbell - Time (Original Mix) (4:07)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6D75006A09FCFF87055EAD56A664E2FC4CF0C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528499   (734465) от 02.02.2022
+
+Eurynomos - From The Valleys Of Hades (2020) [WavPack|Lossless|image + .cue] <Black Metal, Thrash Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_734465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Titan God
+02. Heraklion Axes
+03. Bat Flight
+04. Into The Lion's Den(   Читать дальше...   )Жанр: Black Metal, Thrash MetalПродолжительность: 00:49:33
 
 ## Скачать торент
 ```bash
@@ -478,80 +519,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529027   (733552) от 04.02.2022
+###  Публикация: 1528507   (734464) от 02.02.2022
 
-Mr.Credo - Golden Time (2013) [AAC|~336 Kbps] <Dance>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (3:52)
-02. Costa Nostra (4:19)
-03. Карлос Кастанеда (4:25)
-04. Fire, Water and Copper Pipes! (3:26)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:09:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529065   (733551) от 04.02.2022
-
-Тимоти Зан | Звёздные Войны / Траун: приквелы (Книга 2). Союзники (2021) [MP3, Павел Константиновский]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гранд-адмирал Траун вынужден заключить хрупкий союз с Дартом Вейдером, чтобы отразить новую угрозу Империи. Траун продолжает восхождение к вершинам имперской власти, но не может забыть свое прошлое. Время, когда он впервые столкнулся с человеком, который однажды станет Темным Лордом…Жанр: Боевая фантастика, Космическая фантастикаПродолжительность: 13:45:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529046   (733550) от 04.02.2022
-
-Microsoft Edge 98.0.1108.43 [Multi/Ru]
+ProFind 1.9.5 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734464.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Microsoft Edge – кроссплатформенный веб-браузер на базе Chromium. Отличается высокой скоростью работы, хорошей производительностью и совместимостью со всеми современными веб-стандартами. Microsoft Edge – это скорость, производительность и совместимость со всеми вашими любимыми сайтами и расширениями. Начните работу с браузером так, как вам удобно, импортировав закладки, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+Благодаря мощным функциям и отличной производительности ProFind обеспечивает расширенный поиск файлов на macOS. А также с поддержку запросов на естественном языке, запуск приложений, поиска скрытого местоположения, поиск внутри невидимых папок и пакетов, сценарии и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 02.02.2022Разработчик: © 2022 Ross TullochПоддерживаемая ОС: macOS X 10.13 и вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:98F6D515FEECAD052856C593C35B630FDB79AF33
+magnet:?xt=urn:btih:383441533831D486DC1FFD95C4B15C561B964B77
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -559,26 +545,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529056   (733549) от 04.02.2022
+###  Публикация: 1528583   (734463) от 02.02.2022
 
-Марина Дяченко, Сергей Дяченко | Заклинание (2022) [MP3, Happy]
+Shyguys - Venture (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Electronic
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734463.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В свое время - лет тридцать назад — Нимиридора Александровна учила прикладной магии самого Гостя. И, представляя старушку студентам, Гость не преминул об этом сообщить.
-Рассказ оставляющий после себя почву для размышлений. Еще больше смысла он приносит если внезапно на место Нимиридоры Александровны поставить близкого нам человека. Например наших родителей. Тогда (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 00:22:11
+01. Journey (6:44)
+02. Abilities (3:45)
+03. Pursuit (4:49)
+04. Attraction (4:03)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:54:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF22A574BE2D74BC07E2E033897CE198986FEAB6
+magnet:?xt=urn:btih:E569CA318A13B1E588521FC354B50DE3C966D338
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -586,24 +574,78 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528911   (733548) от 04.02.2022
+###  Публикация: 1528461   (734462) от 02.02.2022
 
-Zaz - Isa (2021) [DSD128 2.0|tracks|Vinyl-Rip] <Pop/Rock>
+Chillhop Guitar, Sebastien Zunino - Secret Lover (2022) [AAC|~306 Kbps] <Chill Out, Smooth Jazz, Downtempo>
 
->>нет
->>нет
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734462.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Les jours heureux (4:04)
- 02. Imagine (2:53)
- 03. De couleurs vives (3:29)
- 04. Ce que tu es dans ma vie (3:03)(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 00:47:58
+01. Through the Glass (6:27)
+02. Confidential (6:29)
+03. Feet Grey (7:14)
+04. Fragrance (6:12)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 02:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E794839ACC604309C86E3F7FD3A1FD074B5C92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528545   (734461) от 02.02.2022
+
+Хоккей. НХЛ 2021-2022. Вашингтон Кэпиталз - Питтсбург Пингвинз (01.02.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734461.jpg" />
+</div>
+
+
+###  Подробнее
+
+2 февраля 2022, среда. 03:00 МСК
+Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 17 826 зрителей (95% при вместимости 18 673)
+Главный судья: Гарретт Рэнк (Эльмира, Канада); Главный судья: Кевин Поллок (Кинкардин, Канада)Телекомпания: NBCS-WAЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:11:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20C6DBF697DA56E38D2BD3BFC452AFB33AFCC42C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528495   (734460) от 02.02.2022
+
+Allavsoft Video Downloader Converter 3.24.3.8064 [Multi/Ru]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_734460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter поддерживает загрузку фильмов, музыкальных видео, плейлистов, спортивных видео, лекций и многого другого с бесплатного веб-сайта для обмена видео, такого как Facebook, Dailymotion, eHow, и более 100 сайтов для обмена видео.Тип издания: macOS SoftwareРелиз состоялся: 31.01.2022Разработчик: © 2022 AllavsoftПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
@@ -615,79 +657,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523455   (733547) от 04.02.2022
+###  Публикация: 1528600   (734459) от 02.02.2022
 
-Освободите Вилли / Free Willy (1993) BDRip [H.264/1080p-LQ]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Косатка, или как ещё называют это огромное морское животное, кит-убийца, был разлучен со своей семьей. Люди доставили его в парк развлечений, дали имя Вилли и ожидали, что смогут заработать на его представлениях кучу денег.
-В то же время зритель знакомится с мальчишкой Джесси, сбежавшим из дома и добывающим хлеб воровством и попрошайничеством. Джесси находит новых, (   Читать дальше...   )Производство: США, Франция, Мексика / Warner Bros. Family Entertainment, Warner Bros., Canal+Жанр: Драма, приключения, семейныйРежиссер: Саймон УинсерАктеры: Джейсон Джеймс Рихтер, Лори Петти, Джейн Эткинсон, Аугуст Шелленберг, Майкл Мэдсен, Майкл Айронсайд, Ричард Рили, Майкелти Уильямсон, Майкл Бэколл, Даниэль ХаррисПеревод: Дублированный (Гемини-Фильм, Пифагор)Субтитры: Русские (forced, full), английскиеПродолжительность: 01:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC8A03E291715F1A4030FE14D7F8A21B748AE3E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528999   (733546) от 04.02.2022
-
-Андрей Левицкий, Алексей Бобл | Я — сталкер (Книга 1). Осознание (2018) [MP3, Александр Филиппов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что-то странное происходит в Зоне Отчуждения. Новая сила подчиняет мутантов, на ее стороне выступают сектанты Черного братства, даже обычные сталкеры постепенно покоряются ей.
-Егор Атилов, спец по электронике, торгующий в Зоне особыми устройствами, не знал, свидетелем каких невероятных событий станет. Встреча с заказчиком обернулась чередой непредсказуемых приключений: (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 09:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF16FFD4B0C5B6C4E9116C84AA6B199B0261377F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529017   (733545) от 04.02.2022
-
-Ashampoo Burning Studio FREE 1.23.4 [Multi/Ru]
+Cycling'74 Max 8 v8.2.1 U2B [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734459.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ashampoo Burning Studio FREE – это быстрый и удобный способ выполнения записи. Записывайте диски с данными, создавайте и записывайте резервные копии, конвертируйте или создавайте собственные музыкальные CD или записывайте существующие видео на Blu-ray. Это всего несколько из многих функций Ashampoo Burning Studio FREE! Программа легка в управлении и логична как для (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+MAX 8 - это визуальный язык программирования для музыки и мультимедиа. За время своей более чем 20-летней истории, он был использован композиторами, исполнителями, разработчиками программного обеспечения, исследователями и художниками.Тип издания: macOS SoftwareРелиз состоялся: 16.11.2021Разработчик: © Cycling '74Поддерживаемая ОС: macOS 10.11.6+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9AC1DC4C28BAEB26A4CBD91460FC56C8353A05C3
+magnet:?xt=urn:btih:691CB2CF882FEB6CC6C0221ED9B85C6A7DB185A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -695,25 +683,53 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525375   (733544) от 04.02.2022
+###  Публикация: 1528504   (734458) от 02.02.2022
 
-Худший брак в Джорджтауне / Georgetown (2019) WEB-DL [H.264/1080p]
+Duplicate Photos Fixer Pro 4.2 [Multi]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734458.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Главный герой — Альбрехт Мут, двадцатишестилетний эксцентричный карьерист, соблазнивший вдову Виолу Драт. Дама была почти втрое старше него (71 год), но это не помешало ему затащить её под венец. Мут и Драт сумели войти в высшие политические круги, причём не самым честным путем: Мут напропалую врал про своё прошлое, которое вскрылось лишь спустя 20 лет...Производство: США, Cornerstone Films, Gerson Films, InterTitle Films, Metalwork Pictures, RatPac-Dune Entertainment, Romulus EntertainmentЖанр: драма, криминал, биографияРежиссер: Кристоф ВальцАктеры: Кристоф Вальц, Ванесса Редгрейв, Аннетт Бенинг, Кори Хоукинс, Лаура ДеКартере, Дэн Летт, Эмин Бхатия, Джейн Льюис, Сара Юргенс, Дэвид РеалеПеревод: Дублированный (SDI Media)Субтитры: Русский (forced, full), английскиеПродолжительность: 01:35:21
+Duplicate Photos Fixer Pro является удобным приложением, которое может помочь вам быстро очистить ваши коллекции фотографии от дубликатов. Приложение может сканировать любую папку, хранящуюся на вашем компьютере, определяет дубликаты изображений и поможет обнаружить похожие фотографии.
+Работать с приложением интуитивно просто: просто выберите каталоги, которые вы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.02.2022Разработчик: © 2022 Systweak SoftwareПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Японский и Французский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4FAA47B7A0E85857931732AA91A398AF40FAAA7E
+magnet:?xt=urn:btih:090184FC7197EEF2B65A3FAF0AF7129E960AAB92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528540   (734457) от 02.02.2022
+
+Vellum 3.0.3 [En]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_734457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Vellum для macOS позволяет авторам и небольшим издательствам с легкостью создавать красивый электронные книги для iBooks, Kindle и Nook.
+Авторы, писатели и небольшие издательства сталкиваются с трудностями создания электронных книг каждый день. Им необходимо сверстать книги так, чтобы они одинаково хорошо читались на экранах популярных электронных устройств, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2022Разработчик: © 2022 180gПоддерживаемая ОС: macOS 10.15.1+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

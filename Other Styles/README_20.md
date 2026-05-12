@@ -1,3 +1,119 @@
+###  Публикация: 486372   (941153) от 16.01.2015
+
+Dagda - 6 альбомов (1999-2010) [MP3|320 кб/с]<New age, Meditative, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+
+1999 - Celtic Trance
+2000 - Underworld(   Читать дальше...   )Жанр: New age, Meditative, CelticПродолжительность: 05:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC198B0733CC4CDC4C727AC1E4C7A9B4122C0760
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092150   (940270) от 11.01.2017
+
+Ruaidhri - Celtic Landscapes (2013) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Castlerigg [00:06:16]
+02. Glendalough [00:07:59]
+03. Iona [00:06:45]
+04. Lindisfarne The Holy Isle [00:05:58](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEBD96D91C99D97FEB25AE231B90077967669380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363991   (939533) от 01.03.2020
+
+Sarah Harmer - Are You Gone (2020) [FLAC|Lossless|tracks + .cue] <Rock, Pop, Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. St. Peter’s Bay (03:14)
+02. New Low (02:39)
+03. Just Get Here (03:41)
+04. Take Me Out (02:22)(   Читать дальше...   )Жанр: Rock, Pop, Folk, World, & CountryПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13101FBB6CCB8A5208C85C4351E59BBB47304B01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363867   (939512) от 01.03.2020
+
+Anuvida & Nik Tyndall - Reiki Healing Hands (1995) [FLAC|Lossless|tracks + .cue] <New Age, Meditative, Reiki>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Point of Departure (9:57)
+02. Empty Sky (7:45)
+03. Circle of Light (8:21)
+04. Tao of Heaven (13:38)(   Читать дальше...   )Жанр: New Age, Meditative, ReikiПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68771BAF3CDC22297D5DDBA118A12CB8466D99F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984104   (938472) от 09.02.2016
 
 Clint Mansell & Kronos Quartet - Noah (2014) [FLAC|Lossless|tracks + .cue] <Score, Soundtrack>
@@ -632,122 +748,6 @@ Prem Joshua - 18 альбомов (1991 - 2014) [MP3|160-320 kbps]<World, New ag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FB1091317CB88BBEEE2A7B584D1820F8A1A6DD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984916   (934092) от 12.02.2016
-
-VA - Lo Mejor Del Folklore Canario (2008) [FLAC|Lossless|tracks + .cue] <Folklore, Latino>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tasaigo - Coplas Pal Vino (4:50)
-02. Los Sabandenos - Tanganillo de Estevanez (2:11)
-03. Tasaigo - Andres (3:00)
-04. Achaman - Polca Envenenada (5:33)(   Читать дальше...   )Жанр: Folklore, LatinoПродолжительность: 01:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B6C8A1DB9AC02A9D5A4457E816BB4A5F17F5A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093165   (933897) от 15.01.2017
-
-Chinmaya Dunster - Gaia's Garden (2017) [MP3|320 Kbps] <World, Instrumental, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ocean Emotions
-02. Rainstorm
-03. Blessing from the Ancient Trees
-04. Springing from the Mountains(   Читать дальше...   )Жанр: World, Instrumental, New AgeПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B1FA8F73C60A24305308C1D5FA7A3671233E99F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 285786   (933499) от 22.01.2011
-
-Гаятри Мантра - Мантра Богатства и Знания (2003) [FLAC|Lossless|image] <New Age, Meditative , Mantra>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гаятри Мантра считается самой священной и наиболее могущественной мантрой Вед. Эта универсальная мантра упоминается во всех четырех Ведах, а также в тантрах.
-
-Гаятри Мантра - мантра Великого Освобождения.
-Практика этой мантры дает все цели человеческого существования. "Дхарма" - жизненная тропа и духовный путь.(   Читать дальше...   )01. Гаятри Мантра (00:47:48)Жанр: New Age, Meditative , MantraПродолжительность: 00:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C88CBE799F049ECE1D9C82D8B8122AC926BA895D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093178   (933478) от 15.01.2017
-
-VA - Hans Zimmer: The Classics (2017) [MP3|320 Kbps] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lindsey Stirling - Main Theme (From 'The Dark Knight Rises')  4:22
-02.  The Piano Guys - Themes (From 'Pirates of the Caribbean')  6:19
-03.  Lang Lang - Gladiator Rhapsody (From 'Gladiator')  4:38
-04.  Till Bronner - Main Theme (From 'Crimson Tide')  4:02(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7FDA6BCCAAEC2BCD6334ACAF2806EE468B489A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

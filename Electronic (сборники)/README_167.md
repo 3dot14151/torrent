@@ -1,3 +1,61 @@
+###  Публикация: 1419582   (335742) от 30.10.2020
+
+VA - Deep Blue: Pure Deep House (2020) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335742.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Murysin - 115 Beats Per Minute
+002. Walid Ivarsson - Xena (Original Mix)
+003. Paul Green - Spring Garden
+004. True Passion - Cherry Bomb(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5077EAE15CB9DB0FD0A468B88A5DD86039C82269
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419906   (335717) от 30.10.2020
+
+VA - Autumn Club Beats (2020) [MP3|320 Kbps] <Club, Dance, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335717.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Joker - White Sun
+002. Antonio Restivo - Shout
+003. Epizod - The Drop
+004. Electro Boy - Festival (Open Mix)(   Читать дальше...   )Жанр: Club, Dance, Tech HouseПродолжительность: 11:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA72D55DBD558609CB947124FD12FC8EF303693F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419899   (335714) от 30.10.2020
 
 VA - Interior Lounge Sounds Vol.05 (2020) [MP3|320 Kbps] <Lounge, Background, Downtempo>
@@ -693,64 +751,6 @@ VA - Lounge Flower - Chillout Realset Garden (2015) [MP3|320 кб/с]<Chillout, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F5C248B4F2B296121D6F18C293FEF7BC4F02520
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420430   (332549) от 01.11.2020
-
-VA - Record Super Chart 660 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slava Marlow - Снова я напиваюсь (1:56)
-02. Bastard! - F..k That (3:38)
-03. Moses & EMR3YGUL & Alexiane - A Million On My Soul (Remix) (3:26)
-04. Rauf & Faik feat. NILETTO - Если тебе будет грустно (3:11)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6892AD7122FC043ED9C3C0C75F8D6114223FAA3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954766   (332464) от 12.11.2015
-
-Meteora - Gradients (2015) [MP3|320 кб/с]<Spacesynth, New wave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 A storm warning (09:34)
-02 Through the clouds (07:27)
-03 Heaven and eternity (02:37)
-04 Gradients (09:27)(   Читать дальше...   )Жанр: Spacesynth, New waveПродолжительность: 01:12:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF69BC39DAE1432C882FEB68BA90FC106E114246
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 555365   (431700) от 03.10.2012
+
+VA - Walking On The Mountain Paths (2008) [MP3|320 кб/с]<New age, Instrumental>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431700.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:52) 01. Along The Riverside
+(4:09) 02. Walking On The Mountain Paths
+(5:31) 03. Dancing Mists In My Dream
+(5:09) 04. Silence In The Night
+(5:30) 05. The Railways Of The Forests
+(5:11) 06. Beads Of The Morning Dew
+(5:58) 07. The Shining Stars
+(4:12) 08. The Rising Sun And Sea Of Clouds
+(4:24) 09. The Greenshower
+(4:27) 10. In The Misty MorningЖанр: New age, InstrumentalПродолжительность: 00:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4771E158C9211104B1922566CF84C67845DC23A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 707192   (430030) от 08.10.2013
 
 Yuyoyuppe - 13 альбомов, 30 компиляций, 1 сингл (2009-2013) [MP3|192-320 кб/с]<J-Rock, J-Pop, J-Trance, Metal, Screamo, Vocaloid>
@@ -742,34 +777,6 @@ EdelSounds - 2 альбома (2012-2013) [FLAC|Lossless] <Touhou, Vocal, Doujin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:531BC67F43CAF20BECFE32CB71C1FE22AAF212C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 833063   (387164) от 21.10.2014
-
-signum/ii - 3 альбома (2012-2013) [FLAC|Lossless] <Touhou, Vocal, Doujin Ongaku, J-Pop, Electronic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387164.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012.05.27 (SGNM-001) INVITATION SiGN (Reitaisai 9)
-2012.12.30 (SGNM-003) effulgent Sign (C83)
-2014.05.26 (SGNM-004) Brighter Oath (Reitaisai 10)Жанр: Touhou, Vocal, Doujin Ongaku, J-Pop, ElectronicПродолжительность: 00:02:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2AA9373E128A56957977DC65EA6C28A32F5F79A
 ```
 
 https://mybot314.ru/tekegram_catalog/

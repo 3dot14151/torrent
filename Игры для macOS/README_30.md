@@ -1,30 +1,3 @@
-###  Публикация: 1270611   (154899) от 20.12.2018
-
-Quake II (Quake 2) - The Reckoning, Ground Zero (1997) [En] [macOS Native game]
-
->>Игры для macOS
->>Action, FPS для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quake II — компьютерная игра в жанре шутера от первого лица, вышедшая 9 декабря 1997 года.
-Разработана компанией id Software, издана Activision.Тип издания: macOS Native gameРелиз состоялся: 1997Разработчик: id SoftwareПоддерживаемая ОС: Mac OS X 10.11+Жанр: First-person ShooterЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D310182D7E19DD6AA4BCACC1900A3B7E880246D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085965   (154376) от 23.12.2016
 
 Alpha Prime (2007) [Ru] [macOS WineSkin]
@@ -684,6 +657,34 @@ Door Kickers - инновационная стратегия в реальном
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B812D021B91DC7B6D9818C4990676A63A789578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348526   (142527) от 28.12.2019
+
+FlowScape v.1.5 (2019) [En] [macOS Native game]
+
+>>Игры для macOS
+>>Casual Games, Other для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142527.jpg" />
+</div>
+
+
+###  Подробнее
+
+FlowScape – казуальный симулятор, в котором вы будете создавать собственные 3D миры, используя различные реалистичные материалы, природу, строения и многое-многое другое…
+
+В данной игре нет как таковой конкретной сюжетной привязки, но она здесь и не требуется, ведь это не сюжетная игра, а самая настоящая песочница, в которой вы будете заниматься созданием своих собственных (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 15.08.2019Разработчик: Pixel Forest GamesПоддерживаемая ОС: macOS 10.12 и вышеЖанр: Casual, Indy, SimulatorЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89674F805EFC5E38785CED92C673CB5829A3E567
 ```
 
 https://mybot314.ru/tekegram_catalog/

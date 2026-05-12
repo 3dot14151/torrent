@@ -1,3 +1,87 @@
+###  Публикация: 1375301   (863761) от 15.04.2020
+
+Kill the Kong - 7 Music Videos (2015-2020) WEBRip [H.264/2160p/1080p-LQ] <Sweden Metalcore, Groove Metal >
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863761.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2015 Kill The Kong - Caged (2160)
+002 2016 Kill The Kong - Bring the Heat (1080)
+003 2017 Kill the Kong - Ashes In the Wind (1080)
+004 2017 Kill The Kong - Juggernaut (Wolfpack) (1080)(   Читать дальше...   )Жанр: Metalcore, Groove MetalПродолжительность: 00:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6415CC82F6FA5E48B89C86BA0DD006F55A0FD3FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375328   (863609) от 15.04.2020
+
+Bongtower - 5 Music Videos (2019) WEBRip [H.264/1080p-LQ] <Stoner, Doom Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863609.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2019 Bongtower - Altered States (1080)
+002 2019 Bongtower - Bong Rider (1080)
+003 2019 Bongtower - Defender of Humanity  (1080)
+004 2019 Bongtower - What's Wrong With You (1080)(   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:867505AB59C1D7A933E468830917ABBE550DE704
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375595   (863534) от 15.04.2020
+
+Юлия Чичерина - Дискотека (2020) WEBRip [H.264/720p-LQ] <Альтернативный Рок>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Юлия Чичерина - ДискотекаЖанр: Альтернативный РокПродолжительность: 00:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A747708E623B466F9912465BEC4F90D3D016B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376099   (861692) от 16.04.2020
 
 Сборник клипов - Rap & Hip Hop Video Collection от ALEXnROCK часть 2 (2020) WEBRip [H.264/1080p-LQ] [upscale]
@@ -626,87 +710,6 @@ Crematory — готик-метал группа из Германии, обра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5B08516AD0C43CE36590D05E30290C1DABE1399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501294   (836559) от 09.10.2021
-
-Crematory - Left The Ground (2006) DVDRip [H.264/1080p-LQ] [Upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Crematory — готик-метал группа из Германии, образованная в 1991 году. Группа стала узнаваемой в середине 1990-х, выступая в турне на разогреве таких команд как My Dying Bride, Tiamat и Atrocity. Группа начала с традиционного стиля дэт-метал, затем взяла направления индастриал и готик-метал в записях поздних альбомов.CREMATORY - Left The Ground (2006)Жанр: Industrial, Gothic MetalПродолжительность: 00:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7AA554098E0CE5C618832973A14FBBA954B5D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 655686   (819998) от 13.05.2013
-
-Wax Audio (видеография) (2004-2007) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Careless Rebel (George Michael + Billy Idol )
-02. Lady Judas (Lady Gaga vs Judas Priest )
-03. Maiden Goes To Bollywood (Iron Maiden vs Dhoom 2)
-04. Master Of Doin' It (Metallica + Herbie Hancock )(   Читать дальше...   )Жанр: Музыка, Mixes, Hard Rock, Heavy Metal, Pop, HumorПродолжительность: 01:01:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5713BED3FA46FAC93A2EBC169ED7FEA8DC39DBC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118101   (812889) от 25.03.2017
-
-Чичерина - Рвать (2017) WEB-DLRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известная уральская рок-звезда Юлия Чичерина выпустила клип на композицию «Рвать», посвященную войне на юго-востоке Украины.Производство: РоссияЖанр: RockСубтитры: отсутствуютПродолжительность: 00:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C561DE78898BFE39E25BFA5691CC50A6FDB2727D
 ```
 
 https://mybot314.ru/tekegram_catalog/

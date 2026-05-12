@@ -1,3 +1,32 @@
+###  Публикация: 1561630   (507128) от 11.07.2022
+
+coldrain - Nonnegative (2022) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore, Modern Rock>
+
+>>East Asian Music
+>>Asian Rock, Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Help Me Help You [00:03:43]
+02. CALLING [00:03:27]
+03. Cut Me [00:03:23]
+04. Before I Go [00:04:06](   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, Modern RockПродолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5EE5FBBA3190640D36C299581DD2DDA95F199EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934103   (503264) от 04.09.2015
 
 2PM - NO.5 (2015) [MP3|320 кб/с]<k-pop, dance, R&B>
@@ -722,34 +751,6 @@ LAVO - 2 альбома (2009-2010) Touhou Instrumental /Doujin/ [FLAC|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:176B8918112EF5CD57FFF2614E60B2E9155B7571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936518   (494445) от 12.09.2015
-
-LiveLiqueur - 2 альбома (2011) Touhou Vocal, Instrumental /Doujin/ [FLAC|tracks] <J-Rock, Electronic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2011.12.30 (LiCD-02) Sister's (C81)
-2011.12.30 (LiCD-03) Akai Hana Chiru Made (C81)Тип издания: DoujinЖанр: J-Rock, ElectronicФормат: Touhou Vocal, InstrumentalПродолжительность: 00:01:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9FD0573BE9C4D30DB2BE8BD5DC784656C48B53A
 ```
 
 https://mybot314.ru/tekegram_catalog/

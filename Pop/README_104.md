@@ -1,3 +1,316 @@
+###  Публикация: 1214743   (762983) от 23.03.2018
+
+Рок-Острова - Летать, смеяться и плакать (2018) [MP3|320 Kbps] <Поп>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762983.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Дождь и ветер  3:38
+02.  А я пойду  3:44
+03.  В этот вечер  3:34(   Читать дальше...   )Жанр: ПопПродолжительность: 02:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F69071C81C1EB4E0D457B4B9CE89D44E14CAB4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016397   (762943) от 16.05.2016
+
+Prince - 5 Albums (1978 - 2004) [APE|Lossless|image + .cue] <Pop, Soul, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Musicology
+02. Illusion, Coma, Pimp & Circumstance
+03. A Million Days
+04. Life 'O' The Party(   Читать дальше...   )Жанр: Pop, Soul, Funk, DiscoПродолжительность: 03:20:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A357F012AEF9B9AB3EDC0F052E3CC1243FFF852B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 162431   (762544) от 25.05.2010
+
+Dusty Springfield - 7 альбомов (1963-2000) [FLAC|Lossless]<Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, SoulПродолжительность: 01:04:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394609   (762305) от 06.07.2020
+
+Psy’Aviah (feat. Kyoko Baertsoen) - Train of Thought (2020) [MP3|320 Kbps] <Synth Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Train Of Thought (03:48)
+ 02. Insomnia (04:06)
+ 03. Train Of Thought (Tom Bro 7'' Club Remix) (03:55)
+ 04. Train Of Thought (SD-KRTR 7'' Remix) (03:53)(   Читать дальше...   )Жанр: Synth PopПродолжительность: 00:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66707E4754262EBF3A01E281F05EA59C3FAE58D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280280   (762227) от 02.02.2019
+
+VA - Playlist Hits (2019) [MP3|320 Kbps] <Pop, Dance, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762227.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. The Prince Karma - Later Bitches
+02. Angele, Romeo Elvis - Tout oublier
+03. Vegedream - Ma Go Sure(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 03:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C153F474B115428E7FCE701C7CBD068D6A8754A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394650   (762203) от 06.07.2020
+
+VA - Best Covers (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762203.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. No Doubt - It's My Life (Album Version) 03:46
+2. Ellie Goulding - Your Song 03:09
+3. Florence + The Machine - You've Got The Love 02:46
+4. Jamie Cullum - Shape Of You 04:02(   Читать дальше...   )Жанр: PopПродолжительность: 01:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E40FFFF4162C4E0564CA40451135D99F2CF45640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 661706   (761936) от 27.05.2013
+
+Fancy - Flames Of Love (1988) [FLAC|Lossless]<Italo Disco, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Italo Disco, Disco
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215139   (761676) от 24.03.2018
+
+M.B.T. Soul - Chase! (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chase (15:08)
+02. You Set Me In Motion (3:57)
+03. Soni (4:06)
+04. Deep Love (4:36)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:31:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E2993C5B41EC43D025777362A777C755D4D9980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215121   (761538) от 24.03.2018
+
+VA - #Hits 2018 #2 (2018) [MP3|320 Kbps] <Pop, Dance, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761538.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Luis Fonsi Feat. Demi Lovato - Echame La Culpa
+02. MC Fioti, Future, J Balvin, Stefflon Don, Juan Magan - Bum Bum Tam Tam
+03. Imagine Dragons - Whatever It Takes(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 02:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB2BF395A0671D2C7F50154C5E3FEF6309A61021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280271   (761496) от 02.02.2019
+
+Кватро - XV лет. Часть 2 (2019) [MP3|320 Kbps] <Pop, Retro>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761496.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Улетай
+2. Caruso
+3. Не жалею, не зову, не плачу
+4. Bella Ciao(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DBA7EFEB73EA6524B1DBDD9D75B652D86A1CD4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215070   (761376) от 24.03.2018
+
+Leila K. - Carousel (1993) [FLAC|Lossless|image + .cue] <Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carousel
+02. Open Sesame
+03. Ca Plane Pour Moi
+04. Slow Motion(   Читать дальше...   )Жанр: Euro-HouseПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F47F3883FA1970BF42E7D31A1E19377667A5E133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017751   (760778) от 17.05.2016
 
 Jamala - Подих (2015) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -429,321 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:090033AF1DBCAC13FECDD3E0C6E493B030A0AD3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 781226   (757757) от 27.04.2014
-
-VA - The 80s (2003) [FLAC|Lossless]<Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757757.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:21] 01. Kylie Minogue - I Should Be So Lucky
-[04:01] 02. Jive Bunny & The Mastermixers - That's What I Like
-[03:29] 03. F.R. David - Words
-[05:45] 04. David Christie - Saddle Up(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E4F1D3834CB64C6CEE316FC3B9B459FF34FDF20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018107   (757631) от 19.05.2016
-
-George Baker - Diamond Star Collection (1996) Unofficial Release [APE|Lossless|image + .cue] <Funk, Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Una Paloma Blanca (1975)
-02. Beautiful rose (1977)
-03. Morning sky (1975)
-04. Sing a song of love (1974)(   Читать дальше...   )Жанр: Funk, Soul, PopПродолжительность: 01:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7195846E09C37D37E3A0C07D48080EEB5C509233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018231   (757362) от 19.05.2016
-
-Ariana Grande - Dangerous Woman (2016) [MP3|320 кб/с] <Pop, Hip-Hop, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonlight
-02. Dangerous Woman
-03. Be Alright
-04. Into You(   Читать дальше...   )Жанр: Pop, Hip-Hop, R&BПродолжительность: 01:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:268027E0F3497F82E728E2297EE42B25D1BA2CEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018196   (757255) от 19.05.2016
-
-VA - Super Hits Of The '70s: Have A Nice Day (1990-1996) 25CD [MP3|320 кб/с] <Pop,Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spiral Staircase - More Today Than Yesterday (2:58)
- 02. Smith - Baby It's You (3:25)
- 03. The Flying Machine - Smile A Little Smile For Me (3:00)
- 04. Billy Joe Royal - Cherry Hill Park (2:50)(   Читать дальше...   )Жанр: Pop, Rock|Продолжительность: 16:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0431B314B0C064029576B1478D2812EEFF8E30A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280575   (756986) от 05.02.2019
-
-Ke - I Am [...] (1996) [FLAC|Lossless|image + .cue] <Rock, Funk, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756986.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Strange World 4:33
-2. Someday 4:17
-3. I Think It's Time 4:50
-4. I Don't Wanna Go 4:48(   Читать дальше...   )Жанр: Rock, Funk, PopПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72144767B98B361C6C365C1DC4787188FD7F4341
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280977   (756831) от 05.02.2019
-
-Елена Темникова - TEMNIKOVA 4 (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756831.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Бабочки
-3. Садится батарея
-4. Говорила(   Читать дальше...   )Жанр: PopПродолжительность: 00:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10B94A270302E65A7AB43E8BA3A951C9D1863256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215700   (756733) от 27.03.2018
-
-Mary Chapin Carpenter (Мэри Чапин Карпентер) - Hometown Girl (1987) Columbia [MP3|320 Kbps] <Country, Alt-Country, Pop-Rock, Indie, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мэри Чапин Карпентер - американская кантри певица, автор песен и актриса. Певица в молодости никогда не представляла себя на профессиональной сцене. Дебютное выступление Мэри состоялось в местном баре, куда её привел отец. В 1981 году будущая певица получила высшее образование. Она стала выпускницей университета «Браун». Главной встречей в её карьере стало знакомство (   Читать дальше...   )01. A Lot Like Me 4:37
-02. Other Streets And Other Towns 5:01
-03. Hometown Girl 4:54
-04. Downtown Train 4:11(   Читать дальше...   )Жанр: Country, Alt-Country, Pop-Rock, Indie, Soft RockПродолжительность: 00:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8061C7B283FC62277F71D6A95B66794614D8EDD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215789   (756728) от 27.03.2018
-
-Mary Chapin Carpenter (Мэри Чапин Карпентер) - State Of The Heart (1989) Columbia [MP3|320 Kbps] <Country, Alt-Country, Pop-Rock, Indie, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мэри Чапин Карпентер - американская кантри певица, автор песен и актриса. Певица в молодости никогда не представляла себя на профессиональной сцене. Дебютное выступление Мэри состоялось в местном баре, куда её привел отец. В 1981 году будущая певица получила высшее образование. Она стала выпускницей университета «Браун». Главной встречей в её карьере стало знакомство (   Читать дальше...   )01. How Do 2:13
-02. Something of a Dreamer 3:01
-03. Never Had it So Good 4:08
-04. Read My Lips 3:09(   Читать дальше...   )Жанр: Country, Alt-Country, Pop-Rock, Indie, Soft RockПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC965D55EF67A35736655621EFE1B067A9215C36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215811   (756601) от 27.03.2018
-
-Reflection - A Whiter Shade Of Pale (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Whiter Shade Of Pale (14:23)
-02. A Woman In Black (5:00)
-03. Hot Summer Night (7:17)Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C53B7B74AA71D620261A0F1B9A8377890D742AC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 662885   (756235) от 30.05.2013
-
-Madonna - The Complete Studio Albums (1983-2008) Box Set, 11CD, 2012, Warner Bros. [FLAC|Lossless|image + .cue] <Pop, Dance, Electronic>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Dance, ElectronicПродолжительность: 00:56:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 662927   (756234) от 30.05.2013
-
-VA - Суперхиты дискотеки 90-х... продолжение (2011) [FLAC|Lossless]<Pop, EuroDance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. East 17 - It's Alright (4:43)
-02. E-Type - Set the World on Fire (3:46)
-03. Captain Hollywood - Over and Over (3:47)
-04. DJ BoBo - Take Control (3:48)(   Читать дальше...   )Жанр: Pop, EuroDanceПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

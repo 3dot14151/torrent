@@ -1,3 +1,109 @@
+###  Публикация: 1223201   (675103) от 04.05.2018
+
+Текстуры - GraphicBurger - 6 Fine Wood Textures Vol.1 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Текстуры под дерево.Формат: JPGРазрешение файлов: 2000 x 1333
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02A456A2955845E7C7B273C8D53EF4BCC90A4ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223204   (675101) от 04.05.2018
+
+Текстуры - GraphicBurger - 6 Fine Wood Textures Vol.3 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Текстуры под дерево.Формат: JPGРазрешение файлов: 4500 x 3045 - 4508 x 3243
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:571E9A7F605B06EF91FA1031FA98FE080CBFA984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536609   (674164) от 12.03.2022
+
+Кисти + Action - Envato Elements - Envato Brush Collection Jan 2021 [ABR, BRUSH, BRUSHSET, ATN, AI, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674164.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Envato Brush Collection Jan 2021» - стильный, элегантный просто огромный пакет кистей на все случаи жизни для Вашего творчества. Создайте уникальный дизайн и получайте удовольствие, рисуя.
+Вы можете использовать эти кисти для воплощения своих самых смелых идей в дизайне. Кисти идеально подходят для создания плакатов, брендинга и упаковки, визитных карточек, дизайна (   Читать дальше...   )Формат: ABR, BRUSH, BRUSHSET, ATN, AI, PNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA2973B40B09BB5FECF98D8F79B961D7EE4BDCA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223416   (673420) от 05.05.2018
+
+Текстуры - Creative Market - 50% discount - 180 colorful Marbles! - 778176 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные фоны.
+Автор: Art of Sun.Формат: JPGРазрешение файлов: 3750x2734 - 4000x2916
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1710930624BED09D23FA504569A3FF1D82507154
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223458   (673406) от 05.05.2018
 
 Текстуры - Creative Market - 15 Authentic Marbled Paper Textures - 1054025 [JPG]
@@ -567,110 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9627FC8D6B040BD322DE10524E25D03B982C3D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291438   (670226) от 24.03.2019
-
-Шаблоны - Creative Market - Fold Up Retail Box Packaging Mockup - 3461275 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три макета коробки в PSD с высоким разрешением и в каждом по 4 варианта макетов.Формат: PSDРазрешение файлов: 5400x3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7004BC2A40C791156E5A8DB579AA03654BF5C41B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031094   (670144) от 02.07.2016
-
-Экшены - GraphicRiver - Color Dust Action [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Color Dust - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D65706FF5ED91BE563D76B24CE1D0A0FFA41AAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031076   (670092) от 02.07.2016
-
-Экшены - GraphicRiver - Sand Writing Photoshop Action [ATN, ASL, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sand Writing - экшен для Вашего творчества.Формат: ATN, ASL, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C97FD2BDE5B88FA19203703A55E7308FE444C067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031081   (670090) от 02.07.2016
-
-Экшены - GraphicRiver - Draw in Sand Photoshop Action [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Draw in Sand - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8F4049279CA767AD803E4293F92CE4148E92A4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

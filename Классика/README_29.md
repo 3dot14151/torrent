@@ -1,3 +1,61 @@
+###  Публикация: 698356   (529926) от 08.09.2013
+
+Ludovico Einaudi - In a Time Lapse (2013) [FLAC|tracks + .cue]<Modern Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corale (2:05)
+02. Time Lapse (5:31)
+03. Life (4:22)
+04. Walk (3:27)(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 01:06:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D87240AD2C3AACA6295975DF96CF65F15D96A4DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927140   (529617) от 12.08.2015
+
+Paul Anthony Adams - Sonates au Clair De Lune (Moonlight Sonata) (2014) [MP3|320 кб/с]<Neo-Classical, New age>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beethoven - Moonlight Sonata
+02. Schubert - Serenade
+03. Mozart - Adigia from Piano Concerto #23 A major
+04. Elgar - Nimrod Adagio from Enigma variation(   Читать дальше...   )Жанр: Neo-Classical, New ageПродолжительность: 01:07:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1731D6A9CD6F4EB1D25BF4F8E05D62BCBABA7ED6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927339   (528577) от 13.08.2015
 
 Rimsky-Korsakov - The Legend of the Invisible City of Kitezh, Sheherazade (Yuri Temirkanov & St.Petersburg Philharmonic Orchestra) (2013) [FLAC|image +.cue]<Classical, Opera, Tone Poem, Symp ...
@@ -731,61 +789,6 @@ CD 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD37CEF688E4C24DC87437BF6B3274F2FE5CA549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934402   (502400) от 05.09.2015
-
-Vanhal - Symphonies (Concerto Koln) (2007) [FLAC|image +.cue]<Classical, Orchestral, Classical Period, Symphony>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, Orchestral, Classical Period, SymphonyПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50CD79510D0EFADC0527715400749C778F2E6727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934417   (502324) от 05.09.2015
-
-Nikita Magaloff - La Valse (1990) [FLAC|image +.cue]<Classical, Romantic Period, 20th Century Period, Modern, Suite, Post-Romantic, Character Piece, Waltz, Incidental, Lied, Rondo, Scherzo, Tran ...
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valse, for piano, Op. 34/1 (07:05)
-02. Valse Triste, for orchestra (from Kuolema), Op. 44/1: Valse Triste (04:33)
-Invitation to the Dance (Aufforderung zum Tanze), rondo brillant for piano, J. 260 (Op. 65)
-03. Aufforderung Zum Tanze (Invitation to the Dance), transcribed by K. Ta (10:25)(   Читать дальше...   )Жанр: Classical, Romantic Period, 20th Century Period, Modern, Suite, Post-Romantic, Character Piece, Waltz, Incidental, Lied, Rondo, Scherzo, Transcription, ArabesqueПродолжительность: 01:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D2BA60BB76D479F6E29BEAC22E90998F80538FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

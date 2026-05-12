@@ -1,3 +1,109 @@
+###  Публикация: 1214704   (763061) от 23.03.2018
+
+3D модели - Daz 3D - Wizard Magic Bundle - 50371 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Магический набор волшебников для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:941E50B48B76665D1FFA9AEFB076D8DB747C3453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017078   (762557) от 16.05.2016
+
+Экшены - GraphicRiver - Liquify Photoshop Action - 9239689 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C305E0BEEDE5141769AA957596A321BAA6F8DBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017427   (762556) от 16.05.2016
+
+Экшены - CreativeMarket - 15 Oil Painting Effect Photoshop Act - 406110 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Oil Painting Effect - этот экшен был разработан для фотографов и графических дизайнеров.
+Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BABC4E5ADB18D0C3C3C594CC6EF910E01C3AAF0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017065   (762551) от 16.05.2016
+
+Экшены - GraphicRiver - Typography 2 Photoshop Action - 12095200 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Типографический эффект из ваших фотографий всего за несколько кликов.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70975B34589B3CEBDEB258FD6136EB0312ABE7EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 887090   (762070) от 10.04.2015
 
 Шаблоны - Шаблоны PowerPoint / PowerPoint Templates [PPT, PPTX]
@@ -582,114 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67C5641974C318B3D383CD2757D68FD035C2BEC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017956   (759021) от 18.05.2016
-
-Экшены - GraphicRiver - Artisto - Photoshop Action - 12390526 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4941E46E554095D3E15E81B8967FC63AA3410DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017901   (758829) от 18.05.2016
-
-Шаблоны - Обложка и задувка на DVD диск - Baby kit My Little Angel [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обложка и задувка на DVD диск, на рождение ребёнка.
-Два варианта исполнения.... мальчик и девочка.
-Автор:Формат: PSDРазрешение файлов: 3248x2177 / 2500х3750 / 1431х1432 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDA795DE8212B96E4F6D6083FC134C3F44AFE3FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215457   (757875) от 26.03.2018
-
-Текстуры - Design Bundles - Rainbow Glitter Digital Paper Textures [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор радужных блестящих текстур с официальной документациейФормат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A97939E6D498C7E5AE5716FB5A021CF1C415658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215517   (757859) от 26.03.2018
-
-Векторный клипарт - Isometric and Infographics vector concept [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Набор иконок в бизнес-стиле
-18 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C48C96D7707D47CA3D9D66F592FB51E6C98BF3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

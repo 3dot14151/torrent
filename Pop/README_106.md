@@ -1,3 +1,323 @@
+###  Публикация: 1216196   (751360) от 30.03.2018
+
+Rico Seith - Ich zeig dir meine Welt (2009) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Einmal hat jeder Gluck
+02. Das geht auf einmal viel zu schnell
+03. Isla del Sol
+04. Liebe Tanten und Verwandten(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A97B6FA5F84F6022E73A81236B2B0EA90B6680ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216203   (751348) от 30.03.2018
+
+Steps - Tears on the Dancefloor (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scared of the Dark (3:47)
+02. You Make Me Whole (3:42)
+03. Story of a Heart (4:16)
+04. Happy (3:37)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C7765165C190A9779BA1DBFBAB159814B1FCF8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216277   (751346) от 30.03.2018
+
+Peter Kent - 2 Albums, 1 Singles & EPs (1979-1982) Vinyl [MP3|320 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1979 - It's A Real Good Feeling
+1981 - Happy Weekend
+1982 - Non Stop Magic(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 01:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9946133F865422DA4029DE0456A6F077F52620E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216200   (751344) от 30.03.2018
+
+VA - Abbamania (1999) Compilation [FLAC|Lossless|tracks + .cue] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madness - Money Money Money (3:23)
+02. Steps - Lay All Your Love On Me (4:27)
+03. Westlife - I Have A Dream (4:17)
+04. Stephen Gately - Chiquitita (5:31)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B638A5625E816E5A532C85843776BE47258A70FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216375   (751244) от 30.03.2018
+
+Peggy March - Electrifying (1979) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electrifying (4:13)
+02. Dancin' Daddy (4:45)
+03. Foolin' Around (4:17)
+04. I Love Making Love To You (4:07)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBE0398A86D4183A7373F717BFED07439E0F6AE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216278   (750932) от 30.03.2018
+
+VA - Q-Music Top 500 Van 90's (2015) 6CD [MP3|320 Kbps] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750932.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Топ-500» 90-х годов - это ежегодный список хитов, который транслируется на Vlaamse радиоканале Q-music в феврале. Список впервые транслировался в 2013 году.01. DJ Paul Elstak - Rainbow In The Sky [1995] (3:30)
+02. Michael Jackson - Earth Song [1995] (5:01)
+03. Backstreet Boys - Everybody (Backstreet's Back) [1996] (3:46)
+04. Robbie Williams - Let Me Entertain You [1997] (4:24)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 07:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97E42A226B191B402D25EA20ED62E1CF17AF18AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281166   (750139) от 09.02.2019
+
+VA - Hacienda Dance, Vol. 1 (2019) [MP3|320 Kbps] <Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pasdee - Aga (Radio Edit)
+02. Vincent Price - The Groove (Vocal Radio Cut)
+03. Markii - Shatter (Radio Edit)
+04. Cedric Lass - P.M.R. (Radio Edit)(   Читать дальше...   )Жанр: DanceПродолжительность: 02:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB496C091ACB21D6332A6BA9CEF7BBC3D299E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281734   (750021) от 09.02.2019
+
+Rena Mason - Cherchez La Femme (1979) Reissue CD, 2013, EMI Electrola [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Know I Need You So Bad (5:46)
+02. Showdown (4:37)
+03. Cherchez La Femme (6:40)
+04. Don't Stop The Music (4:01)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:32:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BADF97E261D326924500844C4350CE853A4A2B64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523648   (749890) от 12.01.2022
+
+VA - Venti Compilation 7 (2021) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miko Mission - Do You Wanna Dance (6:29)
+02. Torrevado - Heartbreaker (Disco Mix) (6:42)
+03. Love Kills - Touch Me (Special Remix) (6:16)
+04. Robert Camero - Autumn Love (Vocal Remix) (6:39)(   Читать дальше...   )Жанр: Italo-Disco, Disco, Hi-NRGПродолжительность: 02:20:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F32782E8577484666B5CCB398E7272D059C5F318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281801   (749826) от 09.02.2019
+
+Dua Lipa - Dua Lipa (2017) 2018, Reissue, 2CD, Complete Edition [FLAC|Lossless|tracks + .cue] <Synth-pop, Ballad, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749826.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+ 01. Genesis (3:27)
+ 02. Lost in Your Light (3:24)
+ 03. Hotter Than Hell (3:10)(   Читать дальше...   )Жанр: Synth-pop, Ballad, Pop RockПродолжительность: CD1 - 00:57:07
+CD2 - 00:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE65DF8EC5A93BFB63526783F9A93EE9743D7A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281713   (749816) от 09.02.2019
+
+Юрий Антонов - Юрий Антонов (1981) LP [MP3|320 Kbps] <Pop, Pop Rock, Chanson, Vocal>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я Вспоминаю (Sjecam Se) (5:44)
+02. Моё Богатство (Moje Bogatstvo) (2:34)
+03. Зеркало (Ogledalo) (3:38)
+04. Золотая Лестница (Zlatne Stepenice) (2:46)(   Читать дальше...   )Жанр: Pop, Pop Rock, Chanson, VocalПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A361A1F0F6792550B43C9714C2E61906FB53A5B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523608   (749799) от 12.01.2022
 
 VA - ZYX Italo Disco: Hits & Rarities Vol. 5 (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
@@ -423,325 +743,6 @@ VA - ZYX Italo Disco New Generation Vol. 18 (2021) 2CD, Compilation [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F67FF702393E0AF6D8975188BAF8BC413A29A23F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523943   (748092) от 13.01.2022
-
-VA - ZYX Italo Disco New Generation Vol. 19 (2021) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Den Harrow - Always (Flemming Dalum Remix) (4:28)
-02. Fred Ventura & DJ TinTin - Come On (Flemming Dalum Remix) (7:02)
-03. Tom Hooker & Tam Harrow - Love Me Tonight (Extended Version) (5:03)
-04. Flexx - Break You Down (Vocal Version) (5:23)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC8869528969B152E16D92736D12034555CF991
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216659   (747847) от 01.04.2018
-
-US Global DJ's - Back In The USSR (2008) Compilation [MP3|320 Kbps] <Pop, Electro-Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:20)
-02. Не забывай (US Global Deejays Electro House Mix) (5:38)
-03. Здравствуй и прощай (US Global Deejays Electro House Mix) (4:38)
-04. Я выбираю тебя (Remix) (6:35)(   Читать дальше...   )Жанр: Pop, Electro-PopПродолжительность: 00:56:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48CDE78FEE44D28B3D7BD597DC3036BCB3A1F742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216721   (747722) от 01.04.2018
-
-VA - 80s Back To School (2018) [MP3|320 Kbps] <Pop, Dance, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Wham - Young Guns (Go For It) 03:40
-02 Cyndi Lauper - Girls Just Want To Have Fun 03:56
-03 Kc And The Sunshine Band - Give It Up 04:06
-04 Men At Work - Down Under 03:43(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 03:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C2C60D2025EF21F2455C2F1F9904575036851A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216753   (747708) от 01.04.2018
-
-Сергей Лазарев (Sergey Lazarev) - The One (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Put Out The Fire
-02. Eat You Up
-03. Going Under
-04. Deep Blue(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EB20EE5B4964EE74944C03CB0D70CA820960350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020106   (746733) от 25.05.2016
-
-Disco Dream And The Androids - The Androids (1979) [MP3|320 кб/с] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Machine   (8:32)
-02. Is This A Dream (Or Is It Real)   (8:08)
-03. Love Dance   (3:55)
-04. Connection Disconnection   (4:17)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7969CA4C85BCB224431FB543F9A64AF08172A9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020028   (746722) от 25.05.2016
-
-Ken Wilbard - You're Burning (1977) [MP3|320 кб/с] <Диско>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything Is Going To Be Allright - 02:41
-02. Ma Cherie, Mon Amour - 02:50
-03. Don't Cry, My Baby - 02:41
-04. Do It - 03:09(   Читать дальше...   )Жанр: ДискоПродолжительность: 00:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A70556AC6E27922155DE875A062120D3085B9FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020238   (746602) от 25.05.2016
-
-Madleen Kane - 5 Albums (1978-1994) [MP3|320 кб/с] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шведская модель и певица, работала с 17 лет для немецкого модного журнала  Burda Moden. Побывала в двух выпусках Playboy, а так-же выпустила ряд альбомов принесших пять, вошедших в горячие десятки США и Европы, танцевальных хитов. Альбом 1981 г.- совместная работа с Giorgio Moroder и Pete Bellotte.Список альбомов:
-01. 1978 - Rough Diamond
-02. 1979 - Cheri
-03. 1980 - Sounds Of Love(   Читать дальше...   )Жанр: DiscoПродолжительность: 03:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02A407802357E1D3EC06C93F621C8395638A94D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282174   (746413) от 11.02.2019
-
-Aqua - Millenium Hits (2000) [FLAC|Lossless|image + .cue] <Europop, Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cartoon Heroes
-02. Barbie Girl
-03. Around the World
-04. Happy Boys & Girls(   Читать дальше...   )Жанр: Europop, Euro HouseПродолжительность: 01:19:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFFD66DACFC3748D02980331AF465B5BDC934FB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282002   (746407) от 11.02.2019
-
-VA - Italian Golden Ballads (2000) Unofficial Release [FLAC|Lossless|image + .cue] <Italo Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Al Bano & Romina Power - Liberta
-02. Collage - Donna Musica
-03. Pupo - La Notte
-04. Ricchi e Poveri - Comme Vorrel(   Читать дальше...   )Жанр: Italo PopПродолжительность: 01:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D17974C851813E39D7997D22ADA9301266FDB76F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216995   (746118) от 02.04.2018
-
-VA - Q-Music: Het Beste Uit De Top 500 (2014) 5CD [MP3|320 Kbps] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746118.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Топ-500» 90-х годов - это ежегодный список хитов, который транслируется на Vlaamse радиоканале Q-music в феврале. Список впервые транслировался в 2013 году.CD1:
-01. ABBA - Dancing Queen
-02. 2 Unlimited - No Limit
-03. Bill Medley & Jennifer Warnes - (I've Had) The Time Of My Life(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 06:25:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:470B7CD055C21FC76F4AB778363AB7CB2D608D36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282215   (746089) от 11.02.2019
-
-Irene Cara - 3 Albums (1982-1987) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Айрин (Ирен) Кара - американская актриса и певица 1980-х годов. Лауреат премий «Оскар», «Золотой глобус» и «Грэмми». Пик музыкальной карьеры наступил для неё в 1983 году, когда она записала титульную песню для фильма «Flashdance... What a Feeling», которую она написала в соавторстве с Джорджо Мородером и Китом Форси. Кара написала слова в тот момент, когда ехала (   Читать дальше...   )Список альбомов:
-1982 - Anyone Can See
-1983 - What A Feelin'
-1987 - Carasmatic(   Читать дальше...   )Жанр: Electronic, Funk Soul, Disco, Synth-popПродолжительность: 01:58:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245A4F5AB9523ED9A3F1800975975080C3897D26
 ```
 
 https://mybot314.ru/tekegram_catalog/

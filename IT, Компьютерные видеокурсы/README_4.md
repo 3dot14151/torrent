@@ -1,3 +1,30 @@
+###  Публикация: 1437012   (1042509) от 03.01.2021
+
+Packt, Pavlos Vinieratos | React Native: Советы, Подсказки и Техники / React Native: Tips, Tricks, and Techniques (2020) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042509.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последнее время в разработке мобильных приложений произошел некоторый всплеск с появлением многоплатформенных фреймворков, таких как React Native. Этот курс дает вам ценные советы и рекомендации, которые помогут упростить процесс разработки и сделать его менее утомительным.
+Вы найдете советы по reusable логике с компонентами более высокого порядка, советы по улучшению (   Читать дальше...   )Производство: PacktЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 03:25:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4058599C52BA6BCD9441109A1A7494F35678E4D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437069   (1042508) от 03.01.2021
 
 Udemy, Brad Traversy | React Front To Back (Hooks, Context, MERN и Redux) / React Front To Back (Hooks, Context, MERN & Redux) (2019) PCRec [En / En Sub]
@@ -664,35 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:903A4EF2E57F59732A8B026FB21399BFFBD485B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438289   (1041008) от 08.01.2021
-
-The StationX Cyber Security School, Aleksa Tamburkovski | Complete Python 3 Ethical Hacking Course: Zero To Mastery (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041008.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом полном курсе этического взлома Python 3 вы научитесь кодировать более 10 инструментов для тестирования на проникновение с нуля!
-Вы узнаете, как настроить виртуальную среду для этичного взлома
-Вы научитесь кодировать свои собственные инструменты тестирования на проникновение
-Вы изучите основы Kali Linux(   Читать дальше...   )Производство: The StationX Cyber Security SchoolЖанр: ПрограммированиеЯзык озвучки: АнглйискийПродолжительность: 07:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B9F0BB4E8436D60178ABDD6FC4CEBFC72DCC446
 ```
 
 https://mybot314.ru/tekegram_catalog/

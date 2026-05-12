@@ -1,25 +1,22 @@
-###  Публикация: 1121965   (799252) от 04.04.2017
+###  Публикация: 1384993   (799862) от 23.05.2020
 
-VA - Chillout Summer Session Ibiza Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Интерпретаторы / Interpreters (2019) WEB-DLRip [H.264/1080p-LQ] [MVO] [AD]
 
->>Electronic
->>Easy listening
+>>Остальное
+>>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799862.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Skendo - Romantic Beach Dinner  3:03
-02.  Mari Billa - Kids Of The Moon  3:01
-03.  Xavier Baptist - The Early Bird  3:33
-04.  Tom Hold - Journey  5:28(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:09:29
+Странный преступник с помощью передовых технологий расправляется с жителями Саллена. Расследуя убийства, управление шерифа и бывший наёмник раскрывают, что угроза куда страшнее.Производство: США / Archetype PicturesЖанр: Фантастика, триллерРежиссер: Майкл РайанАктеры: Терри Маратос, Кристофер Криса, Рэйчел Килиан, Энди Фриман, Эшли Брекен, Sophia Ferguson, Вольфганг Дж. Вебер, Эйс Марреро, Стефан Хайек, Мэнни ЭрнандесПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:57:51Реклама: Присутствует баннер.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7A590DAC7F9BC88FC0D8CB2E349AEF70547AB27
+magnet:?xt=urn:btih:579654325CDDA23C6319CA92DF608AE39D86B438
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122187   (799251) от 04.04.2017
+###  Публикация: 1384961   (799861) от 23.05.2020
 
-VA - Sexy Deep House (2017) [MP3|320 Kbps] <Funky, Club House>
+Марлена / Marlene (2020) WEB-DLRip [H.264/720p-LQ] [MVO] [AD]
 
->>Electronic
->>House
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_799861.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Danny Vegas - Hold Me Down
-02. Echoboy - Get Do It
-03. DJ Favorite - Beautiful Night - Mars3ll Remix
-04. Plastik Night - Bono(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:00:35
+Франк работает наёмным убийцей на штирийский криминальный синдикат и известен своим хладнокровием и беспощадностью к врагам. Но когда ему поручают похитить Марлену - дочь смертельного врага главы синдиката, Франк переживает глубокий внутренний надлом и оказывается перед непростым выбором.Производство: Австрия / Fly Oli, LOOMЖанр: БоевикРежиссер: Стефан МюллерАктеры: Август Шмёльцер, Sophia Grabner, Пол Хасслер, Daphne Reitinger, Лукас Йоне, Дэвид Месмер, Siruan Darbandi, Ева Мария Марольд, Thomas Geiger, Valentina MayrlПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:34:35Реклама: Присутствует баннер.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2BB10F8E7228D4D849326609EE0500700D4F6435
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +50,318 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122055   (799250) от 04.04.2017
+###  Публикация: 1385039   (799860) от 23.05.2020
 
-Tempel - On The Steps Of The Temple (2014) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Progressive Metal>
+438 дней / 438 dagar (2019) HDRip [MVO] [AD]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_799860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Накануне 28 июня 2011 года шведские журналисты Мартин Шибби и Юхан Перссон затевают рискованное предприятие — незаконно пересечь границу между Сомали и Эфиопией. После месяцев исследований и планирования, после череды неудач им наконец-то улыбается удача, и им выпадает шанс рассказать всему миру, что же происходит в раздираемом конфликтами и изолированном регионе (   Читать дальше...   )Производство: Швеция / Film i Väst, Miso Film Sverige, Sveriges TelevisionЖанр: Триллер, драмаРежиссер: Йеспер ГансландтАктеры: Густаф Скарсгард, Матиас Варела, Йозефин Нельден, Файсал Ахмед, Грэм Кларк, Йеспер Гансландт, Стефен Дженнингс, Филип Санден, Сивуйеле Нгеси, Фредерик СкавланПеревод: Многоголосый закадровый, любительский (AlphaProject)Субтитры: ОтсутствуютПродолжительность: 02:03:00Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384387   (799859) от 23.05.2020
+
+Опасная близость: Сражение при Лонгтане / Danger Close: The Battle of Long Tan (2019) BDRip [H.264/1080p] [MVO] [PR]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Война во Вьетнаме. Рота в основном неопытных австралийских и новозеландских солдат встречается в битве при Лонгтане с превосходящими силами Вьетконга.Производство: Австралия / Deeper Water, Hoosegow Productions, Ingenious MediaЖанр: История, военный, драма, боевикРежиссер: Крив СтендерсАктеры: Трэвис Фиммел, Toby Blome, Александр Инглэнд, Аарон Гленнэйн, Ули Латукефу, Ричард Те Аре, Люк Брейси, Шон МакКарти, Моджиан Ариа, Райан ХэнсПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: русские (hardsub на надписи и тексты песен)Продолжительность: 01:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03B3B4CE48E96221C075B5249A77564C6BA6B199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369647   (799858) от 23.05.2020
+
+BNA: Brand New Animal | Совершенно новый зверь [2020, TV, 12 эп.] WEB-DL 1080p raw
+
+>>След.
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799858.jpg" />
+</div>
+
+
+###  Подробнее
+
+В XXI веке на свет вышла одна из самых охраняемых тайн в истории: зверолюди существуют! Старшеклассница Мичиру жила самой обычной жизнью, пока в один прекрасный день не превратилась в человека-тануки. В ужасе она сбежала из дома и нашла убежище в специальном городе под названием Анима Сити, основанном десять лет назад для зверолюдей, дабы они могли быть там самими (   Читать дальше...   )Производство: студия Trigger / トリガーЖанр: приключенияРежиссер: Ёсинари ЁПеревод: Netflix; SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: Японские; РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C38D1B2A4ED4466B6FE5328BCEEC73C1A4C2470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385255   (799857) от 23.05.2020
+
+3D модели - 3DDD - Chair (Furniture) - 3D Models - 3dSkyPro - Volume 1 [Corona|V-Ray|*.max, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник моделей с сайта 3ddd/3dsky.
+Количество моделей: 50 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FBB30CA03FF3D5C1C56ADB56FD31D12B642AD4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385161   (799856) от 23.05.2020
+
+Пеплопад / Baekdusan (2019) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вулкан горы Пэкту, находящейся на территории Северной Кореи, начинает извергаться, происходят сильные землетрясения, что в самом ближайшем будущем грозит разрушением половины Корейского полуострова. Правительство Южной Кореи решает реализовать безумный план одного учёного: доставить в шахту горы Пэкту ядерную бомбу, взорвать её и тем самым уменьшить давление магмы. (   Читать дальше...   )Производство: Южная Корея / CJ Entertainment, Dexter Digital, Dexter Studios, Perfect Storm FilmЖанр: Боевик, драмаРежиссер: Ли Хэ-джун, Ким Бён-соАктеры: Ли Бён-хон, Ха Джон-у, Ма Дон-сок, Чон Хе-джин, Пэ Су-джи, Ли Сан-вон, Ок Ча-ён, Хан Сон-чхон, Кан Щин-чхоль, Ли Гён-ён ...Перевод: Профессиональный многоголосый, авторскийСубтитры: АнглийскиеПродолжительность: 02:08:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F75E0433AB004CDCFEF3B6CF70AFF0496D61A57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385053   (799855) от 23.05.2020
+
+Saints Row: The Third - Remastered (2020) [Ru/Multi] (1.0/dlc) License CODEX
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Saints Row: The Third - Remastered - это переиздание третьей части безумных экшенов в духе GTA, созданное для консолей восьмого поколения. Игроков ждет оригинальная игра и все доступные для нее дополнения в одном издании, плюс улучшенная картинка, подтянутое разрешение и переработанные модели персонажей и оружия.Тип издания: LicenseРазработчик: VolitionЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:609FFF6E88082701EEBF943BF010AFE690A15F37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378873   (799854) от 23.05.2020
+
+ИП Пирогова (2020) WEB-DLRip (сезон 3, серии 1-13 из 13)
+
+>>Отечественные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799854.jpg" />
+</div>
+
+
+###  Подробнее
+
+С тех пор, как Вера Пирогова подписала контракт с сетью ресторанов «Бальзак Гурмэ», прошло полгода. Ее кондитерская, наконец, стала приносить хороший доход, однако строгий контроль в лице владельца сети Дениса Алексеевича не дает Вере расслабиться ни на минуту. К тому же, помощников на кухне стало меньше: сестра Саша готовится стать мамой, частенько злоупотребляя (   Читать дальше...   )Производство: Россия / "Супер Продакшн"Жанр: комедия, драма, мелодрамаРежиссер: Антон Маслов, Акаки СахелашвилиАктеры: Елена Подкаминская, Данила Дунаев, Василина Юсковец, Александр Панкратов-Черный, Ксения Теплова, Александр Константинов, Елена Валюшкина, Галина Безрук, Алиса Феоктистова, Павел Грязнов и др.Продолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C282C89FD5C9120C7B847A4DEFF932B396A1A1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350085   (799853) от 23.05.2020
+
+Маленькие чудовища / Little Monsters (2019) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воспитательница везёт группу дошколят за город на экскурсию, когда на местности происходит вспышка зомби-вируса. Чтобы спастись и не травмировать хрупкую детскую психику, женщина убеждает малышей, что все эти зомби, кровь, кишки — ненастоящие, а всё происходящее — просто игра. Странная, но весёлая. И вот тот дядя корчится не от боли, а от радости. И не корчится, (   Читать дальше...   )Производство: Великобритания, Австралия, США / Made Up Stories, Protagonist Pictures, Snoot EntertainmentЖанр: Ужасы, комедияРежиссер: Абе ФорсайтАктеры: Лупита Нионго, Александр Инглэнд, Джош Гад, Кэт Стюарт, Дизель Ла Торрака, Надя Таунсенд, Маршалл Напье, Гленн Хэзелдайн, Ава Кариофиллис, Чарли УитлиПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72A41D22D8B10CCD30B9FADDB6B7EE13178ADF89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384612   (799852) от 23.05.2020
+
+Энтузиасты выстраиваются в очередь, чтобы купить самый медленный ноутбук в мире
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_799852.jpg" />
+</div>
+
+
+###  Подробнее
+
+На краудфандинговой платформе Crowdsupply более сотни пользователей уже собрали для проекта ноутбука «MNT Reform» $125 тыс., притом, что запрашивалось всего $115 тыс. и до конца сбора средств еще более месяца. Компьютерщики-энтузиасты в буквальном смысле выстраиваются в очередь за новым ноутбуком хотя он едва ли будет дотягивать до уровня даже бюджетных сборок. В (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385276   (799851) от 23.05.2020
+
+Секс будущего / Sex and the Future (2020) WEB-DLRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неудачники Бэрри и Эван проектируют идеальную женщину-робота и понимают, что можно сделать состояние на массовом производстве своего изобретения. Богатый принц вскоре узнает об их прототипе, и все трое вынашивают план, как изменить мир и все представления о сексе! Если бы только все было настолько просто.Производство: США / Don Kap ProductionsЖанр: КомедияРежиссер: Luis Carlos Hueck, Ethan Zvi KaplanАктеры: Элли Патрикиос, Джанет Лопез, Лена Эскандон, Revell Carpenter, Fahad Olayan, Энджел Гарет, Torrey Richardson, Кристел Эллинг, Parker Lauren, Dru PerezПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:30:03Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CABDC53FD27C18BAB5D2E1294DEB1462E7FBC852
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273525   (799850) от 02.01.2019
+
+VA - Best of Dance and EDM (2018) [MP3|320 Kbps] <Dance, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799850.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Above, Beyond, Zoë Johnston - My Own Hymn
+002. Afrojack, Stanaj - Bed Of Roses
+003. Alan Walker, Au/Ra, Tomine Harket - Darkside
+004. Alan Walker, Noah Cyrus, Digital Farm Animals, Juliander - All Falls Down(   Читать дальше...   )Жанр: Dance, ElectronicПродолжительность: 05:26:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AB45E66B9E3160BE322CF8B5119C640344E2662
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273569   (799849) от 02.01.2019
+
+Outloud - Virtual Hero Society (2018) Japan [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799849.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mountain (08:31)
-02. Rising From The Abyss (09:06)
-03. Final Years (04:38)
-04. The Mist That Shrouds The Peaks (10:15)(   Читать дальше...   )Жанр: Post-Metal, Progressive MetalПродолжительность: 00:52:10
+01. Fools’ Train
+02. My Promise
+03. Virtual Heroes
+04. I Am the One(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:52:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2DC76ED874C7BA9F4B410EB1B86AC28C5187381
+magnet:?xt=urn:btih:76C091F638E7E5919EC1C79E011C4C6BB4F4AA23
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,26 +369,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121979   (799249) от 04.04.2017
+###  Публикация: 1273608   (799848) от 02.01.2019
 
-Lingon X 4.3.7 [Multi]
+N'Draman Blintch - Cosmic Sounds (1980) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
 
->>Архив торрентов
->>Архив 4Apple
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799848.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Lingon X  - автоматический запуск приложений и сценариев
-Lingon позволяет визуально создавать файлы автозагрузки, которые используются для запуска приложений и скриптов автоматически при загрузке Mac OS X. Список всех программ выносится в таблицу, где его удобно редактировать. Тут же отображается статус каждой программы: чем она занимается, работает ли в данный момент (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 февраля 2017Разработчик: Peter Borg Apps ABПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Немецкий  и др.
+01. Self Destruction (10:07)
+02. Essika-Ti (7:53)
+03. Cosmic Sounds (11:14)
+04. She Africa (Ton Tour Viendra) (7:38)Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:36:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3AA194DAE4567A1841C7920645D3F31201C37F5
+magnet:?xt=urn:btih:9107BF3449D498468C6B5B5590C9526BC6EA81F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -112,28 +398,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121983   (799248) от 04.04.2017
+###  Публикация: 1273502   (799847) от 02.01.2019
 
-VA - Chillout April 2017 (Top 10 Best Of Collections) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+VA - German Top 100 Single Charts 07.01.2019 [MP3|320 Kbps] <Pop>
 
->>Electronic
->>Easy listening
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799847.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Leonid Bannikov - Black Princess (Chillout Mix)  5:19
-02.  CJ RcM - Mallorca (Chillout Mix)  4:38
-03.  Doors In The Sand - True Story (Chillout Mix)  4:19
-04.  Diamans - Reach Heavens (Chillout Mix)  4:33(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:48:21
+001. Capital Bra - Benzema
+002. Mariah Carey - All I Want for Christmas Is You
+003. Wham! - Last Christmas
+004. Ava Max - Sweet but Psycho(   Читать дальше...   )Жанр: PopПродолжительность: 05:31:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FABB0B2A5BD9A232B1525F78EAA4385F2D28E788
+magnet:?xt=urn:btih:BB41AF1DD2B1ADCC58C74F0D2F626415A05FB994
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -141,28 +427,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122156   (799247) от 04.04.2017
+###  Публикация: 1273506   (799846) от 02.01.2019
 
-Elian West - Uplifting Trance Collection Vol 6 (2017) [MP3|320 Kbps] <Uplifting Trance>
+В. В. Большаков (сост.) | Писатели США о Стране Советов (1983) [DJVU]
 
->>Архив торрентов
->>Архив Музыки
+>>Разное (категория книг)
+>>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799846.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Road Home (08:17)
-02. Magic Winter (06:43)
-03. My Sun (08:43)
-04. I Miss You (04:37)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:56:45
+В тематический сборник вошли очерки и публицистические статьи известных американских писателей Дж. Рида, А. Р. Вильямса, Т. Драйзера, Л. Хьюза, Ф. Боноски, А. Кана и других прозаиков, публицистов, поэтов и общественных деятелей. Сборник завершается статьей Владимира Большакова «Правда о Стране Советов и Соединенные Штаты Америки».Жанр: История, политология, документалистика, публицистика, журналистикаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0E1AA2905EC45A959086489413DECE6D9E84419
+magnet:?xt=urn:btih:D2EC9C0DFA44C04F78C4AC4149B000A297A3BC73
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -170,25 +453,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121974   (799246) от 04.04.2017
+###  Публикация: 1273605   (799845) от 02.01.2019
 
-SteerMouse 5.0.7 [En]
+Журнал | House Beautiful [UK] №12-1 (декабрь 2018 - январь 2019) [PDF] [En]
 
->>Архив торрентов
->>Архив 4Apple
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799845.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SteerMouse — продвинутый драйвер для USB и Bluetooth мышек, позволяющий присваивать их кнопкам дополнительные функции. Обладатели Mighty Mouse, а также манипуляторов от сторонних изготовителей могут увеличить производительность работы, используя новые возможности мышки: переключение приложений, нажатие горячих клавиш, быстрое наведение курсора на кнопки и многие (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14 марта 2017Разработчик: plentycomПоддерживаемая ОС: macOS 10.6  +Язык интерфейса: Английский
+Журнал "House Beautiful" - одно из ведущих изданий по интерьеру. В журнале публикуются лучшие идеи декорирования жилых помещений и кухонь, а также полезные советы по установке бытовой техники. Это должно вдохновить читателей журнала не бояться пробовать что-то новое, принимать смелые решения с цветом и стилями собственных интерьеров.Жанр: Дизайн, архитектура, интерьерФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B69ED334C0F0169ECD447BC3A663E98EC8E46D3
+magnet:?xt=urn:btih:DF7E5AFF827F94B7A31AF5C42FF1CE5C3A653C7F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -196,57 +479,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121961   (799245) от 04.04.2017
+###  Публикация: 1273565   (799844) от 02.01.2019
 
-VA - Chill Pilates Music: 15 Cool Chill Out Tracks for Pilates and Yoga (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ethereal Moments - Salutations to the Sun
-02. Peter Orbit - Les Nuits
-03. Bella Element - In This World
-04. Jonathan Sarlat - Moments in Love(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B320E197F34A5CF8B6AE7EB3CE0125EF0571449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121851   (799244) от 04.04.2017
-
-Aldaria - Land Of Light (2017) [FLAC|Lossless|image + .cue] <Symphonic Metal>
+Enemy Inside - Phoenix (2018) Japan [FLAC|Lossless|image + .cue] <Dark Modern Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799844.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Excitare Ad Lucem 01:06
-02. Another Life 06:14
-03. Guardians Of The Light 06:04
-04. Sands Of Time 04:52(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00: 59:33
+01. Falling Away
+02. Bleeding Out
+03. Phoenix
+04. Lullaby(   Читать дальше...   )Жанр: Dark Modern MetalПродолжительность: 00:54:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0259AE5F4BDC3385FE350F34D27B6D0A3D83F66F
+magnet:?xt=urn:btih:D5D998D4A184128E674822B0CFE40363DE748B21
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -254,28 +508,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122188   (799243) от 04.04.2017
+###  Публикация: 1273606   (799843) от 02.01.2019
 
-Dirty Dave Osti - Voodoo Guitar (2010) [APE|Lossless|image + .cue] <Blues Rock>
+Журнал | House Beautiful [UK] №2 (февраль 2019) [PDF] [En]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799843.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Play What the Man can't Say (04:37)
-02. Lit Again (04:43)
-03. Lips of a Liar (05:44)
-04. Wildside (03:45)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:51
+Журнал "House Beautiful" - одно из ведущих изданий по интерьеру. В журнале публикуются лучшие идеи декорирования жилых помещений и кухонь, а также полезные советы по установке бытовой техники. Это должно вдохновить читателей журнала не бояться пробовать что-то новое, принимать смелые решения с цветом и стилями собственных интерьеров.Жанр: Дизайн, архитектура, интерьерФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4EFFA0E5FA01E54E6E2F547FEE1AF1CDD14C76ED
+magnet:?xt=urn:btih:CE4DD30818C9A79A738948E681CCA0070C471EEA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -283,28 +534,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121951   (799242) от 04.04.2017
+###  Публикация: 1273582   (799842) от 02.01.2019
 
-VA - Submission Recordings Presents Miami 2017 (Mixed by INDI & Atragun) (2017) [MP3|320 Kbps] <Trance>
+Spider - 2 Albums (1980, 1981) LP [MP3|320 Kbps] <Rock, Pop Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799842.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Toast - Rise Up (Original Mix)  4:53
-02.  Amir Shahlaee - Summer Island (Michael Fearon Remix)  6:23
-03.  Tocalta - Fragments (Original Mix)  5:00
-04.  Biotones & Max Farewell  - Paraschute (Ion Luca Remix)  5:22(   Читать дальше...   )Жанр: TranceПродолжительность: 04:13:57
+Американская рок-группа из Нью-Йорка, образованная в 1977 году и расформированная в 1984 году. Выпустили два представленных альбома. В 1982 году они сменили название на Shanghai и записали последний альбом.01. New Romance (It's A Mystery) (3:08)
+02. Burning Love (3:28)
+03. Shady Lady (4:06)
+04. Everything Is Alright (3:27)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:20:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B70E4D3FC69D6C7CD96BA897C1A8429D03A9E8CF
+magnet:?xt=urn:btih:EDBDC1B9F712F6CF2D6872426D8D194485E419BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -312,113 +563,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122175   (799241) от 04.04.2017
+###  Публикация: 1273511   (799841) от 02.01.2019
 
-PhotoStack (was Instastack) 3.6.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799241.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoStack (был Instastack) - настольный клиент Instagram.
-PhotoStack -  Это самый элегантный способ просмотра Instagram на Mac.
-PhotoStack - это новый инструмент, чтобы помочь вам открыть для себя Instagram и если вы хотите подключить свой аккаунт Instagram из строки меню на вашем Mac, PhotoStack это ваш инструмент.
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03 апреля 2017Разработчик: IcyArrow,Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C592CD379DDBF6BEA6CB606AE0CDFD213420F230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122320   (799240) от 04.04.2017
-
-Downie 2.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик. Поддерживает более 800 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие. Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.
-
-Список поддерживаемых сервисов: YouTube, Vimeo, trailers.apple.com, CNBC, NHL, LiveLeak, Insanee, Daily Haha, BlipTV, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04 апреля 2017Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3584FE5155E734538D9F74647F7824FE0742B72B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121788   (799239) от 04.04.2017
-
-VA - Chillout April 2017  (Top 10 Spring Relaxing Chill Out and Lounge Music) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexey Kosenko — Pain
-02. Kasstedy — Morning in Zion
-03. Das.RBT — Bullets
-04. Nikolay Mikryukov — Bora Bora(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1057E982EF52F42FA43249354A2F083C2F95A6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122177   (799238) от 04.04.2017
-
-Fugu Quartet - Sisyphus (2016) Demo EP [MP3|320 Kbps] <post-metal, sludge, darkjazz>
+Kruger - Созвездия фар (2019) [MP3|320 Kbps] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799841.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Through The Ground
-02 Sisyphus
-03 UnnamedЖанр: post-metal, sludge, darkjazzПродолжительность: 00.18.58
+Альбом полностью посвящён дорожной тематике. Некоторые песни группы не один год ждали этого альбома, начав свой путь в многочисленных синглах. Они несколько поменялись перед вхождением в Созвездия, были талантливо и мощно ремастированы. Приятный сюрприз для фанатов группы - второе рождение песни Дизель из альбома Мы Рок в новом звуке и балансе. Группа KRUGER хорошо (   Читать дальше...   )01. Созвездия Фар
+02. Сердце Мотора
+03. Не Ровняйте Нас с Собой
+04. Преступники(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE101789B66529D640589D8CE633E18866852261
+magnet:?xt=urn:btih:10273BCE030EFB6E0888700EA0DFCEBF139C1296
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -426,28 +592,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122000   (799237) от 04.04.2017
+###  Публикация: 1273546   (799840) от 02.01.2019
 
-VA - Level Lounge (The Best Selection Of Vip Chill Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Tom Hooker - No Time To Say Goodbye (2018) [MP3|320 Kbps] <Italo-Disco>
 
->>Electronic
->>Easy listening
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799840.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Ajad Samskara - Byron Bay  5:09
-02.  Augusto Casella - Dream Love  4:27
-03.  Emmanuele Landini - Innocence  5:19
-04.  Ajad Samskara - Violet  4:20(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:19:15
+01. Big Boys Don't Cry (5:46)
+02. You're Right (4:26)
+03. Pretty Ugly (4:07)
+04. Play With Fire (4:16)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:55:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A28AA3CC54BAE08F5BF78385E63101530157B3F
+magnet:?xt=urn:btih:94CCB1E5F2681FDE7302FF854F8B9D1E795088D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -455,28 +621,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121806   (799236) от 04.04.2017
+###  Публикация: 1273667   (799839) от 02.01.2019
 
-космический тюлень - Эреб (2015) [MP3|320 Kbps] <post-rock, post-metal, instrumental>
+Rene Riche And Her Cosmic Band - Love In Space (1978) LP [MP3|320 Kbps] <Electronic, Space Disco>
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799839.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Дигм
-02. чаща
-03. мир нерождённых душ
-04. Гашшарва(   Читать дальше...   )Жанр: post-rock, post-metal, instrumentalПродолжительность: 00:23:38
+01. Galactic Prelude (5:02)
+02. Magic Ride (6:03)
+03. Light Of Love (6:54)
+04. Love In Space (8:16)(   Читать дальше...   )Жанр: Electronic, Space DiscoПродолжительность: 00:37:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF806EC43B4292D5EE5E27B0B5BE55D31D9E8118
+magnet:?xt=urn:btih:5E40FCF63925199D04D5320B370ADC8D9B945CEB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -484,27 +650,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121956   (799235) от 04.04.2017
+###  Публикация: 1273580   (799838) от 02.01.2019
 
-Monster Energy NASCAR Cup Series 2017. Этап 6 - Martinsville. Гонка (2017) WEBRip [H.264/720p-LQ] [VO]
+В. М. Блейхер | Парапсихология. Наука или суеверие? (1972) [DJVU, PDF]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Научная и техническая литература
+>>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799838.jpg" />
 </div>
 
 
 ###  Подробнее
 
-6 этап Monster Energy NASCAR Cup Series STP 500, Martinsville Speedway (500 laps, 263 miles).
-Запись гонки с прямой трансляции на телеканале "Premier Sports HD".
-В записи отсутствуют последние круги с 30 по 14 из-за проблем с падением источника телеканала.Телекомпания: Premier Sports HDЖанр: СпортПеревод: Одноголосый закадровый, любительскийЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:01:59
+Книга посвящена развенчанию парапсихологии - одного из наиболее мистических суеверий, претендующего на роль науки. В ней рассказывается о современных парапсихологах и их предшественниках - спиритах. Сообщаются сведения о так называемой телепатии и телекинезе и других «парапсихологических феноменах». Отдельные главы посвящены анализу «феномена Розы Кулешовой», «чтения (   Читать дальше...   )Жанр: История, психология, нейрофизиология, религиоведениеФормат: DJVU, PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8EF1B6582C3F94EEAA42E8F12D2F08465B7E035
+magnet:?xt=urn:btih:189D722DB5A9CA919F52711D18AF40E8375FA1D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -512,229 +676,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121823   (799234) от 04.04.2017
+###  Публикация: 1273401   (799837) от 02.01.2019
 
-Варлен Стронгин  | Любовь Полищук. Безумство храброй (2017) [MP3]
+Дмитрий Емец | Космический пират Крокс-2. Сердце пирата (2018) [MP3]
 
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799837.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Почему безумству храбрых мы поем песни? Почему мы считаем храбрость проявлением безумства? Вероятно, потому, что она на фоне общей вялотекущей жизни выглядит своеобразным вызовом людям, случаем из ряда вон выходящим.
-Была ли смелой Любовь Полищук? Безусловно. Еще в юношеские годы она решилась перебраться из далекого от центра культуры сибирского города в столицу (   Читать дальше...   )Жанр: Биографии и МемуарыПродолжительность: 07:13:23
+Крылатый ежик с планеты Синего Кефира способен выполнить любое желание своего хозяина! К счастью, Андрею, его другу – роботу Баюну и девочке Лависсе удалось опередить космического пирата Крокса, забрать ежика к себе и бежать от пирата с помощью пространственного перемещателя. Но не так просто вырваться с Неизвестной планеты, на которую попадают верные друзья. На (   Читать дальше...   )Жанр: фантастика, детская литератураПродолжительность: 07:46:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69266C2C479B947BA148443C0639A1151CF00D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122113   (799233) от 04.04.2017
-
-ScreenFloat - More Useful Screenshots 1.5.13 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799233.jpg" />
-</div>
-
-
-###  Подробнее
-
-ScreenFloat — приложение для создания висящих на виду скриншотов
-Приложение позволяет создавать висящие перед глазами скриншоты и сохранять их в собственную библиотеку, чтобы потом быстро найти
-
-Используйте ScreenFloat для создания плавающих скриншотов, которые всегда видны, независимо от того, какое приложение вы используете. Таким образом, вам не нужно перемещать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: сентябрь 2016Разработчик: Matthias GansriglerПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E8D856CA92E599C1F9D9A608DB848420EE41126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121839   (799232) от 04.04.2017
-
-Сруб - Хтонь (2015) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Dark Folk, Occult Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Горицвет (01:50)
-02. Изгнание (02:52)
-03. Дом Всех Тревог (04:15)
-04. Грот (04:32)(   Читать дальше...   )Жанр: Post-Punk, Dark Folk, Occult PunkПродолжительность: 00:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E42013180638EC1C171DC6B468DFFB218B4C1E8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121991   (799231) от 04.04.2017
-
-VA - Sexy Deep House Tunes Vol.4 (Fantastic Groovy & Melodic Deep House) (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Marga Sol - Heaven (Spase Ilo Indie Dance 2016 House Remix )  8:30
-02.  Der Dienstleister - Crusty  6:18
-03.  3YYY - Boom  5:34
-04.  HYPELEZZ - The Beach  4:28(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:33:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:154C99794434F9209183318BFC7F6258680AEA90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121985   (799230) от 04.04.2017
-
-Konstantin Klashtorni & Love Suggestions - Sax Night (2017) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thick Of It (5:43)
- 02. There Goes My Baby (4:17)
- 03. Shape Of You (5:06)
- 04. Don't Wanna Know (4:50)(   Читать дальше...   )Жанр: Smooth Jazz, LoungeПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACC5577893AAABA0896BF1CE37DFB09004FBC4C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121904   (799229) от 04.04.2017
-
-Zoot Sims - New Beat Bossa Nova, Vol. 1 & 2 (1962) 2004,  Colpix Records/Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Recado Bossa Nova Pt.1 (2:38)
-02. Recado Bossa Nova Pt.2 (3:00)
-03. Cano Canoe (5:39)
-04. Contando A Orquestra (4:11)(   Читать дальше...   )Жанр: Cool, Mainstream Jazz, Bossa NovaПродолжительность: 01:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E5B568F7BAF9FBEDD929B86F60D08891881351B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121849   (799228) от 04.04.2017
-
-Сруб - Сруб (2014) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Dark Folk, Occult Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Полынь (03:10)
-02. Лень (04:20)
-03. Тайной Тропой (05:01)
-04. Омут (05:12)(   Читать дальше...   )Жанр: Post-Punk, Dark Folk, Occult PunkПродолжительность: 01:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3400977E65338121B739B1C9CFA69DE9D66286C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122202   (799227) от 04.04.2017
-
-Ruthie Foster - Joy Comes Back (2017) [MP3|320 Kbps] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Are You Listening To? (04:18)
-02. Working Woman (04:02)
-03. Joy Comes Back (04:32)
-04. Open Sky (04:27)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7A262E0072FE26EFF181FA2D0B597953B9DFF86
+magnet:?xt=urn:btih:A36855D52B46683688A52EAD0F63F4B0258F7E7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

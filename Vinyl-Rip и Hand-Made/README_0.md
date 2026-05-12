@@ -1,3 +1,148 @@
+###  Публикация: 1863974   (1063058) от 07.04.2026
+
+Doomed - Studio Albums (6 releases) (2012-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Doomed - немецкая метал-группа из Цвиккау, Саксония. Основана в 2011 году.2012 - In My Own Abyss
+2012 - The Ancient Path
+2014 - Our Ruin Silhouettes
+2015 - Wrath MonolithЖанр: Death/Doom MetalПродолжительность: 05:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:075395DEA3D5AFFEEA30D3E4FA8455A180D433E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861790   (1062842) от 27.03.2026
+
+Ram-Zet - Studio Albums (6 releases) (2000-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Avant-garde Black/Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ram-Zet — метал-группа, образованная в Хамаре, Норвегия, в 1998 году.2000 - Pure Therapy
+2002 - Escape
+2005 - Intra
+2009 - NeutralizedЖанр: Avant-garde Black/Gothic MetalПродолжительность: 05:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A95A21B2EECA0323C004D8EAE61EA5B43C0D10C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861574   (1062841) от 27.03.2026
+
+Harry Secombe With Myrna Rose - Sings The Songs Of Ivor Novello (1967) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Stage & Screen, Romantic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062841.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Glamorous Night
+A2 I Can Give You The Starlight
+A3 My Dearest Dear
+A4 We'll Gather Lilacs(   Читать дальше...   )Жанр: Pop, Stage & Screen, RomanticПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D25151811B6EB0FEBE45C913480E510121B286E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861306   (1062562) от 25.03.2026
+
+The Melachrino Strings And Orchestra - Moods In Music: Music For Relaxation (1952) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop, Classical, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062562.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Berceuse De Jocelyn (Godard)
+A2 Autumn Leaves (Kosma)
+A3 While We Were Young (Wilder, Palitz, Engvick)
+A4 Star Dust (Carmichael, Parish)(   Читать дальше...   )Жанр: Pop, Classical, Easy ListeningПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF6F8F5DC0DB5FFD9B5BA1B354595AD1D2DD1BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861317   (1062561) от 25.03.2026
+
+Samael - Studio Albums (13 releases) (1991-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Black Metal, Electronic/Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Samael — швейцарская метал-группа, образованная в Сьоне в 1987 году.1991 - Worship Him
+1992 - Blood Ritual
+1994 - Ceremony of Opposites
+1995 - Rebellion (EP)Жанр: Black Metal, Electronic/Industrial MetalПродолжительность: 11:01:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C328119F4D64421615CC302566D60D9E257C05FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861130   (1062317) от 24.03.2026
 
 Hollywood Symphony Orchestra - Orchestral Fireworks (1966) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical>
@@ -598,150 +743,6 @@ Susperia - метал-группа из Ромерике, Норвегия, ос
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F37722BBC0A536C5E3C7C791B0F0AA15540C4B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856260   (1058677) от 27.02.2026
-
-Armageddon (Sweden) - Studio Albums (5 releases) (1997-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal, Progressive/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armageddon - метал-группа из Хальмстада, Швеция, образована в 1997 году.1997 - Crossing The Rubicon
-2000 - Embrace The Mystery
-2002 - Three
-2015 - Captivity & DevourmentЖанр: Melodic Death Metal, Progressive/Thrash MetalПродолжительность: 03:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CEEE6C5B712DE28428F2ABA8FA25119F7596EFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856251   (1058676) от 27.02.2026
-
-Abhorrent Decimation - Studio Albums (3 releases) (2013-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Abhorrent Decimation - британская дэт-метал группа, образованная в 2013 году в Лондоне.2013 - Infected Celestial Utopia (EP)
-2015 - Miasmic Mutation
-2017 - The PardonerЖанр: Death MetalПродолжительность: 01:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38855E0591F0AE81AA33E613C15BACB8475260C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856227   (1058675) от 27.02.2026
-
-Cleo Laine - The Platinum Collection Of Cleo Laine (1981) Series The Platinum Collection, 24 Tracks Double Album [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058675.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 He Was Beautiful
-A2 If
-A3 Let's Have A Quiet Night In
-A4 Send In the Clowns(   Читать дальше...   )Жанр: Pop, JazzПродолжительность: 01:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D405EB789EFB1F05A914AA6FD33EF0750D8D9D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856309   (1058640) от 27.02.2026
-
-VA - Country Dreams (1983) [FLAC|Lossless|image + .cue] <Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058640.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Lynn Anderson - Close To You
-A2 Bonnie Guitar - A Woman In Love
-A3 Kitty Wells - Searching (For Someone Like You)
-A4 Glenn Yarbrough - Mr Bojangles(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:343CFF270D75009285B4481245320AD46DE0584C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856085   (1058533) от 26.02.2026
-
-Cathedral - Studio Albums (15 releases) (1991-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Stoner Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cathedral — метал-группа из Ковентри, Англия, основана в 1989 году.1991 - Forest Of Equilibrium
-1992 - Soul Sacrifice (EP)
-1993 - The Ethereal Mirror
-1994 - Cosmic Requiem (EP)Жанр: Doom/Stoner MetalПродолжительность: 14:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01D6F3099DF85B260D4C1487C81B68E0B52E88B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

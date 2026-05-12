@@ -1,3 +1,55 @@
+###  Публикация: 934425   (502066) от 05.09.2015
+
+Проекты - VideoHive - Crumpling Paper Logo Reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB780CB39D12DAEED990D30AD54062990DCBB30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934349   (502062) от 05.09.2015
+
+Проекты - VideoHive - Holographic Presentation [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для голографической презентации. Редактируется в АЕ.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29CE5CF3B49B04E1AC6B333CE8919BB4CFBE830F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934338   (502006) от 05.09.2015
 
 Проекты - VideoHive - Mobile App Promo - Story 2 - The Appres [AEP]
@@ -620,59 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D81D66E6B6E9664A4AB9A73E07400B075A60ED13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935514   (497083) от 10.09.2015
-
-Проекты - VideoHive - 100 Infographics Kit - 10937169 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект информационной видео-графики. Если вам нужна Инфографика-анимация это шаблон для вас.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CBD065E668CBD483B5DB2007D2DF228EF73AE8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053967   (496372) от 18.09.2016
-
-Проекты - VideoHive - Fine Portraits [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6756A306D5101C131A1B734E871E6EC2FBF7CF9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

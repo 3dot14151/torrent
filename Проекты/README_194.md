@@ -1,3 +1,55 @@
+###  Публикация: 922281   (568061) от 29.07.2015
+
+Проекты - Pond5 - Colorful Intro [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания титров/логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD338F2A1898A6E74B47CB557E90DC971F7FB3D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920648   (568057) от 29.07.2015
+
+Проекты - VideoHive - The Slider Wizard Builder Kit [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор "Мастер Слайдер-Строитель" включает слайд-шоу / раскадровки, 35 отдельных сцен (готовые, легко импортировать) индивидуальные AEP файлы и 10 накладок сцены.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D4A31216A6B0B6201C806CD71E03E076C7635E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920820   (568015) от 29.07.2015
 
 Проекты - VideoHive - Simple Logo Reveal Pack [AEP]
@@ -634,58 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03E18A597D7A4D9DC104FDBAA933A1902983656E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921854   (566251) от 30.07.2015
-
-Проекты - VideoHive - Photo Titles [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивые слайды с эффектом призмы.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EEA61D615041DBC984F41159FB5C5F7202212CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922603   (566245) от 30.07.2015
-
-Проекты - VideoHive - In Style [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FEA594D8137E9867016BD969D318A85D71E0140
 ```
 
 https://mybot314.ru/tekegram_catalog/

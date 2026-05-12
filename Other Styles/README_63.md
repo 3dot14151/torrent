@@ -1,3 +1,119 @@
+###  Публикация: 1219243   (715730) от 13.04.2018
+
+Dr. Jeffrey Thompson & Mick Rossi - Dancing Clouds (2007) [FLAC|Lossless|tracks] <New Age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmos 15:28
+02. Flying 15:49
+03. Astral Plane 16:05
+04. Dancing Clouds 15:22Жанр: New Age, Meditative, RelaxПродолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:312BA8154153A9BC8FDB3047125BEB70F1F522C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219318   (715508) от 13.04.2018
+
+Danheim - Munarvagr (2017) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 0:44
+02. Vindöld 3:28
+03. Tyrfing 3:27
+04. Tyr 3:40(   Читать дальше...   )Жанр: Dark Folk, Dark AmbientПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62E35A0A3BE856A95EA7689A391C46B19AD6E93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219324   (715500) от 13.04.2018
+
+Danheim - Fridr (2018) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fridr 4:24
+02. Ginnung 4:55
+03. Fegurð 4:45
+04. Yggdrasil 4:32(   Читать дальше...   )Жанр: Dark Folk, Dark AmbientПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8F682CB24D57E632E687F6FE75AC4C42B8E4C87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024413   (715453) от 09.06.2016
+
+Toby Fox - Undertale Soundtrack (2015) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Chiptune, Midi, Orchestral>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once Upon a Time (1:29)
+02. Start Menu (0:32)
+03. Your Best Friend (0:23)
+04. Fallen Down (0:58)(   Читать дальше...   )Жанр: Soundtrack, Chiptune, Midi, OrchestralПродолжительность: 02:10:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF64E51716FB6E9D11C4FCEC47ADDC99D7CA529
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285604   (715076) от 01.03.2019
 
 The Innocence Mission - Sun On The Square (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
@@ -628,122 +744,6 @@ Vince Gill - Pocket Full Of Gold (1991) [FLAC|Lossless|tracks + .cue] <Folk, Wor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6608F27F61546E2142399D121DFEFEB87B340902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286727   (711297) от 03.03.2019
-
-Toby Keith - Pull My Chain (2001) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711297.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	I'm Just Talkin' About Tonight 	2:45
-2 	I Wanna Talk About Me 	3:04
-3 	I Can't Take You Anywhere 	3:33
-4 	You Leave Me Weak 	3:22(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66909DEEA2AD6F9A5C75D21B57758DAFAD3A2C05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286736   (711283) от 03.03.2019
-
-Toby Keith - Greatest Hits Volume One (1998) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711283.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	Getcha Some 	3:16
-2 	If A Man Answers 	3:36
-3 	Should've Been A Cowboy 	3:30
-4 	Dream Walkin' 	3:56(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AD87F7878A3A3264DDD51D65BDCBD45E2D09E83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286738   (711206) от 03.03.2019
-
-Toby Keith - Greatest Hits 2 (2004) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711206.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	How Do You Like Me Now?! 	3:27
-2 	Country Comes To Town 	3:38
-3 	You Shouldn't Kiss Me Like This 	3:42
-4 	I'm Just Talkin' About Tonight 	2:45(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:963D425B830B635F8A6840EE38BF9A0B2FF328EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286729   (711188) от 03.03.2019
-
-Toby Keith - How Do You Like Me Now?! (1999) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711188.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	How Do You Like Me Now?! 	3:27
-2 	When Love Fades 	3:04
-3 	Blue Bedroom 	3:28
-4 	New Orleans 	4:11(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C609A47F216293D0BFB79E46304B942B6A66BD9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

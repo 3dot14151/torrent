@@ -1,3 +1,55 @@
+###  Публикация: 922986   (564436) от 31.07.2015
+
+Проекты - Motion Array - Poly Noise Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон анимации для логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B42EB38B66700EB9B2187CCCAAAB4F7127D3A35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923451   (564393) от 31.07.2015
+
+Проекты - VideoHive - iMock-Up App Promo [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы можете изменить последовательность касаний к сенсорному экрану, и точку взаимодействия на экране. Имеется три шаблона версий проекта.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9D55C7C1C557C0A910BE73F87BC2E09DB265C8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922929   (564338) от 31.07.2015
 
 Проекты - VideoHive - Music Logo [AEP]
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CB9DC3AF3149D0C71637CD54A6B60F90B0F40CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 814364   (560898) от 19.08.2014
-
-Videohive - Wedding Photos Slideshow - 4565295 [AEP]
-
->>Проекты
->>Свадебные и романтические (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект дает ощущение, якобы личного присутствия за просмотром фотографий.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6525EFAE3111B0C429217BB857302605DA3DF1EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 814376   (560893) от 19.08.2014
-
-VideoHive - Nomination Ceremony - 7804836 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nomination Ceremony - проект для какого-либо события, церемонии. Неплохо подойдёт для выпускного, юбилея.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CD05DDA5779787F5FAAB58D6F4D87E4706CF427
 ```
 
 https://mybot314.ru/tekegram_catalog/

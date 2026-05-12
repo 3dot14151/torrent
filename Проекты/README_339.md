@@ -1,3 +1,56 @@
+###  Публикация: 1682334   (131642) от 06.12.2023
+
+Проекты - VideoHive - Christmas Snowman - 49545852 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131642.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Christmas Snowman» - стильный, элегантный проект для создания рождественского поздравления, вступительного ролика.
+Многие оценят по достоинству.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F41C7084434A6F466ED16DE1335C6B6EB3151041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682753   (130912) от 08.12.2023
+
+Проекты - VideoHive - Merry Christmas & Happy New Year Slideshow - 49634905 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яркий и веселый шаблон для создания рождественской открытки и любых других праздничных новогодних мероприятий.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3B94B9F119533B0C4B74869A74C3095EC77C2A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683583   (128204) от 13.12.2023
 
 Проекты - VideoHive - New Year Winter Countdown - 49781196 [AEP]
@@ -633,60 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90DC85E9F354DFBB69A9417DEE643DD0ECD62EE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787781   (68700) от 27.03.2025
-
-Проекты - VideoHive - Valentine Sweet Logo - 56706943 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивый проект с логотипом ко дню влюбленных.
-
-Музыка предоставлена в демо режиме.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4F110B9DB22796AE2C53E608A9D487DF7A07FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803380   (65895) от 22.06.2025
-
-Проекты - VideoHive - UI Music Widget - 58503153 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект с музыкальными виджетами в UI стиле.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:253AE6841B7EB1A7B621FD636B16A9A04E6A52D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

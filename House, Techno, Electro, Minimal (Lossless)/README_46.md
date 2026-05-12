@@ -1,3 +1,32 @@
+###  Публикация: 1252174   (409321) от 05.10.2018
+
+VA - Incepto Deep Hybrid (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MaurizioG - Lust (original mix) (6:39)
+02. Ultraverse - Sensorica (Nio March remix) (6:29)
+03. Alec White - My Friend, What's up - (Ah)! (original mix) (7:25)
+04. Misha - The Groove (original mix) (4:11)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 00:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC1DDF714E933996D90AC7F3ACAAC25DFC9F2A78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168620   (408887) от 24.09.2017
 
 VA - Summer Vibes - Part VI (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Techno, Dubstep>
@@ -714,35 +743,6 @@ Aleja Sanchez - Discography 30 Releases (2010-2020) Northallsen Records [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70CD81AC27791EFB008D3B3B3B51B0F0242899F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069172   (376102) от 03.11.2016
-
-VA - Renaissance The Mix Collection: Art Department (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jonny White - Ambient Intro/Rainfall [01:56]
-02. Rhythm & Sound - Smile (feat Savage) [06:55]
-03. Maurizio - M5 A (edit) [05:49]
-04. Deepchord - DC12 A1 [06:15](   Читать дальше...   )Жанр: Deep House, MinimalПродолжительность: 02:15:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A7DCD39334350A0E30BC4B25BFEAF32E067C90
 ```
 
 https://mybot314.ru/tekegram_catalog/

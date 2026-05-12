@@ -1,3 +1,56 @@
+###  Публикация: 1009370   (809784) от 21.04.2016
+
+Проекты - VideoBlocks - Architect Cityscape [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превью в стиле архитектурного чертежа.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4CDC9180986ABBACDC78F5E2C1E6DE7E745118D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009534   (809777) от 21.04.2016
+
+Проекты - VideoHive - Amazing GraPhix - 59227 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впечатляющая презентация для вашей компании и ваших клиентов! Легко изменить цвет и текст. Удивите своих клиентов эффективной и мощной презентацией.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6ABFCC6688FD784A11907E71646EE44E4F7DDE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009271   (809772) от 21.04.2016
 
 Проекты - VideoHive - 4 Screens [AEP]
@@ -618,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60AEC6B66E44A8D411AEE6DA1C20AAFEAA1C0155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009636   (807584) от 22.04.2016
-
-Проекты - VideoHive - Multipurpose Photo Reveal [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект подходит для всех видов заставок: бизнес, корпоративы, юбилеи, свадьбы, дни рождения, праздники, семейные фотографии и т.д. На все случаи жизни.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD11237586E4EFDD81188340086E198F6E0D951C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009635   (807583) от 22.04.2016
-
-Проекты - VideoHive - Energy Light Logo [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания эффектных логотипов. Проект хорошо организованный и простой в использовании.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69D76CECDFF3D633AC3CDB7D6A25D4AE7C995032
 ```
 
 https://mybot314.ru/tekegram_catalog/

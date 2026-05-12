@@ -1,29 +1,3 @@
-###  Публикация: 1013883   (777140) от 05.05.2016
-
-Детская шоу-студия "Карманы" - Коллекция (2002-2004) [128-256 kbps]<Детские песни, Вокал>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Детские песни, ВокалПродолжительность: 03:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D621AF304A522F5B67A81859F3D58BF375A549AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967063   (777124) от 08.03.2018
 
 В стране музыкальных волшебников (1976,1978,1980/2008) [WavPack]
@@ -693,6 +667,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA4D04547ADB990EB67A7D48015AE2596FB5F759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 661291   (770810) от 26.05.2013
+
+VA - Musik aus Freundesland fur Kinder (1981) [MP3|320 кб/с]<Детские песенки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Salut der Sonne und der Freundschaft (UdSSR) (Большой Детский Хор)
+02 - Frohlicher Spaziergang (UdssR) (младшая группа Большого Детского Хора)
+03 - Der verliebte kleine Krebs (Kuba)
+04 - Kubanischer Tanz(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 00:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B237F61EAD78489B178D11F496E4C40680FEAE40
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 984322   (939986) от 08.02.2016
+
+Проекты - Pond5 - Dubstep Presentation [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания Вашего фото-слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:015CED2395384BEBFF4CD7036D3E29017A00D1F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092195   (939943) от 11.01.2017
+
+Проекты - Fashion Nebula [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fashion Nebula - элегантный проект для создания модного слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C29B97DFAA095F51DF3C5B3E34597149415BF046
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092205   (939878) от 11.01.2017
 
 Проекты - VideoHive - The Slideshow - 17944703 [AEP]
@@ -629,60 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACF1B67EE2E9A2F5B6578406713B5B4BFCF5740A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984706   (938503) от 09.02.2016
-
-Проекты - VideoHive - The Ring [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C0444C4981B70AE2DD794B4A6E9787BB29D346
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984482   (938492) от 09.02.2016
-
-Проекты - Pond5 - Vintage Slide [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания ретро слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6383185BDCAA93C6AE9A893CEF84AA708A252E01
 ```
 
 https://mybot314.ru/tekegram_catalog/

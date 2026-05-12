@@ -1,3 +1,61 @@
+###  Публикация: 1653677   (214199) от 17.08.2023
+
+Anne Louise Brillon de Jouy, Nicolas Horvath  Complete Piano Sonatas - Complete Piano Sonatas (2021) 2 x CD [FLAC|Lossless|image + .cue] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214199.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+[1]-[2] Sonnatte in A minor
+[3]-[4] Sonata No.1 in C minor
+[5]-[6] Sonata No.2 in B flat major(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:414916EF4A1158204257D2153CBC2BB5919989B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641822   (210623) от 24.06.2023
+
+Johann Sebastian Bach, Phantasm - The Well-Tempered Consort-III (2022) [FLAC|Lossless|image + .cue] <Classical, Baroque>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sinfonia No. 1 In C Major BWV 787
+02. Christ Unser Herr, Zum Jordan Kam BWV 684
+03. Fugue No. 3 In C Sharp Minor BWV 872
+04. Christe, Aller Welt Trost BWV 673(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 01:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E385CE0B3D75BD62DFCE0C2E29D35E8399491755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646427   (208214) от 22.07.2023
 
 Atlanta Symhonic Orchestra & Chorus - Carl Orff: Carmina Burana (1981) Remaster, 2013 Ultra High Definition 32-Bit Mastering [FLAC|Lossless|image + .cue] <Classical>
@@ -688,64 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AABE7C98D7138A5F12CD38AB38CB66563AB13F5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597575   (165838) от 15.12.2022
-
-Andrea Bocelli - A Family Christmas (2022) [FLAC|96/24|Lossless|WEB-DL|tracks] <Pop, Classical Crossover, Christmas>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You Hear What I Hear?
-02. Away In A Manger
-03. Feliz Navidad
-04. The First Noël(   Читать дальше...   )Жанр: Pop, Classical Crossover, ChristmasПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E305D9952A5204A603BA3D297129F7E75FDF65D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674401   (160587) от 07.11.2023
-
-Orchestre National De France - Georges Bizet: Carmen (1984) 3CD [FLAC|Lossless|image + .cue] <Classical, Opera>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trio: "Melons! Coupons!"
-02. Dialogue: "Eh, Carmen! Laisse!"
-03. Morceau d'ensemble: "Quant au douanier, c'est notre affaire"
-04. Dialogue: "Ne venez pas"(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F42C7BB14CCCB5284BA7EBF23ADE671261D23204
 ```
 
 https://mybot314.ru/tekegram_catalog/

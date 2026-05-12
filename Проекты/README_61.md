@@ -1,3 +1,56 @@
+###  Публикация: 1105060   (877545) от 16.02.2017
+
+Проекты - VideoHive - Action Trailer 4 - 12644712 [AEP]
+
+>>Проекты
+>>Трейлеры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания кинематографического трейлера или промо-ролика.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:451600A12BD0D6932A10D93FB69749279B262123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997018   (877203) от 15.03.2016
+
+Проекты - Club [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18B9C046889F302434EF549E03146D92A3030A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996715   (877076) от 15.03.2016
 
 Проекты - VideoBlocks - Automotive Showcase [AEP]
@@ -627,58 +680,6 @@ Soul Beat Slideshow - проект для создания уникальног�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43042C44ED56DE504B25D4AC126CCEE3B1C98345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105669   (874825) от 18.02.2017
-
-Проекты - VideoHive - Luxury Hotel Slides - 12749842 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Luxury Hotel Slides - С помощью этого набора вы сможете создать зацикленную демонстрацию слайдов недвижимости. Предайте роскошный и стильный внешний вид вашей презентации, которую вы с легкостью сможете продать.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:384BDFEDE895F782FAF0B041E7AE479455740371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105390   (874817) от 18.02.2017
-
-Проекты - VideoHive - Energetic Particle Reveal - 7157708 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Energetic Particle Reveal - энергичный проект для демонстрации вашего логотипа. Поместите свой логотип и жмите рендер.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA3BBD76E1FD91367DEBB8EEC3D88305D65E16A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

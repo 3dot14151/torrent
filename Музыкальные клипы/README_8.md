@@ -1,3 +1,84 @@
+###  Публикация: 1367424   (915092) от 16.03.2020
+
+Сборник клипов 01 (03.2020) WEB-DLRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник зарубежных и отечественных видеоклипов за март 202001_C-BooL - Higher
+02_W&W x Lucas & Steve - Do It For You
+03_ШЕFF feat. Indigo - Я рисую!
+04_Shlakoblochina feat. Fearmuch - Новая сила киски(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 3:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBAC1B2D1828F68EC7A1842127415B98EEF90744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 634136   (912961) от 24.03.2013
+
+Vanessa Hudgens vs. YLA - SSSex (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: HouseПродолжительность: 00:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D2A9BC5481573712DDE0DFD31670048A65D0E18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 634324   (912944) от 24.03.2013
+
+Katalina Rusu - My Name Is Love (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D762673395D3CD0F98AD67CC87D842B9977C8F3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 633919   (912782) от 24.03.2013
 
 Alex Clare - Too Close (2nd Version) (2012) [1080p] HDRemux
@@ -600,91 +681,6 @@ Die Kreatur - Die Kreatur (2020) WEB-DLRip [VP9/2160p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2444597C1E6BA139CF8865D4B2CC5C5430E84942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461540   (903884) от 29.02.2016
-
-Armin van Buuren - The Music Videos 1997-2009 (2010) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Say Never (Feat. Jacqueline Govaert)
-02. Fine Without You (Feat. Jennifer Rene)
-03. Unforgivable (Feat. Jaren)
-04. In And Out Of Love (Feat. Sharon Den Adel)(   Читать дальше...   )Производство: TME/Open Gate Records, Armada Music BVЖанр: TranceПеревод: ОтсутствуетПродолжительность: 01:02:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:017C1CA2EE3F3BD7F5414E9F153D2433EDB4F99A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636585   (903290) от 29.03.2013
-
-Сборник видео Адриано Челентано / Adriano Celentano Videos (до 2012 года включительно) DVD5 from WEBRip
-
->>След.
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляемый диск несколько необычен. Как правило, я не выкладываю то, что делаю для себя, но в данном случае это правило было нарушено. Ну не мог не поделиться!
-Фигура Челентано стоит особняком среди большой массы популярных (в свое время) итальянских певцов. И не только потому, что он еще и талантливый артист, снявшийся в огромной массе фильмов (часть из них, (   Читать дальше...   )Жанр: Italian Music
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A853BE58A3FDCA13E8243A7C02E3CFA4E898388E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099559   (903049) от 02.02.2017
-
-Olga Vels - The Sound Of Love (2017) WEBRip [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Olga Vels весьма одарённая молодая девушка (и по секрету - очень красивая) родилась в г. Новосибирске, проживает Радонеж Московская обл. В её клипах идеальное сочетание сентиментальности и энергетики, интеллекта и эмоций, высокого исполнительского мастерства и элегантной манеры исполнения. Все клипы на мой взгляд освящены целительной энергией солнечного света. Наполненные (   Читать дальше...   )01. Dead Can Dance - The Snake And The Moon [06:11]
-02. Submotion Orchestra - Hard To Stay [03:56]
-03. Fever Ray - Dry and Dusty [03:45]
-04. Enigma - Temple of Love - Erotic Dreams [04:40](   Читать дальше...   )Производство: РоссияЖанр: Ambient, Chillout, New Age, LoungeРежиссер: Olga Vels (клипмейкер)Продолжительность: 04:32:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A36ECA2C431B730E66F82A37CABA8AC6E344D1FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

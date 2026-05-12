@@ -1,3 +1,32 @@
+###  Публикация: 992023   (904284) от 29.02.2016
+
+VA - Chillstep Master Pack (2016) [MP3|266-320 кб/с] <Chillstep, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904284.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alikyas - Intimate at Night
+002. Black Agate - Kite
+003. Dj Grand Defence - Beautiful Bass
+004. Invert - Be Free(   Читать дальше...   )Жанр: Chillstep, DubstepПродолжительность: 06:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCB12ABAD00170C728B81D2A32E910D42A1D49C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992347   (902521) от 01.03.2016
 
 VA - Liquid Bass Drive (2016) [MP3|320 кб/с] <Drum and Bass, Dubstep>
@@ -719,35 +748,6 @@ VA - Fitness Mania Vol. 4 (2016) [MP3|320 кб/с] <Club, Dance, House, Euro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86779031B0BCE3B211E474D0BD6C008762B9C8E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099983   (900899) от 03.02.2017
-
-VA - Promo DJ Top 100 Remixes Winter 2017 (2017) [MP3|320 Kbps] <House, Big Room House, Electro House, Club House, Pop, Future House, Chillout, Deep House, Vocal House, Drum & Bass, Breaks,  ...
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900899.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sergey Sirotin & Golden Light Orchestra - Around The World (Johnny Beast Remix)  05:41
-002. Alan Walker - Faded (Amice Remix)  04:34
-003. Iowa - 140 (Ivan Spell Extended Mix)  04:16
-004. Dua Lipa - Be The One (Like Post Remix)  05:03(   Читать дальше...   )Жанр: House, Big Room House, Electro House, Club House, Pop, Future House, Chillout, Deep House, Vocal House, Drum & Bass, Breaks, DubstepПродолжительность: 07:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42F5F9B474ED9C08E10B9E98B02955CE9402533E
 ```
 
 https://mybot314.ru/tekegram_catalog/

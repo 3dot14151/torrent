@@ -1,25 +1,77 @@
-###  Публикация: 1274503   (793065) от 07.01.2019
+###  Публикация: 1509572   (793676) от 13.11.2021
 
-Herman Chittison - 1945 - 1950 (2003) Classics [FLAC|Lossless|tracks + .cue] <Stride, Swing, Piano Jazz>
+Blightbound (2021) [Ru/Multi] (1.1-128893/dlc) License PLAZA
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мира, который мы знали, больше нет. Десятилетие назад великие воины сразили Теневого Колосса после долгой и яростной битвы, но радость их была недолгой. Даже смерть была всего лишь частью его плана: из останков Колосса на окрестные земли хлынула Чума - ужасный туман, обращающий ко злу все, чего он касался.Тип издания: LicenseРазработчик: Ronimo GamesЖанр: RPG, Action, Adventure, PlatformerЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130CDD7EB9EE2B5EB7B1D813F06F6FB676751B6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509579   (793675) от 13.11.2021
+
+Orcs Must Die! 3 (2021) [Ru/Multi] (1.1.0.0/dlc) License CODEX
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Режьте, поджигайте, расплющивайте, испепеляйте, перемалывайте и потрошите огромные орды отвратительных орков в Orcs Must Die! 3. Опробуйте огромный арсенал оружия и ловушек. Режьте, сжигайте, швыряйте и бейте током полчища гнусных орков. Orcs Must Die! 3 - продолжение полюбившейся серии! Игроки будут сражаться с самыми большими орочьими армиями, какие только видел (   Читать дальше...   )Тип издания: LicenseРазработчик: Robot EntertainmentЖанр: Arcade/ActionЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:602CCAF7C59BB8B89F009D05C567094D4610BEB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386796   (793674) от 30.05.2020
+
+Francis Albert Sinatra & Antonio Carlos Jobim - Francis Albert Sinatra & Antonio Carlos Jobim (1967) [FLAC|Lossless|tracks + .cue] <Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793674.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Minute Waltz [3:05]
-02. June Barcarolle [2:46]
-03. Tristesse [2:41]
-04. Menuet [2:54](   Читать дальше...   )Жанр: Stride, Swing, Piano JazzПродолжительность: 01:09:12
+Совместный альбом Фрэнка Синатры и Антонио Карлоса Жобима, вышедший в 1967 году. Наряду с оригинальными композициями Жобина, в альбом вошло несколько стандартов из "Great American Songbook" ("Change Partners", "I Concentrate on You", and "Baubles, Bangles and Beads"), исполненные в стиле босса-нова. Аранжировки в исполнении (   Читать дальше...   )01. The Girl From Ipanema (Garota De Ipanema) (3:17)
+02. Dindi (3:30)
+03. Change Partners (2:43)
+04. Quiet Nights of Quiet Stars (Corcovado) (2:46)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:28:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ACF971D2592510568C25CACC9A56D0C019D770D0
+magnet:?xt=urn:btih:5855C3E63FE3DDA42EAF1E1E75CE2F996B2F26BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274498   (793064) от 07.01.2019
+###  Публикация: 1012523   (793673) от 01.05.2016
 
-Charlie Haden & Hank Jones - Come Sunday (2011) Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+Billie Holiday - My Man (1995) Series Success [APE|Lossless|image + .cue] <Jazz, Blues>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793673.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Take My Hand, Precious Lord [4:26]
-02. God Rest Ye Merry, Gentlemen [2:30]
-03. Down By The Riverside [2:58]
-04. Going Home [4:12](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:42:22
+01. My Man
+02. Miss Brown To You (Version 1)
+03. Keeps On A 'Raining'
+04. Love Man(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 00:35:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4454BB7A1455BB8BA7FE09B423F90DF81DE5E86F
+magnet:?xt=urn:btih:4383070D2124F161003CD4BBFA401AA561139344
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +108,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274433   (793063) от 07.01.2019
+###  Публикация: 1509711   (793672) от 13.11.2021
 
-Gordon Gano - Hitting The Ground (2002) (Violent Femmes frontman) [FLAC|Lossless|image + .cue] <Indie, Folk, Alternative>
+Udemy, Neil Bettison | Blender to Unreal Engine 5 - 3D Props - Medieval Gallows (2021) PCRec [EN]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793672.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. "Hitting the Ground" (PJ Harvey - vocals and guitar solo)
-2. "Oh Wonder" (Mary Lou Lord - acoustic guitar and vocals)
-3. "Make It Happen" (Gordon Gano - vocals)
-4. "Don't Pretend" (John Cale - piano and vocals)(   Читать дальше...   )Жанр: Indie, Folk, AlternativeПродолжительность: 00:32:11
+Хотели бы вы научиться моделировать и анимировать средневековые игровых 3D ассеты для AAA игр?
+Данный курс позволит вам создать 3D модель средневековой виселицы со старыми деревянными досками и веревкой. Некоторые элементы модели будут анимированны.Производство: UdemyЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 06:54:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA896C41AD83DE32FA1F841488BA5487BAA58C86
+magnet:?xt=urn:btih:66EB92622846A26424D68FF1B3D5BEA1F19C295E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,82 +135,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274364   (793062) от 07.01.2019
+###  Публикация: 1386768   (793671) от 30.05.2020
 
-Permute 3 v3.0.5 [Multi/Ru]
+Михаил Шифман | Рукопись, которой не было. Евгения Каннегисер – леди Пайерлс (2020) [EPUB]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неизвестные подробности о молодом Ландау, о предвоенной Европе, о том, как начиналась атомная бомба, о будничной жизни в Лос-Аламосе, о великих физиках XX века – все это читатель найдет в «Рукописи». Душа и сердце «джаз-банда» Ландау, Евгения Каннегисер (1908–1986) – Женя в 1931 году вышла замуж за немецкого физика Рудольфа Пайерлса (1907–1995), которому была суждена (   Читать дальше...   )Жанр: Современная русская литератураФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:981C53A6C2454E38871BA992A04C76AC8167F932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012242   (793670) от 01.05.2016
+
+Влияние трансформатора Тесла позволяет дистанционно собрать электронные схемы из углеродных нанотрубок
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_793670.jpg" />
+</div>
+
+
+###  Подробнее
+
+В свое время Никола Тесла проводил множество интересных и необычных экспериментов с его знаменитым трансформатором Тесла. Сегодня же это изобретение в большинстве случаев используется для произведения впечатления на посетителей музеев научной и технической тематики, различных выставок и шоу. Однако, благодаря работе исследователей из университета Райс (Rice University), (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509028   (793669) от 13.11.2021
+
+The Alan Parsons Project - Eye In The Sky (1982) Remastered 2021, Mobile Fidelity [DSD 2.0 1bit/2822,4kHz |SACD-R] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sirius (1:56)
+02 - Eye In The Sky (4:36)
+03 - Children Of The Moon (4:51)
+04 - Gemini (2:10)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25416AEB363B4EF9A15529C3FDA4E3A85B09123C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386830   (793668) от 30.05.2020
+
+Piezo 1.6.5 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793668.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 31.12.2018Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1A114005D8768334A7D3088A7F9DC665E1265A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274584   (793061) от 07.01.2019
-
-Yves De Mey - Bleak Comfort (2018) Latency [FLAC|Lossless|WEB-DL|tracks] <Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gruen (05:58)
- 02. Mika (05:53)
- 03. Vecto (08:37)
- 04. Bleak Comfort (06:27)(   Читать дальше...   )Жанр: ExperimentalПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB4350107FB071842827FB71978ACF8EDB6B1065
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274384   (793060) от 07.01.2019
-
-BusyContacts 1.3.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793060.jpg" />
-</div>
-
-
-###  Подробнее
-
-BusyContacts является менеджером контактов для OS X, что позволяет создавать, находить и управлять контактами более быстрым и эффективным способом.
+Piezo позволяет легко и быстро записать звук на вашем компьютере. В течение нескольких секунд и вы будете иметь запись звука из любого приложения.
+Кроме записи звука из приложений Piezo умеет записывать звук из встроенного микрофона, что может быть полезно для быстрой записи подкастов или создания аудио-заметок.
 
-BusyContacts приносит в управление контактами те же возможности, мощность, гибкость, а также обмен ими, что и для пользователей BusyCal в управлении своими календарями. Более того, BusyContacts интегрируется с BusyCal (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.12.2018Разработчик: BusyCal, LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
+Piezo не требует никаких настроек, достаточно его (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.05.2020Разработчик: Rogue Amoeba Software, LLCПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F3C22B25C394611965AECDCFC4E85A3E5FB0783
+magnet:?xt=urn:btih:213BEFA6815001804CEB2C95EC7537996E3BD086
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -168,28 +245,106 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274472   (793059) от 07.01.2019
+###  Публикация: 1012719   (793667) от 01.05.2016
 
-zvλd (zvld) - Enantiodromia (2018) 141414 [FLAC|Lossless|WEB-DL|tracks] <IDM>
+Robin Bessier - Open Road (2016) [MP3|320 кб/с] <Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Road
+ 02. Ride the Wind
+ 03. River
+ 04. Siren(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C267B5AAE11D689E870DA59EEE63B397D5FCF09F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509590   (793666) от 13.11.2021
+
+Шан-Чи и легенда десяти колец / Shang-Chi and the Legend of the Ten Rings (2021) WEB-DL [H.264/1080p] [IMAX Edition]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастеру боевых искусств Шан-Чи предстоит противостоять призракам из собственного прошлого, по мере того как его втягивают в паутину интриг таинственной организации «Десять колец».Производство: США, Австралия /  Walt Disney Pictures, Marvel Studios, Fox Studios AustraliaЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Дестин Дэниел КреттонАктеры: Симу Лю, Тони Люн Чу Вай, Аквафина, Мишель Йео, Чжан Мэнъэр, Чэнь Фала, Ронни Чиэн, Флориан Мунтяну, Бен Кингсли, Юэнь ВаПеревод: Дублированный (Невафильм)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Forced, Full, SDH)Продолжительность: 02:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91853223D3D246C40E9E4C123CDB167EA1851330
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386845   (793665) от 30.05.2020
+
+Т. Шпекс | Тайна пустого конверта (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загадочный дом на улице Говардс-Энд люди предпочитают обходить стороной. И не случайно! Когда-то в этом особняке жила семья знаменитых археологов, и однажды ночью, пока их сын Александр Меркуриус спал, они… пропали. Ходят слухи, что Александр по-прежнему живёт в том доме под опекой старого дворецкого Эйнара Штейна. После того как родители Алекса исчезли, Эйнар даже (   Читать дальше...   )Жанр: Детективы, Приключения для детейПеревод: Ольга ПолещукФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347323E7F86DE011210213BCD5FCA15FDDCC864E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012688   (793664) от 01.05.2016
+
+Algoriddim djay Pro 1.3.1 [Multi]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793664.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. selenic acid (04:04)
- 02. deadlock (04:20)
- 03. everyone's grudge (04:21)
- 04. natural affinity (06:19)(   Читать дальше...   )Жанр: IDMПродолжительность: 00:33:24
+djay – это программа для управления и микширования музыкальной коллекции. Ее особенностью является наличие двух реалистичных виртуальных интерактивных вертушек, а также возможность записывать и передавать музыку через сеть Bonjour на подключенные к сети компьютеры с установленной программой. Программа поддерживает все основные форматы файлов, включая MP3, AAC, AIFF, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 мая 2016Разработчик: Algoriddim GmbHПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Испанский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DEB52FEF5953C2134EF76734B3CC46A5AA5E3F3F
+magnet:?xt=urn:btih:0A7969133910C7F0871A31E1FDFFF8982E735912
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -197,28 +352,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274476   (793058) от 07.01.2019
+###  Публикация: 1509735   (793663) от 13.11.2021
 
-Ümlaut (Umlaut) - Musique De Film (2019) Audiobulb [FLAC|Lossless|WEB-DL|tracks] <Ambient, Minimal, Experimental>
+Проекты - VideoHive - Save The Date - Funny Wedding Invitation - 11291857 [AEP]
 
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Проекты
+>>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793663.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Memory (05:06)
-02. R O Y G B I V (04:31)
-03. Dot (05:00)
-04. On The Feelings That Stay (07:35)(   Читать дальше...   )Жанр: Ambient, Minimal, ExperimentalПродолжительность: 01:11:26
+«Save The Date - Funny Wedding Invitation» - шаблон для создания видеоприглашения на свадьбу.
+Укажите свои имена, тексты и фотографии. Измените дату и место Вашего мероприятия. Легко меняйте все цвета, если Вам нужно. Загрузите его в свои социальные сети и поделитесь им с друзьями и родственниками.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6BD81E8E1DCC0116064C7D83909DFB052DFD7814
+magnet:?xt=urn:btih:08042EE765C3ECB2CA2CF90471FE8FD6923CCEB1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -226,28 +379,110 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274424   (793057) от 07.01.2019
+###  Публикация: 1386568   (793662) от 30.05.2020
 
-Xilphide - Secretos del Viento (2013) [FLAC|Lossless|image + .cue] <Symphonic Metal>
+The Sonics - Here Are The Sonics!!! (1965) Reissue, 1999, Norton Records [FLAC|Lossless|tracks] <Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_793662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Witch (2:41)
+02. Do You Love Me (2:19)
+03. Roll Over Beethoven (2:49)
+04. Boss Hoss (2:24)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012591   (793661) от 01.05.2016
+
+Первомайская демонстрация на Красной площади (2016) HDTVRip [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793661.jpg" />
+</div>
+
+
+###  Подробнее
+
+По главной площади страны пройдут представители профсоюзов со всей России Первый канал представляет Прямую трансляцию праздника, в котором примут участие несколько десятков тысяч человекТелекомпания: Первый каналЖанр: ДокументальныйПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A5783941E637475A1607FC994DC53396383D0CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509438   (793660) от 13.11.2021
+
+Демоник / Demonic (2021) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря технологии, способной создавать проекции сознания других людей, Карли придется заглянуть в разум своей матери, 20 лет назад убившей более 20 человек, и отыскать истинную причину её жестокости.Производство: Канада / AGC Studios, Stabiliti StudiosЖанр: Ужасы, фантастика, триллер, драмаРежиссер: Нил БломкампАктеры: Карли Поуп, Крис Мартин, Майкл Роджерс, Натали Болтт, Терри Чен, Кэндис МакКлюр, Джейсон П. Тремблей, Кинтон Бойсклер, Дерек Верстиг, Крис ФрозПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E132544B186074488C39D45178538B3045705A21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386851   (793659) от 30.05.2020
+
+The Electric Prunes - I Had Too Much To Dream (Last Night) (1967) Reissue, 2000, Rhino Special Products [FLAC|Lossless|tracks + .cue] <Rock, Garage Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793659.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Secretos del Viento
-02. Extinción
-03. Brujas y Hechiceras
-04. Lamento del Desierto(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:10:40
+The Electric Prunes — американская группа, образовавшаяся в Лос-Анджелесе в 1965 году, исполнявшая экспериментальный гаражный/психоделический рок и считавшаяся в 1966—1970 годах важной частью калифорнийского андеграунда.
+Основными участниками первого состава были гитарист Кен Уильямс, певец Джеймс Лоу, барабанщик Майкл Уикли и бас-гитарист Мак Тьюлин (в числе музыкантов, (   Читать дальше...   )01. I Had Too Much To Dream (Last Night) (2:59)
+02. Bangles (2:29)
+03. Onie (2:43)
+04. Are You Lovin' Me More (But Enjoy It Less) (2:25)(   Читать дальше...   )Жанр: Rock, Garage RockПродолжительность: 00:34:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79B5C2D2DC37806ADD8D735D49FC37D54501C02F
+magnet:?xt=urn:btih:E0EE08C34E171A99AE4839E61DA3130CF5085195
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -255,56 +490,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274566   (793056) от 07.01.2019
+###  Публикация: 1012572   (793658) от 01.05.2016
 
-Anthony Linell - A Sense Of Order (2018) Northern Electronics [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dark Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winds Of Naelden (04:16)
- 02. The Fire Within (05:38)
- 03. Leaves Of Glass (04:10)
- 04. Breeders Trophy (05:18)(   Читать дальше...   )Жанр: Ambient, Dark AmbientПродолжительность: 00:31:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4E09FEC933D62F771ACA3A597C06A1FDB9813A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274651   (793055) от 07.01.2019
-
-А. Принс | Преступность и репрессия: уголовно-юридический очерк (1898) [PDF]
+И. Лурье и др. | Очерки по истории техники Древнего Востока (1939) [DJVU]
 
 >>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793658.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предисловие автора:
-
-Труд этот, как о том свидетельствует его заглавие, представляет собой научное исследование. Я не претендую на то, чтоб написать книгу, основанную на практике и опыте. Моя цель более скромная; я просто желаю привлечь внимание законодателя к великим вопросам, которые некогда стояли на первом плане общественных забот и ныне находятся, к несчастью, (   Читать дальше...   )Жанр: История, политология, криминология, криминалистика, социология, правоведениеФормат: PDF
+Книга знакомит читателя с развитием античной техники на Древнем Востоке.Жанр: История, археология, этнография, искусствоФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE5B2B980EE0E64CA8D6236391BE7BCBB2728133
+magnet:?xt=urn:btih:BCD247C752F576DC002953D6D892B280BA8E5C36
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -312,26 +516,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274378   (793054) от 07.01.2019
+###  Публикация: 1509538   (793657) от 13.11.2021
 
-BusyCal 3 v3.5.7 [Multi]
+Инсомния (2021) WEBRip (сезон 1, серии 1-8 из 8)
+
+>>Отечественные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юрий Шталь — успешный психотерапевт-гипнолог. Убежденный материалист, он способен рационально объяснить всё — кроме своей бессонницы. Юрия мучают кошмары, в которых он видит бывшую жену, погибшую много лет назад, и странные символы, значения которых не может разгадать… Бессонницу Юрий привычно коротает в стрип-клубе. Там он знакомится со стриптизершей Аней, на шее (   Читать дальше...   )Производство: Россия | «1-2-3 Production»Жанр: Драма, триллерРежиссер: Ольга ФренкельАктеры: Гоша Куценко, Ирина Старшенбаум, Мария Миронова, Александр Робак, Кирилл Кяро, Никита Ефремов, Роза Хайруллина, Игорь Миркурбанов, Тамара Крцунович, Денис КорнухПродолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45B931C3E004F5AAF7D2BA8407DCD78199D4D047
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012583   (793656) от 01.05.2016
+
+Владимир Бойко | Подводник-североморец Израиль Фисанович (2016) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга "Подводник-североморец Израиль Фисанович» посвящена светлой памяти Героя – подводника Великой Отечественной войны – Фисанович Израиля Ильича. В книге рассказывается о его жизни и службе. О том, что он во время войны – не только первым прорвался по узкому длинному фьорду во вражеский порт Петсамо, но и первым среди командиров бригады подводных лодок Северного (   Читать дальше...   )Жанр: История, Биографии и Мемуары, Военная документалистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A4ADDD82EF1B7F11F5C67C297EC630708295621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386684   (793655) от 30.05.2020
+
+Carbon Copy Cloner 5 v5.1.18 (build 6004) [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793655.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BusyCal - это обновленная версия популярного календаря, отличающегося простотой и удобством, но в то же время обладающего большой функциональностью.
-BusyCal - программа на Mac OS X, которая поможет вам распланировать и следить за вашими делами. Разработчик позиционирует это приложение как "iCal Pro". iCal - одна из лучших программ на Mac от Apple. Однако, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2018Разработчик: BusyCal, LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
+Carbon Copy Cloner –  утилита для резервного копирования данных.
+Carbon Copy Cloner - утилита для клонирования дисков и резервирования данных, пользующаяся заслуженной популярностью у пользователей Mac OS X, благодаря высокой скорости работы и простому интерфейсу.
+
+Новая версия может похвастаться абсолютно новым пользовательским интерфейсом, а также рядом добавленных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.05.2020Разработчик: Bombich Software, IncПоддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48128F04C25F5D6E380B1FE714363FE020C9003A
+magnet:?xt=urn:btih:D2B908E7F2F754BA91BAA73DF97C271A95C14B1B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -339,28 +597,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274629   (793053) от 07.01.2019
+###  Публикация: 1509508   (793654) от 13.11.2021
 
-Umami - In Exchange For Everything (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downtempo>
+King's Bounty: The Legend / King's Bounty: Легенда о рыцаре (2008) [Ru] (1.7) License
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Win Игры
+>>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793654.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ghostnote (5:40)
- 02. Terra Mount feat. Monolink (7:34)
- 03. Behind The Wheel (7:24)
- 04. Number Of The Beast (4:58)(   Читать дальше...   )Жанр: Deep House, Tech House, DowntempoПродолжительность: 01:03:51
+Приключенческая сага, созданная в лучших традициях легендарной King's Bounty, это увлекательный сплав ролевой игры и насыщенных тактических сражений. Герой (воин, маг или паладин) и целая армия его верных соратников путешествуют по огромному континенту, представляющему собой несколько десятков связанных локаций. Возведение королей на трон и их низвержение, спасение (   Читать дальше...   )Тип издания: LicenseРазработчик: Katauri InteractiveЖанр: RPG, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:26554B75B0A9EE7D3F89CB596F76F223CAE710D0
+magnet:?xt=urn:btih:3C964855215711A010D98625B6A46FFCA9360F58
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -368,26 +623,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274354   (793052) от 07.01.2019
+###  Публикация: 1386785   (793653) от 30.05.2020
 
-The Ocean - Phanerozoic I: Palaeozoic (2018) Limited Edition 2CD [FLAC|Lossless|tracks + .cue] <Progressive, Atmospheric Sludge Metal>
+АСТ | Истории про животных [сборник] (2020) [EPUB]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793653.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1 - Phanerozoic I Palaeozoic
-CD2 - Phanerozoic I: Palaeozoic (Instrumental)Жанр: Progressive, Atmospheric Sludge MetalПродолжительность: 01:35:36
+В этой книге собраны рассказы о животных, написанные классиками русской литературы – Л.Н. Толстым, А.И. Куприным, А.П. Чеховым, Б.С. Житковым… Для ребёнка чтение этих трогательных, весёлых и печальных историй – качественная прививка от бездумной жестокости в обращении с живыми существами, урок понимания бессловесных тварей. Научиться сочувствовать для ребёнка так (   Читать дальше...   )Жанр: Проза для детей, Повести и рассказы о природе и животныхФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0531A2843F498DA1770AB1D79AF4C640C89257E0
+magnet:?xt=urn:btih:25C4D91A84CFAF09201967260EBC899E4E5E070F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -395,112 +649,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274361   (793051) от 07.01.2019
+###  Публикация: 1012492   (793652) от 01.05.2016
 
-Canary Mail 2.18 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Canary Mail может похвастаться большими возможностями и неплохой их реализацией, что вкупе с элегантным дизайном и удобным интерфейсом делает Canary весьма интересным экземпляром. Можно сказать, что перед нами Airmail с фирменной Snooze из Mailbox и другими популярными функциями современных email-клиентов.Тип издания: macOS SoftwareРелиз состоялся: 30.12.2018Разработчик: Mailr Tech LLPПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:636BEA222BD8CD6E2B60BF2A26F1D35F9FE20FA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274462   (793050) от 07.01.2019
-
-The Courteeners - St. Jude Re:Wired (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aftershow (ReWired) (02:46)
-02. Cavorting (ReWired) (03:11)
-03. Bide Your Time (ReWired) (03:53)
-04. What Took You So Long (ReWired) (03:41)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41F6F9B5CFFF09DEFA9D0BA0C45275ED7BE971B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274508   (793049) от 07.01.2019
-
-VA - Кураж судьбы 2 (2001) [FLAC|Lossless|image + .cue]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Альбатрос ( Александр Немецъ )
-02. 45 налётчиков ( Татьяна Маленкова )
-03. Милая свобода ( Лёня Азбель )
-04. Сонька Ручка - золотая ( Светлана Берчанская )(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:11:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AF4E96A92E8DD092DA9F9A7F0223231F98DB9CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274523   (793048) от 07.01.2019
-
-VA - German Top 100 Single Charts 14.01.2019 [MP3|320 Kbps] <Pop>
+VA - Top 100 Dance Hits (2016) [MP3|320 кб/с] <House, Club, Dance>
 
 >>Неофициальные сборники
->>Pop (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793652.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Ava Max - Sweet but Psycho
-002. Capital Bra - Benzema
-003. 187 Strassenbande - HaifischNikez Allstars
-004. Sido - Tausend Tattoos(   Читать дальше...   )Жанр: PopПродолжительность: 05:36:40
+001. Oldschool Boys -  Miracle Love (Alex Van Dayl Remix)  3:46
+002. Dj Ostkurve Feat. Big Daddi & Kane & Enzo -  Ti Amo (Mone & Navaro Remix)  5:27
+003. Miami Rockers Feat. Rino(Io)Dj -  Jeans On (Tiger & Dragon Mix)  5:48
+004. Avoid & Chris Wittig -  Conclusion (Dualxess & Dj Mst Remix)  5:17(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 08:10:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80C59859648DEACD1F07CDF8B0C42E5058885157
+magnet:?xt=urn:btih:BA691D03828B5480F2CACB1A824603C3FA8597DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -508,215 +678,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274561   (793047) от 07.01.2019
+###  Публикация: 1509295   (793651) от 13.11.2021
 
-Jess Glynne - Always In Between (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, Dance, House>
+Торп / Thorp (2020) WEB-DLRip [H.264/1080p-LQ] [MVO, AD]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Остальное
+>>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793651.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro
-02. No One
-03. I'll Be There
-04. Thursday(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 00:54:03
+Пришелец, который улетел с Земли ещё в восьмидесятых годах, вернулся по прошествии сорока лет, чтобы постараться отыскать свою подругу детства. Но только с тех времен всё разительно изменилось, и теперь его задача сильно затруднилось изменившимся миром, в поиске по которому он пришёл к крайне неожиданным открытиям.Производство: США / Just One More Productions, The Adventurers ClubЖанр: Фантастика, триллер, драма, мелодрама, комедияРежиссер: Dennis DonovanАктеры: Отоя Эбит, Ким Бланк, Элис Каллахан, Миша Кэлверт, Шэннон ДеВидо, Charles Grantham, Синем Гультурк, Уокер Хэа, Элиз Хадсон, Эдриэнн Ловетт,Перевод: Профессиональный многоголосый (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:19:22Реклама: Присутствует баннер!
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BEE4F0222793AEC9BDF53325AFE354A9B5E1EF85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509927   (793046) от 14.11.2021
-
-Clipboard Manager 2.3.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Менеджер истории буфера обмена для Mac.
-Сохраняет все, что вы копируете для последующего использования.
-Утилита позволяет: вставить или удалить контент с помощью жестов,  вставить содержимое прямо в текущее приложение, вставить текст с форматом или без него,  вставить последний контент по ярлыкам Cmd + 1 .. Cmd + 9. вставить, удалить  большое количество содержимого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.11.2021Разработчик: © 2021 Jan ValtaПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F7C2206A04652494A10EC2FBF93A32A3F6698B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509905   (793045) от 14.11.2021
-
-Black Out 2.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Black Out позволяет быстро скрыть деликатные части изображения. Это может быть полезно, если вы хотите опубликовать в Интернете снимок экрана или фотографию, которые содержат некоторую информацию, какую вы не хотите раскрывать.Тип издания: macOS SoftwareРелиз состоялся: 11.11.2021Разработчик: © 2021 Sindre SorhusПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBED92432F463A6E03272AC2345ACB06560AA77C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509924   (793044) от 14.11.2021
-
-BookmarkTiles 1.7.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793044.jpg" />
-</div>
-
-
-###  Подробнее
-
-BookmarkTiles - это надстройка закладок для вашего браузера, она разработана в основном для Safari.
-BookmarkTiles имитирует ранее известные TopSites функций Safari и возвращает его во все новые версии Safari вместе с некоторыми другими функциями, которые никогда не появлялись и не упали много лет назад.Тип издания: macOS SoftwareРелиз состоялся: 28.10.2021Разработчик: © 2021 Serge SanderПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBB18000CBF1CE45CB25E37D05F0842D1EC37355
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509945   (793043) от 14.11.2021
-
-FastScripts 3.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793043.jpg" />
-</div>
-
-
-###  Подробнее
-
-FastScripts - Утилита для быстрого запуска AppleScript-ов и шелл-скриптов в любом приложении. Если нажать на значок FastScripts в строке меню, раскроется список скриптов, для запуска которых нужен всего один клик.
-Помимо этого каждому скрипту можно назначить сочетание клавиш для запуска. При работе с определенным приложением, все доступные для него скрипты будут (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.11.2021Разработчик: © 2021 Red Sweater Software, LLC.Поддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4353633C464E94274236D50950B4650A0BBCD1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509882   (793042) от 14.11.2021
-
-ToothFairy 2.7.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793042.jpg" />
-</div>
-
-
-###  Подробнее
-
-ToothFairy - это небольшое приложение позволяет всего лишь одним кликом управлять любым устройством посредством Bluetooth.
-ToothFairy поможет вам перейти от одного выбранного устройства Bluetooth к другому, непосредственно из меню.Тип издания: macOS SoftwareРелиз состоялся: 12.11.2021Разработчик: © 2021 Lu YibinПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EF342230C4FDA4F7D4B18C069B01323BF534DCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509890   (793041) от 14.11.2021
-
-Data Guardian 7 v7.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безопасность и секретность — вот одни из наиболее важнейших вопросов в сегодняшнем мире. Это безопасная база данных, использующая 448-битный алгоритм Blowfish для шифрования и хранения ваших данных, не зависимо от уровня их важности. В этом приложении вы можете создавать множество баз данных, используя их для широкого ряда таких задач, как ведение адресной книги, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.11.2021Разработчик: © 2021 Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98496664812B2EE7FA03F942DB6935E7F2FB330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509832   (793040) от 14.11.2021
-
-Color Wheel 6.6 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровой, абстрактный, классический - все типы цветовых кругов в одном приложении!Тип издания: macOS SoftwareРелиз состоялся: 08.11.2021Разработчик: © 2021 Roman SevastyanovПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D265178F7855342FFD7F100943D8B0959C0DE87
+magnet:?xt=urn:btih:8AC55D94FCD8306CB94A7B99688D1F75E0369098
 ```
 
 https://mybot314.ru/tekegram_catalog/

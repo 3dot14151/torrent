@@ -1,3 +1,55 @@
+###  Публикация: 925412   (538518) от 07.08.2015
+
+Проекты - VideoHive - Broadcast News Package - 12046247 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два в одном: титры для видео-открывашек для новостного и спортивного TV каналаФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6BFDAECE186862FEA32E166730CD1998AB912DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925571   (538516) от 07.08.2015
+
+Проекты - VideoHive - Wedding Album - 3522819 [AEP]
+
+>>Проекты
+>>Свадебные и романтические (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свадебный Альбом - фото и видео шаблон для After Effects. Просто добавьте ваши фотографии и/или видео, отредактируйте текст и запишите на DVD или Blu-Ray.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E438F809A50DEA09796B67F52C910360BAE0BFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154662   (538474) от 31.07.2017
 
 Проекты - VideoHive - Liquids Quick Logo Pack 3 - 18591301 [AEP]
@@ -624,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4F7CD2CC9AE794EC364B00B06EE9CED9816619B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926059   (535150) от 09.08.2015
-
-Проекты - VideoHive - Grunge Splatter Presentation [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:904213D9CC74F26DD4A73F2925AC02E2EF73F28D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926289   (535146) от 09.08.2015
-
-Проекты - VideoHive - Blockbuster Billboards [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рекламные щиты предназначены для рекламы, продвижения услуги, товара, компании, а также анонсов событий в вашем городе.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B6ECB1442C550DE8DFB72BA5CBB3137F38BDF55
 ```
 
 https://mybot314.ru/tekegram_catalog/

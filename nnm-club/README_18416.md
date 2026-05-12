@@ -1,559 +1,18 @@
-###  Публикация: 1264064   (282968) от 22.11.2018
+###  Публикация: 271209   (284822) от 16.12.2010
 
-Фигурное катание. Гран-при 2018-2019. 5-й Этап. Rostelecom Cup 2018. Москва (Россия). Мужчины. Короткая программа (16.11.2018) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282968.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 ноября 2018 года, пятница. 14:00 МСК
-Турнир «Rostelecom Cup 2018» — 5-й Этап Гран-при по фигурному катанию сезона 2018-2019
-Мужчины. Короткая программа
-Арена: Мегаспорт (Москва, Россия)Телекомпания: Первый каналЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B59F59F2476BC262B2FA526D49B143EC9DC2EE31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264081   (282967) от 22.11.2018
-
-Фигурное катание. Гран-при 2018-2019. 5-й Этап. Rostelecom Cup 2018. Москва (Россия). Спортивные пары. Короткая программа (16.11.2018) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282967.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 ноября 2018 года, пятница. 18:30 МСК
-Турнир «Rostelecom Cup 2018» — 5-й Этап Гран-при по фигурному катанию сезона 2018-2019
-Спортивные пары. Короткая программа
-Арена: Мегаспорт (Москва, Россия)Телекомпания: Первый каналЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73191C748C86714C763F3AD8073E3B10C7C2A724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264132   (282966) от 22.11.2018
-
-Ghostnote 2 v2.1.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ghostnote — заметки, привязанные к файлам, папкам, программам и веб-сайтам
-Ghostnote — приложение для OS X, которое позволяет привязывать заметки к файлам, папкам, программам и веб-сайтам. Например, если заметка набирается в тот момент, когда на экране выделен определенный файл, то введенный текст будет появляться всегда, когда пользователь еще раз щелкнет на этот (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: ноябрь 2018Разработчик: Thomas PetersenПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BE5771238DB5D733CA93C275319BB3F18E32C01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264082   (282965) от 22.11.2018
-
-Фигурное катание. Гран-при 2018-2019. 5-й Этап. Rostelecom Cup 2018. Москва (Россия). Женщины. Короткая программа (16.11.2018) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282965.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 ноября 2018 года, пятница. 20:00 МСК
-Турнир «Rostelecom Cup 2018» — 5-й Этап Гран-при по фигурному катанию сезона 2018-2019
-Женщины. Короткая программа
-Арена: Мегаспорт (Москва, Россия)Телекомпания: Первый каналЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:21:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A85CE1B2B7A2252A49FD5D78272DE92AB48CAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264204   (282964) от 22.11.2018
-
-VA - Dark Trance Vol.5 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer - Antipode (Original Mix)
-02. Axel Walters - Warrior (Extended Mix)
-03. Gamma - Every Goodbye (NoMosk Extended Remix)
-04. Dennis Graft - Voices (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:25:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C37E2F6E2903A106BEFDE480F56ABF5DBE51B25A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264083   (282963) от 22.11.2018
-
-VA - Best Of Amsterdam Trance Records Vol. 3 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Steve Allen & Sarah Lynn - Broken Child (Extended Mix)
-02.Armin van Buuren & Perpetuous Dreamer - The Sound of Goodbye (Ferrin & Morris Extended Mix)
-03.James Dymond & Susana - Love You Are Made Of (Extended Mix)
-04.Kaimo K & Sue McLaren - Call It What It Is (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:16:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6F5C0E9072AD61251514DD57B9ED2A8C225B22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264244   (282962) от 22.11.2018
-
-VA - Progressive Trance Selections Vol 07 (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Firas Tarhini - Nova (Original Mix)
-02.Henry Dark - Alive (Original Mix)
-03.Gordey Tsukanov - Radioactivity (Extended Mix)
-04.Marco Van Zomeren - Vloeistof (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:24:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBDC65F05473FFC6AA06DEBA365AFF70889B0D55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264009   (282961) от 22.11.2018
-
-Горные лыжи. Кубок мира 2018–2019. 2-й Этап. Леви (Финляндия). Женщины. Слалом (17.11.2018) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282961.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 ноября 2018 года, суббота.
-2-й Этап Кубка мира по горнолыжному спорту сезона 2018-2019 года
-Леви (Финляндия).
-Женщины. Слалом 1-я и 2-я попыткиТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:58:08 — 01:01:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4D7D714B19C0C147DAB9F049A2489816C8E623A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264168   (282960) от 22.11.2018
-
-VA - If You Train Hart Enough You Will Come Closer To Your Goal (2018) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tabish Green - Eddie (03:05)
-02. T.I.L.F. - Modations (03:05)
-03. Susan Sustain - Tryout (03:05)
-04. Styleshaker - Galaxy (03:05)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A741CFD6CD5521B8CC7313A47788EA3C7ADEED07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264211   (282959) от 22.11.2018
-
-The Alan Bown - Listen & Stretching Out (1970-71) Compilation, 1993, Edsel Records [MP3|320 Kbps] <Psych-Prog, Jazz Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282959.jpg" />
-</div>
-
-
-###  Подробнее
-
-LISTEN (1970)
-01. Wanted Man
-02. Crash Landing
-03. Loosen Up(   Читать дальше...   )Жанр: Psych-Prog, Jazz RockПродолжительность: 01:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99405F610930A59C38354F55E48D3D55D97CE10C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264085   (282958) от 22.11.2018
-
-Э.Я. Баталов | Философия бунта [Критика идеологии левого радикализма] (1973) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Леворадикальные теории, получившие известность в связи с выступлениями студенческой молодежи и интеллигенции Запада конца 1960 - начала 1970-х гг., — весьма заметное явление в идеологической жизни современного буржуазного общества. Критическому анализу этих теорий, представленных именами Г. Маркузе, Т. Адорно и др., и посвящена книга кандидата философских наук, доцента (   Читать дальше...   )Жанр: История, политология, философия, социологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89BFF810B5A78487830A1E35F5320957EF7039F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264217   (282957) от 22.11.2018
-
-VA - Elles De Graaf - The Long Run - The Best Of (Extended Mixes) (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Elles De Graaf - Show You My World (Ferry Corsten Remix - 2014)
-02.Armin Van Buuren & Perpetuous Dreamer - The Sound Of Goodbye (Armin's Tribal Feel Mix)
-03.Alan Morris & Elles De Graaf - Calm The Night (Ferrin & Morris Remix)
-04.Elles De Graaf - Mind Of The Wonderful 2018 (Sunset Extended Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 03:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C76248428BCD3750EF2A4BDADF02CD3F997C4AA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264160   (282956) от 22.11.2018
-
-Isao Suzuki Trio / Quartet - Blow Up (1973) 2013, Think! Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqua Marine [4:58]
-02. Everything Happens to Me [5:47]
-03. Blow Up [7:30]
-04. Like It Is [5:36](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F671DCFABAB51EDB8A1490BA633BF600155AC081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264095   (282955) от 22.11.2018
-
-VA - The Chill Connection (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282955.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alisher - Morning Sunrise (Original Mix)
-002. The Moonheads - Beachless Ocean
-003. Okada - Bury Me
-004. Voyage Courage - Tiptoe Into Water(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 08:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A415ACB7ABF20C4FC28008AE7E752168F771B1CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264032   (282954) от 22.11.2018
-
-Шорт-трек. Кубок Мира 2018-2019. 2-й Этап. Солт-Лейк Сити (США). 1-й День Финалов (2018) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Прочие зимние виды спорта
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кубок мира по шорт-треку сезона 2018-2019. Солт-Лейк Сити (США). 2-й Этап.
-10 ноября 2018 года.
-1-й День Финалов:
-Женщины, Мужчины 1000 м. (1) - 1/4 Финала(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9D22F1BA91EE8A5CEBF8F2CDBF4D40DA6165629
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264126   (282953) от 22.11.2018
-
-TurboLayout 2.0.17 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте красивую графику с невероятной легкостью.
-Сделайте привлекательные графические объявления, изображения в блогах, брошюры, визитные карточки, календари, флаеры, купоны, инфографику, приглашения, бланки, открытки, плакаты, презентации, книги рецептов, изображения в социальных сетях и т. д.Тип издания: macOS SoftwareРелиз состоялся: 28.09.2018Разработчик: SilkenMermaid TechnologiesПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4597E5689D5DFA48AB86237E6249536F03B7CBCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264108   (282952) от 22.11.2018
-
-Alfred 3 Powerpack 3.7.1 (942)b [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alfred Powerpack - Лаунчер приложений для Mac OS X.
-Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
-
-Вызвать окно Alfred очень просто — по-умолчанию используется (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2018Разработчик: Running with Crayons LtdПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E57C9094C1186DEB61C7DBDC8CCD61CEC0A9BB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264112   (282951) от 22.11.2018
-
-SRWare Iron 70.0.3650.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безопасный, удобный и быстрый в работе браузер на основе исходного кода проекта Chromium. Обладая интерфейсом и многими функциями, знакомыми пользователям по Google Chrome, SRWare Iron отличается своей политикой по отношению к безопасности и конфиденциальности. В нем отсутствуют какие-либо «следящие» модули, в чем неоднократно обвинялся браузер от Google.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9957445A3E2E9F9A69DBFB7D3F0670DB8CCBB392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264042   (282950) от 22.11.2018
-
-Шорт-трек. Кубок Мира 2018-2019. 2-й Этап. Солт-Лейк Сити (США). 2-й День Финалов (2018) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Прочие зимние виды спорта
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кубок мира по шорт-треку сезона 2018-2019. Солт-Лейк Сити (США). 2-й Этап.
-11 ноября 2018 года.
-2-й День Финалов:
-Женщины, Мужчины 500 м. - 1/4 Финала(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:16:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64083CA7F766BE5CEA83A373ED83121D4B94A43A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 270812   (282930) от 17.12.2010
-
-Японский робот-спринтер Athlete бегает, подражая движениям человека.
+Беспроводная камера была поднята на рекордную высоту.
 
 >>Поговорим
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284822.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Робот Athlete, созданный японским исследователем Рюма Ниияма (Ryuma Niiyama), буквально только учится делать свои первые шаги. Он может сделать от трех до пяти шагов, прежде чем упадет, но его походка ничем не напоминает походку робота благодаря уникальной двигательной системе, конструкция которой разработана наподобие структуры опорно-двигательного аппарата человека. Конечно, после некоторых будущих доработок как программного обеспечения, так и аппаратной части робота, Ниияме удастся добиться того, что этот робот-спринтер будет бегать быстрее и грациозней человека.(   Читать дальше...)
+Серийно выпускаемая компанией Axis Communications камера AXIS Q6034-E, прикрепленная к воздушному шару, была поднята на рекордную высоту и передала на Землю высококачественные изображения поверхности Земли. Воздушный шар BEXUS 11 был запущен в атмосферу из Космического центра Esrange, расположенного на севере Швеции. Во время полета шар поднялся на высоту 35 км, к границе между атмосферой и космосом. Помимо камеры AXIS Q6034-E в состав груза, поднятого воздушным шаром входила масса другого научного оборудования, с помощью которых было выполнено около 20 измерений и различных экспериментов в рамках программы BEXUS.(   Читать дальше...)
 
 ## Скачать торент
 ```bash
@@ -565,34 +24,142 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 270999   (282917) от 17.12.2010
+###  Публикация: 1081034   (284811) от 09.12.2016
 
-Eye Empire - Moment Of Impact (2010) [MP3|320 kbps]<Alt. Metal / Hard Rock>
+VA - Убойные хиты на Шансоне. Версия 4 (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284811.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Сергей Рудов - Если Б Ты Только Знала 4:37
+002.Федосей - Я Любимый Всеми Кот 4:26
+003.Александр Келеберда - Горький Вкус Кампари 4:26
+004.Наиль Манасипов - Мне Сегодня Только 45 4:38(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08107091DD56F373C7C447D5087D3343B84F7FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080946   (284808) от 09.12.2016
+
+T:Base - Discover Yourself (2016) [MP3|320 Kbps] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discover Yourself (06:21)
+ 02. Running (feat. Jess) (05:59)
+ 03. In This Moment Vip (feat. Charlotte Haining) (05:26)
+ 04. Junk Food (05:57)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93072D8AD93C5B42E9017E5AFAE1C36DAF9986C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081452   (284806) от 09.12.2016
+
+Юморина (2016.12.09) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Только лучшие из лучших в главном юмористическом фестивале года "Юморина" на телеканале "Россия"!
+Сегодня только премьеры - новые пародии, миниатюры и монологи в исполнении любимых артистов.Телекомпания: РоссияЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63219A0636EBA87313F941C7ED090F97626D25EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081009   (284804) от 09.12.2016
+
+Hidden Element - Together (2016) [MP3|320 Kbps] <Drum & Bass, Dubstep, Dowtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Original Mix) (01:26)
+ 02. The Night (Original Mix) (05:32)
+ 03. Sunday (Original Mix) (06:03)
+ 04. Without You (Original Mix) (feat. Kiyomi) (04:27)(   Читать дальше...   )Жанр: Drum & Bass, Dubstep, Dowtempo, Deep HouseПродолжительность: 00:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:775AEB0F8FA62EF607A8FD0C5075143ADD495459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081183   (284802) от 09.12.2016
+
+Merge - Ineffable (2016) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284802.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. I Pray
-2. Idiot
-3. More Than Fate
-4. Bull in a China Shop
-5. Reason
-6. Feels like I'm Falling
-7. Victim (of the system)
-8. So Wrong
-9. Ignite (Moment of Impact)
-10. The Great Deceiver(   Читать дальше...)Жанр: Alt. Metal / Hard RockПродолжительность: 00:39:11
+01. The Exit
+02. The Password
+03. Soaring
+04. Ineffable(   Читать дальше...   )Жанр: Alternative Rock, Post-HardcoreПродолжительность: 00:47:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:712314BF3011112394F0711C6AA6DBB574ECF3D7
+magnet:?xt=urn:btih:97EE7C51B4A720CED8412A43AE65B9A2F72BF3EA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -600,25 +167,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081679   (282914) от 10.12.2016
+###  Публикация: 1186752   (284801) от 26.11.2017
 
-Soft4Boost Easy Disc Burner 5.0.7.481 [Multi/Ru]
+Конькобежный спорт. Кубок мира 2017-2018. 2-й Этап. Ставангер (Норвегия). 3-й день соревнований (19.11.2017) IPTV [H.264/1080p-LQ]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284801.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Простая бесплатная утилита для записи файлов и папок с ПК на диски различных форматов: CD, DVD, Blu-Ray. Программа предельно проста в пользовании и не загружена лишними опциями - все только для того, чтобы записать данные на диск.Язык интерфейса: Русский, Английский, др.
+19 ноября 2017, воскресенье
+Кубок мира 2017-2018. 2-й Этап. Ставангер (Норвегия)
+3-й день соревнований:
+1. Женщины - 5000 м(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:47:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4373EEA2FC02F4832AD019F85E6D383028CAA0A3
+magnet:?xt=urn:btih:D2B82446FCCB6434BA62656A41ABA82FD931198B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -626,25 +196,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081680   (282913) от 10.12.2016
+###  Публикация: 1081185   (284799) от 09.12.2016
 
-Soft4Boost Secure Eraser 4.2.9.477 [Multi/Ru]
+VA - Top 100 Indie Dance & Nu Disco November (2016) [MP3|320 Kbps] <New Wave, Nu Disco, Funky, Soulful, Indietronica>
 
->>Архив торрентов
->>Архив Программ
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284799.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Удобная утилита, которая позволяет быстро и эффективно выполнить безвозвратное удаление данных с жесткого диска.Язык интерфейса: Русский, Английский, др.
+001. Anabel Englund - London Headache (Purple Disco Machine Remix) 8:43
+002. Moloko - Sing It Back (Mousse T.'s Feel Love Mix) 7:13
+003. Two Door Cinema Club - Bad Decisions (Purple Disco Machine Remix) 7:45
+004. N'to - Starlings (Henry Saiz Remix) 8:03(   Читать дальше...   )Жанр: New Wave, Nu Disco, Funky, Soulful, IndietronicaПродолжительность: 11:35:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6FFE8E437349ED714A513E2EC923B1A45F0FA12D
+magnet:?xt=urn:btih:A9C726B99CF5CDC81ACB07C9E8F3F24FA3CDF9B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -652,27 +225,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081740   (282912) от 10.12.2016
+###  Публикация: 1186803   (284797) от 26.11.2017
 
-Журнал | Самая. Спецвыпуск №1 Встречаем Новый год (2017) [PDF]
+Rob Schneiderman - Radio Waves (1991) Reservoir [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
 
->>Журналы
->>Кулинарные журналы
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284797.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал «Самая» - источник практичной информации и идей для современной, молодой, работающей женщины, которая заботиться о себе.
-Тема очередного спецвыпуска - новый год и все, что с ним связано. Особое внимание уделено новогоднему застолью.
-Сканирование и обработка Алёнка 007.Жанр: Кулинария, домоводствоФормат: PDF
+01. Extra Time [08:31]
+02. Gravitation [06:37]
+03. Blue Moon [08:51]
+04. There's a Small Hotel [05:55](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 01:11:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94F9AC3B97676FEAFDAB11437CD38CB5B9F43625
+magnet:?xt=urn:btih:05AB80A8C1131056654F7458C62D9C499F231D6C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -680,26 +254,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081637   (282911) от 10.12.2016
+###  Публикация: 1081225   (284796) от 09.12.2016
 
-MacX Video Converter Pro 6.0.1 [Multi]
+Edge - Edge (1970) Reissue, 2009, Tone Arm [MP3|320 Kbps] <Psychedelic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284796.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Callin' Out
+2. Sing Your Song
+3. A New Breed Of Man
+4. Lady Of Darkness(   Читать дальше...   )Жанр: Psychedelic Rock, Hard RockПродолжительность: 00:28:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6B2ECF53AAC55362BF201E28EFD4AE1A022967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186797   (284793) от 26.11.2017
+
+Alex Riel & Stefan Pasborg - Drumfaces (2013) Stunt Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bernie's Tune [07:51]
+02. Byen Vagner [06:08]
+03. Big Noise from Winnetka [06:07]
+04. Lux [05:22](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32CD7B3FD97825B63F5888D24032A00B598E27EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081244   (284786) от 09.12.2016
+
+Alfred Powerpack 3.2.1 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284786.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MacX Video Converter Pro — скачивайте и конвертируйте видео в формат iPhone и iPad
-MacX Video Converter Pro — приложение, которое автоматически конвертирует видеофайлы в нужный конкретному устройству формат. Пользователь вправе выбирать из более чем 350 вариантов настроек, соответствующих самым разным гаджетам, включая даже смартфоны и планшеты не самой первой «свежести». (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 ноября 2016Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Немецкий, Французский и др.
+Alfred Powerpack - Лаунчер приложений для Mac OS X.
+Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
+
+Вызвать окно Alfred очень просто — по-умолчанию используется (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 декабря 2016Разработчик: Running with Crayons LtdПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A06D1A5787868A68CDA5BE6D5FD7D9BD25DF77B
+magnet:?xt=urn:btih:C45BD9474F2EA312412B20571B0E647D7896C9A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -707,28 +341,392 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081383   (282910) от 10.12.2016
+###  Публикация: 1080951   (284783) от 09.12.2016
 
-Nanda Re - Shaman Earth Dance (2015) [MP3|320 Kbps] <New Age, Enigmatic, World>
+Право голоса. 25 лет без СССР. (07.12.2016) SATRip
 
->>Other Styles
->>New Age/Meditative/Relax
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284783.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Firewalk [11:06]
-02. Earth Spirit [13:09]
-03. Ocean Goddess [10:47]
-04. Breath of the Earth [12:23](   Читать дальше...   )Жанр: New Age, Enigmatic, WorldПродолжительность: 00:52:15
+Описание: «Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. (   Читать дальше...   )8 декабря 1991 года было подписано Беловежское соглашение. В документе констатировалось, что Союз прекращает своё существование как субъект международного права. Однако, основываясь на исторической общности народов СССР, стороны договорились об образовании Содружества Независимых Государств. Можно ли сказать, что образование СНГ смягчило "разводный процесс"?Телекомпания: ТВ-ЦентрЖанр: Ток-шоу, дискуссия, политикаПродолжительность: 01:18:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF9C47C789897BB3819B30FDE88D75357A4617DB
+magnet:?xt=urn:btih:9C0D601785542D6E4D490298F0DFEB5741707181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081312   (284780) от 09.12.2016
+
+Peter Cox - The S1 Sessions (2010) [FLAC|Lossless|image + .cue] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delta Lady 3:36
+02. Beautiful Mess 4:18
+03. Fall 3:23
+04. Singing The Blues 3:51(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:691F76E5020C902F38D61FC34A5E5B4A0BFC85FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186801   (284777) от 26.11.2017
+
+Steve Brian - Calera Remixed (2012) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calera (Reminder Remix)
+02. Yaya (Estiva Remix)
+03. Yaya (Cressida Remix)
+04. Vueltas (Dan Stone Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07A88CFB9CA6335ABAF75EC5A83319AFB4FF3B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081131   (284775) от 09.12.2016
+
+Neorus - Remedy (2016) [MP3|320 Kbps] <Electronic, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Vishuddha [00:05:51]
+02 -  Rivers [00:03:55]
+03 -  Time Travel [00:04:26]
+04 -  Visuals [00:06:39](   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:22:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16B08189018CBD161A344C671E5DF3FCE2CF4701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081371   (284774) от 09.12.2016
+
+Аркадий Гайдар | Военная тайна (2013) [MP3, Леонид Бородин]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аркадий Гайдар начал писать повесть “Военная тайна” весной 1932 года в Хабаровске, где работал разъездным корреспондентом газеты “Тихоокеанская звезда”. Поначалу писатель предполагал назвать повесть “Такой человек”.Нетрудно увидеть, что “таким человеком” Аркадий Гайдар считал героя этой повести - “малыша Альку”. Он наделил его чертами, которые впоследствии появились (   Читать дальше...   )Жанр: Детская литератураИздательство: Нигде не купишьПродолжительность: 04:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:579A3C584001A5E414C17E5D5E06E17CE9CEBC74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186837   (284772) от 26.11.2017
+
+UninstallPKG 1.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284772.jpg" />
+</div>
+
+
+###  Подробнее
+
+UninstallPKG - приложение, которое позволяет Вам полностью удалять так называемые "пакеты" (расширения файла .pkg) и все их установленное содержимое с Вашего Mac.
+
+UninstallPKG может использоваться для очистки свободного пространства на диске , например удалить неиспользуемые драйвера принтера или полностью удалить приложения, которые Вы больше не используете. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25 ноября 2017Разработчик: CoreCodeПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA8A450F26A787619253D65629ECC2F1CA5E84DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081390   (284770) от 09.12.2016
+
+Grand Circuit - Roller Skate Symphony (1979) 12" [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roller Skate Symphony  (7:05)
+02. Expert Lady  (6:27)Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C4CD60118EDE1472DC600E004E4A10ED0523A4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081216   (284769) от 09.12.2016
+
+Стимфония - АКТ III (2016) [MP3|320 Kbps] <Steampunk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Поиграй
+02. Охота на ведьм
+03. Будапешт - Бухарест
+04. Крошка-енот(   Читать дальше...   )Жанр: Steampunk, RockПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74718928A72D769F9D7B33D38ECF678F57B44236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186828   (284767) от 26.11.2017
+
+Футбол. Лига Чемпионов УЕФА 2017-2018. Группа A. 5-й тур. ЦСКА (Россия) – Бенфика (Португалия) (22.11.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284767.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 ноября 2017 года, среда. 20:00 МСК
+Лига Чемпионов УЕФА 2017-2018. Групповой турнир
+Группа A. 5-й тур.
+ЦСКА (Москва, Россия) – Бенфика (Лиссабон, Португалия)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 02:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:094DE3F0861AC346971B697216C71A8018474342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263891   (284765) от 21.11.2018
+
+Bill Coleman - 1952 - 1953 (2005) Classics [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_284765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out Of Nowhere [4:33]
+02. The Sheik [1:41]
+03. Royal Garden Blues [3:55]
+04. One O'Clock Jump [5:15](   Читать дальше...   )Жанр: SwingПродолжительность: 01:16:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081394   (284764) от 09.12.2016
+
+Экстрасенсы против детективов (2016.12.09) SATRip (сезон 1, выпуск 15)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грандиозная схватка между интуицией и дедукцией, предчувствием и логикой. Впервые в истории российского телевидения следователи, оперативники и криминалисты МВД сразятся с обладателями паранормальных способностей - шаманами, ведьмами и парапсихологами. По правилам проекта обеим командам предстоит в каждой программе раскрывать реальные преступления. В начале выпуска (   Читать дальше...   )Телекомпания: НТВЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B283C5096D793A5ACE7D5F6FB3DD415DDB6D0325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186833   (284762) от 26.11.2017
+
+Футбол. Лига Чемпионов УЕФА 2017-2018. Обзор матчей 5-го тура. День 2-й  (22.11.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284762.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 ноября 2017 года, среда
+Обзор матчей 5-го тура Лиги Чемпионов УЕФА 2017-2018.
+День 2-й:
+Группа A. ЦСКА (Россия) – Бенфика (Португалия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:29:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B31211D697783F282D7516BCEB255F1D8231E11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263956   (284761) от 21.11.2018
+
+Футбол. Лига Наций УЕФА 2018-2019. Лига B. Группа 4. 6-й тур. Дания — Ирландия (19.11.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284761.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 ноября 2018 года, понедельник. 22:45 МСК
+Лига Наций УЕФА 2018-2019. Групповой турнир
+Лига B. Группа 4. 6-й тур.
+Дания — Ирландия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B9B56065CC30E934DFD315459708E52793E116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186773   (284758) от 26.11.2017
+
+Журнал | Le Tabouret (октябрь-ноябрь 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Le Tabouret» — иркутский модный журнал о дизайне и архитектуре.
+
+Если вдохнуть наполненный безграничной свободой воздух и со сдержанной уверенностью двинуться вперед, то можно создать замечательную историю рождения нового дома – смелых решений и совместных побед. Когда Дом перестает быть просто объектом, люди, его создающие, теряют сухой статус «заказчиков», (   Читать дальше...   )Жанр: Дизайн интерьеровФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10AAB872EF774701B6D3997404E4829F3221B999
 ```
 
 https://mybot314.ru/tekegram_catalog/

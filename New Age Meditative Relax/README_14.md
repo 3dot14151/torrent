@@ -1,3 +1,32 @@
+###  Публикация: 919429   (584030) от 18.07.2015
+
+Marcus Viana - Pleiadian Connections (2015) [MP3|320 кб/с]<New Age, Instrumental, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orion Calls
+02. No Tempo
+03. Pleione
+04. A Fonte das Estrelas(   Читать дальше...   )Жанр: New Age, Instrumental, MeditationПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC8A15BC90C44DDF365129D6EBF5EC833AE0535A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 358801   (583103) от 05.07.2011
 
 Mel Sutton - Golden Dream (1995) [MP3|160-256 kbps]<New age, Relax>
@@ -744,35 +773,6 @@ Aythar - The God Particle (2016) [MP3|320 Kbps] <Ambient, Space>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12EBD6B49E82CE980015DFFB160AEDB361C9BE9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046007   (556910) от 25.08.2016
-
-Nick Murray - To the Stars (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light of the World (feat- Merethe Soltvedt)
-02. Hopes & Dreams (feat- Juliet Lyons)
-03. Gift of Life
-04. Beautiful Forever(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC3E779AD1C4ADC7640CCCEE40CD9ABF218FA83
 ```
 
 https://mybot314.ru/tekegram_catalog/

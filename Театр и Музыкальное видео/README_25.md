@@ -1,3 +1,113 @@
+###  Публикация: 988094   (918683) от 21.02.2016
+
+Доницетти - Дон Паскуале   Метрополитен опера 2010г / Gaetano Donizetti - Don Pasquale (2010) BDRip
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великолепный актёрский состав с фантастическими голосами, чудесная музыка и отличная операторская работа делают просмотр этой прекрасной оперы настоящим удовольствием! Обворожительная Анна Нетребко (Норина), потрясающий Джон Дель Карло (Дон Паскуале), темпераментный Мариуш Квечене (доктор Малатеста) не оставят Вас равнодушными к этой опере!Производство: СШАЖанр: Опера буфф (Opera buffa)Режиссер: Отто Шенк (Otto Schenk)Актеры: Дон Паскуале - Джон Дель Карло (Don Pasquale - John Del Carlo), Доктор Малатеста - Мариуш Квечень (Dr. Malatesta - Mariusz Kwiecien), Эрнесто - Мэтью Полензани (Ernesto - Matthew Polenzani), Норина - Анна Нетребко (Norina - Anna Netrebko), Нотариус - Бернард Фитч (Un notaro - Bernard Fitch), Дирижёр: Джеймс Левайн (Conductor - James Levine), Хор и оркестр Нью-Йоркского (   Читать дальше...   )Перевод: Не требуетсяЯзык субтитров: РусскийПродолжительность: 01:29:27+00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C403C0F087475432FB7DD1068BD937268DFEBF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366729   (918498) от 14.03.2020
+
+Mylene Farmer/Милен Фармер – Live 2019 - Le Film (2019) UHD BDRemux [H.265/2160p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918498.jpg" />
+</div>
+
+
+###  Подробнее
+
+После шестилетнего перерыва Милен Фармер триумфально вернулась на сцену, дав серию концертов в знаменитом парижском La Defense Arena — самом большом зале Европы. В программу вошли как уже любимые публикой хиты, так и песни из нового альбома.01. Coming from the Vortex
+02. Interstellaires
+03. Sans logique
+04. Rolling Stone(   Читать дальше...   )Производство: Франция / Stuffed Monkey, Sony MusicЖанр: Pop, КонцертРежиссер: Франсуа АнссСубтитры: ОтсутствуютПродолжительность: 02:08:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91949C8086C46EA765467305B5A603655B7167CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 632368   (917991) от 21.03.2013
+
+VA - Ultra Music Festival 2012 (Miami, USA) (2012) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917991.jpg" />
+</div>
+
+
+###  Подробнее
+
+C 23 по 25 марта 2012 года город Майами был захвачен толпой фанатов, жаждущих звука и света от ведущих диджеев и артистов планеты. Ultra Music Festival – самый крупный фестиваль США, получивший награду в номинации «Лучший интернациональный танцевальный фест»01. Omnia - The Fusion (Armin van Buuren’s Intro Edit)
+02. Cosmic Gate feat. Emma Hewitt - Be Your Sound
+03. Armin van Buuren vs. Sophie Ellis-Bextor - Not Giving Up On Love (Dash Berlin 4AM Mix)
+04. The Killers - Mr. Brightside (Marco V Treatment)(   Читать дальше...   )Жанр: Trance & HouseПродолжительность: ~04:27:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE8B56C20E7B976C50E1295D35ADC76CB147E2E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 632981   (917960) от 21.03.2013
+
+Ed Sheeran - Give Me Love (2012) [1080p] HDRemux
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D58C76C7B9EF6A701932338B600313CE5D4B197A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 633196   (917829) от 21.03.2013
 
 Alizee - A Cause De L'automne (2012) HDTV [H.264/1080i]
@@ -599,119 +709,6 @@ Mz Mikal Blair (Model) - Broke Bitch (Uncensored) (2013) [H.264/720p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF50E9C7ED836031A446EE2229C27388CE3DBB85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 757926   (911782) от 19.02.2014
-
-The Freddie Mercury Tribute Concert for AIDS Awareness (1992) Blu-Ray [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911782.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Freddie Mercury Tribute Concert for AIDS Awareness (Концерт памяти Фредди Меркьюри для информирования о СПИДе) - концерт состоялся под открытым небом в пасхальный понедельник, 20 Апреля 1992 года, на стадионе «Уэмбли» в Лондоне, с аудиторией в 72 000 человек.01.Intro
-02. Brian May, Roger Taylor, John Deacon — Introduction
-03. Metallica — Enter Sandman
-04. Metallica — Sad But True(   Читать дальше...   )Жанр: RockРежиссер: David MalletЯзык субтитров: English, German, Spanish, French, ItalianПродолжительность: 03:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC12293967EDE7E0619E33FA2DB94D2D33CDEE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096679   (911761) от 28.01.2017
-
-Машина Времени - Концерт в Киеве 2012 (2014) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911761.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Ваших руках не просто очередной концерт «Машины Времени». По утверждению самих музыкантов – это их лучшая съемка за все времена. Очень рад, что к этой записи имеют отношение команды «Авторадио» в России и на Украине, наш любимый режиссер Герман Садченков и его профессионалы. Посмотрите внимательно этот концерт. Вслушайтесь в тексты песен, вглядитесь в лица людей. (   Читать дальше...   )Производство: CD LAND/Sintez RecordsЖанр: МузыкаРежиссер: Герман СадченковПродолжительность: 01:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F59C4EDA4CC40472CCE5121E44DCD63B323F7216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990445   (911715) от 25.02.2016
-
-Shania Twain - UP! Close & Personal (2004) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911715.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	I'm Gonna Getcha Good!
-2	Ain't No Particular Way
-3	From This Moment On
-4	Whose Bed Have Your Boots Been Under?(   Читать дальше...   )Жанр: Country Rock, Pop RockПродолжительность: 01:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09BB855D5E16B4EE367A2BBE179DA9126A5DA44E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989610   (911625) от 25.02.2016
-
-Shania Twain - LIVE (1999) Come On Over, DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911625.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Man! I Feel Like A Woman!
-2	Honey, I'm Home
-3	You Win My Love
-4	Whose Bed Have Your Boots Been Under?(   Читать дальше...   )Жанр: Country Rock, Pop RockПродолжительность: 01:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:243AEB90D0BA91E864008650CA168BF66B44524E
 ```
 
 https://mybot314.ru/tekegram_catalog/

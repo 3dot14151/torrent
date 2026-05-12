@@ -1,3 +1,124 @@
+###  Публикация: 616844   (973413) от 11.02.2013
+
+VA - Песни нашего кино. Коллекция от Ридерз Дайджест (5CD) (2011) [MP3|320 кб/с]<поп>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973413.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Разговор со счастьем73. Вступление к к-ф 'Вокзал для двоих'
+74. Погоня
+75. Постой, паровоз
+76. С чего начинается Родина
+77. Человек-амфибия
+78. Танец воспоминаний
+79. Песня подруг
+80. Песня о беспризорном мальчишке
+81. Веселый ветер
+82. Песенка про трубачей(   Читать дальше...   )Жанр: попПродолжительность: 00:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E543924FF3FABDADD0740E67A7F25F13C768BC4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975273   (973344) от 14.01.2016
+
+Manish Vyas - Atma Bhakti (2015) [MP3|320 кб/с] <New Age, World, Mantra>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atma (29:14)
+02. Bhakti (32:16)
+03. Vedic Chanting (05:16)Жанр: New Age, World, MantraПродолжительность: 01:05:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4FAE2AD55CB4E04DCB4ACB46619A48194949272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357345   (973159) от 04.02.2020
+
+Nicholas Britell - The King / Король (Original Score from the Netflix Film) (2019) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973159.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:29| 01. Ballade in C# Minor: Coronation
+|01:16| 02. Estampie - Eastcheap
+|05:12| 03. Song of Hal: Strings in C# Minor
+|02:14| 04. Tetrachord - War and Fate(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F3FB6A51FDFC40FF5400ED90827D3863864DD5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357346   (973157) от 04.02.2020
+
+Nicholas Britell - The King / Король (Original Score from the Netflix Film) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973157.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:29| 01. Ballade in C# Minor: Coronation
+|01:16| 02. Estampie - Eastcheap
+|05:12| 03. Song of Hal: Strings in C# Minor
+|02:14| 04. Tetrachord - War and Fate(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A524B2DD25B7210AC4DEE7ADDA5EB647B076CCE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357340   (973155) от 04.02.2020
 
 Brian Tyler - Ready or Not / Я иду искать (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -632,122 +753,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976576   (968650) от 18.01.2016
-
-VA - Крид: Наследие Рокки  / Creed (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с] <Soundtrack, Hip-Hop, Rap, R&B, Soul>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future - Last Breath (3:59)
-02. Meek Mill - Check (3:14)
-03. White Dave - Intolerant (3:34)
-04. The Roots - The Fire (feat. John Legend) (3:41)(   Читать дальше...   )Жанр: Soundtrack, Hip-Hop, Rap, R&B, SoulПродолжительность: 01:09:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD443B1C8A3A4591FDDA9D65322D9C7F8F66478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 745413   (968177) от 14.01.2014
-
-David Arkenstone - Ocean Dreams (2006) [FLAC|Lossless]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude (1:07)
-02. Along the Shore (6:37)
-03. Swirling Pools (6:16)
-04. Beachcomber (5:48)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB1BEE4BD64E20E8DE869D6E72D59E3C396438E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 168685   (967578) от 23.01.2010
-
-Dale Cooper Quartet and the Dictaphones - Parole De Navarre (2006) [FLAC|Lossless]<Krautrock, Ambient, Jazz Noir, Drone>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ta Grenier (4:14)
-02 - Une Cellier (11:08)
-03 - La Boudoir (4:18)
-04 - Aucun Cave (6:49)(   Читать дальше...   )Жанр: Krautrock, Ambient, Jazz Noir, DroneПродолжительность: 01:11:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358712   (967311) от 09.02.2020
-
-Alexandre Desplat - Little Women / Маленькие женщины (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Women (03:12)
-02. Plumfield (03:39)
-03. The Beach (02:49)
-04. Christmas Morning (02:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8F4CEDE382055379CAA015EF8331E1A7769301
 ```
 
 https://mybot314.ru/tekegram_catalog/

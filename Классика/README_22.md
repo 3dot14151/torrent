@@ -1,3 +1,61 @@
+###  Публикация: 1290233   (678161) от 20.03.2019
+
+Staatskapelle Berlin - Brahms: Symphonies (2018) [MP3|320 Kbps] <Classical>
+
+>>Классика
+>>Оркестровая
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brahms: Symphony No. 1 in C Minor, Op. 68 - 1. Un poco sostenuto - Allegro - Meno allegro
+02. Brahms: Symphony No. 1 in C Minor, Op. 68 - 2. Andante sostenuto
+03. Brahms: Symphony No. 1 in C Minor, Op. 68 - 3. Un poco allegretto e grazioso
+04. Brahms: Symphony No. 1 in C Minor, Op. 68 - 4. Adagio - Piu andante - Allegro non troppo, ma con brio - Piu allegro(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CABCF4D74D968772FC8589165043468488C8149A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029943   (677939) от 28.06.2016
+
+Royal Philharmonic Orchestra - Symphonic Queen: The Greatest Hits (2016) [FLAC|Lossless|WEB-DL|tracks] <Symphonic rock>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Will Rock You (1:56)
+02. I Want It All (4:00)
+03. These Are The Days Of Our Lives (4:03)
+04. Tie Your Mother Down (3:51)(   Читать дальше...   )Жанр: Symphonic rockПродолжительность: 01:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED6E89EE892318AD810B93558DE0490871D96A6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223248   (677387) от 03.05.2018
 
 The New London Chorale - The Christmas Album (1989) Reissue [FLAC|Lossless|image + .cue] <Сrossover Classical, Pop>
@@ -705,76 +763,6 @@ Divertimento F-dur KV 138 (125c)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2DA15278504A728715F98D8732BF86F000DFB8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515819   (654165) от 27.06.2012
-
-Johann Sebastian Bach – Oboe Concertos: VA Swedish Chamber Orchestra oboe Alexei Ogrintcouk, Authentic instruments (1713-1730)/2010, BIS BIS-SACD-1769/[FLAC|Lossless]<Oboe>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto in F major for oboe, strings and b.c. 18:58
-Reconstructed from BWV49 and BWV169
-Arranged and edited by Hermann Tottcher and Gottfried Muller (Sikorski)
-1. I. Allegro	07:29
-2. II. Siciliano	05:07
-3. III. Allegro	06:12
-Concerto in D minor for oboe, strings and b.c. 11:40
-Reconstructed from BWV 35 and BWV156 Reconstruction by Arnold Mehl (Edition Kunzelmann)
-4. I. Allegro	05:25
-5. II. Adagio	03:00(   Читать дальше...   )Жанр: OboeПродолжительность: 01:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10CD257BB91EF9A055E8C2E575B112EEBD00A539
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515845   (654163) от 27.06.2012
-
-VA - Современное звучание Мировой Классики (2012) [MP3|320 kbps]<Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bizet - Carmen (Habanera)
-02. Bizet - Carmen (Mauriat)
-03. Bizet - Giselle (Papetti)
-04. Bizet - March (Mae)
-05. Bizet - Pearl fishers duet (Zamfir)
-06. Paganini - Capriccio (Last)
-07. Vanessa Mae - Bach Street Prelude
-08. Vanessa Mae - Can Can (You)
-09. Vanessa Mae - Classical Gas
-10. Vanessa Mae - Con Tradanza(   Читать дальше...   )Жанр: ClassicalПродолжительность: 07:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B8A1000EA0E59B20FFBE82A614BF6E65BF3316
 ```
 
 https://mybot314.ru/tekegram_catalog/

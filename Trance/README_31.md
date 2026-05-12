@@ -1,3 +1,61 @@
+###  Публикация: 1252178   (411308) от 04.10.2018
+
+VA - Trance Anthems Vol.3 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elite Electronic - Bloom (Extended Mix)
+02. Ruslan Radriges - Siberia (Extended Mix)
+03. Tycoos - Future Horizons (Extended Mix)
+04. Adip Kiyoi - The Agent (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F91E23565312C63B0538F8BFC67FE013F66EC055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252210   (411304) от 04.10.2018
+
+VA - Nothing But... The Future Of Trance Vol.09 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allen Watts - Recharge (UDM Radio Edit)
+02. Hypogean - Bucharest (Original Mix)
+03. Daniel Verdun - Dilemma (Original Mix)
+04. Keith August - Saigon (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:12:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB581AEAE3663084D13BBC87E1AD2538EA327727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413309   (409855) от 03.10.2020
 
 VA - VII Vol.II - (Mixed by Simon Patterson & Sean Tyas &  Alex Di Stefano & Orkidea) - (2020) [MP3|320 Kbps] <Trance>
@@ -687,64 +745,6 @@ VA - Vocal Anthems Amsterdam (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5B8AE4733439EA7EC6F5FA6EB1CC6973036E69E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254021   (377625) от 12.10.2018
-
-VA - Trance Favorites Episode #015 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dani and Dino feat. Natalie Orlie - Bring Me (Ehsun Remix)
-02. Dj Sashay - The Heavenly Highway (Original Mix)
-03. Dreamy - Overflow (Original Mix)
-04. Ehsun - Farvardin (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:14:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA53AB704F3418CED17F045FC0FC0C590383C686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254042   (377623) от 12.10.2018
-
-Sync Diversity & Karl Schaap - Game of Trance (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sync Diversity & Karl Schaap - Game of Trance (Original Mix)
-02. Sync Diversity & Karl Schaap - Game of Trance (Skypath Remix)
-03. Sync Diversity & Karl Schaap & Friso Schaap - Water of Love (Energy Mix)
-04. Sync Diversity & Karl Schaap - Sybaris (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:09:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC209BD23697E26E36D69F8728C80F232A349EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

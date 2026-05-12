@@ -1,3 +1,70 @@
+###  Публикация: 702701   (467303) от 22.09.2013
+
+DJ Bobo - Reloaded (2013) [FLAC (tracks+.cue)|Lossless]<Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somebody Dance With Me (Remady 2013 Mix) - Dj Bobo Ft. Manu-L
+02. Pray (King & White Mix)
+03. Take Control - Dj Bobo & Mike Candys
+04. Everybody - Dj Bobo & Inna(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F2CB77B8F6EFE802D6698125AC7305F4DB9DFEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547780   (466451) от 18.09.2012
+
+Boney M. - Original Version - Long Version - Rarities (2012) 4xCD Box Set / CD Records / [FLAC|Lossless]<Disco, Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No More Chain Gang (Long Version) (5:41)
+02. Exodus (Maxi Version) (5:47)
+03. Gotta Go Home (Long 12'' Version) (5:07)
+04. Help! Help! (Long Version) (6:06) и т.д.01. Silly Confusion (12'' Version) (4:01)
+02. African Moon (Long Version) (6:43)
+03. I See A Boat On The River (Long 12'' Version) (6:07)
+04. I'm Alive  (Fr. Farian Corp. Long Version) (5:15)
+05. Going Back West (3:12)
+06. Hooray! Hooray! It's A Holi-Holiday (3:39)
+07. Love For Sale (4:15)
+08. Hold On! I'm Comin' (3:38)
+09. Bang Bang Lulu (3:01)
+10. Barbarella Fortuneteller (2:56)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 05:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0872B34A69D3E9F51E05A76C7507536AE1DB9622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 383102   (464356) от 19.09.2012
 
 Moti Special - 2 альбома (1985-1990) [FLAC|Lossless]<Synthpop, Pop>
@@ -691,64 +758,6 @@ Yaki-Da - Pride (1995) Japanese Edition [FLAC|Lossless|image + .cue] <Euro House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24646A0BE41E9B08CA9B7F03F7217818EFF195A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657038   (192988) от 02.09.2023
-
-Icona Pop - Club Romantech (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fall In Love [00:02:23]
-02. Desire [00:02:39]
-03. Shit We Do For Love [00:02:47]
-04. Stick Your Tongue Out [00:02:47](   Читать дальше...   )Жанр: Pop, ElectropopПродолжительность: 00:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE80EB0EDC7C83821E0EE6A73A9A4D8F117D719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589893   (189610) от 11.11.2022
-
-DJ Bobo - Evolut30n (Evolution) (2022) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evolut30n (Evolution)
-02. Better Days
-03. Together We Fly
-04. Love(   Читать дальше...   )Жанр: Eurodance, PopПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE670C2BCA3B6BC02AE969B68479B41060E9D3A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

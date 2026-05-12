@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1867183   (1066803) от 
+###  Публикация: 1867183   (1066803) от 04.05.2026
 
 Megami: Isekai Tensei Nani ni Naritai Desuka; Ore: Yuusha no Rokkotsu de | Богиня: «В каком виде ты хочешь переродиться в другом мире?» Я: «В ребро героя» [2026, TV, 02 из 12] WEBRip 1080p Raw+Rus
 

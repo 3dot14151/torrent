@@ -1,3 +1,67 @@
+###  Публикация: 1144231   (629224) от 21.06.2017
+
+The London Promenade Orchestra - Johann Strauss' Greatest Hits (1992) Compilation, Remastered [FLAC|Lossless|image + .cue] <Classical, Instrumental>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Blue Danube Waltz (9:15)
+02. Die Fledermaus Overture (7:45)
+03. Pizzicato Polka (2:34)
+04. Perpetual Motion (3:00)(   Читать дальше...   )Жанр: Classical, InstrumentalПродолжительность: 01:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8973DD276C970F2932B4267411CAC5E92D50C10D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521075   (626751) от 11.07.2012
+
+Johann Sebastian Bach–Messe h-moll Mass B Minor BWV 232: VA La Petite Bande Collegium Musicum van de Nederlandse Bachvereniging conductor Gustav Leonhardt, Authentic instruments (1985)/1990, DHM GD ...
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626751.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1Жанр: VocalПродолжительность: 00:56:23
+Credo
+1. Chorus – Credo in unum Deum 2:27
+2. Chorus – Patrem omnipotentem 2:03
+3. Duetto (soprano & alto) – Et in unum Dominum 4:55
+4. Chorus – Et incarnatus est 3:15
+5. Chorus – Crucifixus 2:51
+6. Chorus – Et resurrexit 4:02
+7. Aria (basso) – Et in Spiritum Sanctum 5:34
+8. Chorus – Confiteor 5:09(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:133E1E2F0841FE94766ECD9042B7826A14DF210B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 521765   (624830) от 12.07.2012
 
 Gioachino Rossini–Famous Overtures: Academy of St Martin in the Fields conductor Sir Neville Marriner (1974)/2002, Penta Tone Music/[APE|Lossless]<Classical>
@@ -725,64 +789,6 @@ Chequerboard - The Unfolding (2013) [FLAC|Lossless|tracks] <Folk, Modern Classic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CA48CF96444CE9C26F465ECDEA6ED56E1664253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985789   (608662) от 16.06.2018
-
-Оркестр Большого Театра, Дирижер Геннадий Рождественский - Петр Ильич Чайковский, Щелкунчик (1960) 2CD, 1999 Мелодия [FLAC|Lossless|tracks + .cue] <ballet>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Щелкунчик: Действие II, Картина III. Дворец сластей Конфитюренбург (3:56)
-02. Щелкунчик: Действие II, Картина III. Прибытие Мари и Щелкунчика (4:15)
-03. Щелкунчик: Действие II, Картина III. Дивертисмент (а) Шоколад: испанский танец (1:07)
-04. Щелкунчик: Действие II, Картина III. Дивертисмент (б) Кофе: арабский танец (3:04)(   Читать дальше...   )Жанр: BalletПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2C9252E999E4DF949BF28008C15DBA2454571C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038253   (608372) от 27.07.2016
-
-Katherine Jenkins - One fine day (2011) [FLAC|Lossless|image + .cue] <Classical Crossover, Vocal>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ave Maria (3:58)
-02.One Fine Day (Un Bel Di) (4:20)
-03.Music Of The Night (5:51)
-04.Requiem For A Soldier (3:50)(   Читать дальше...   )Жанр: Classical Crossover, VocalПродолжительность: 01:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33C13C2CE0B9C2FE9A175FF048706E134B94E8BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

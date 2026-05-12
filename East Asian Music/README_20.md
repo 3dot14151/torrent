@@ -1,3 +1,32 @@
+###  Публикация: 1815548   (5152) от 30.08.2025
+
+Dasu - Nakakapagpabagabag (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Nakakapagpabagabag
+03. 86
+04. Bulalo(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:34:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD39DA29F4BA57D5F306CDC75574C3C40F56E7EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817345   (3445) от 10.09.2025
 
 Sigh - I Saw The Worlds End / Hangman's Hymn MMXXV (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Black Metal, Avantgarde>

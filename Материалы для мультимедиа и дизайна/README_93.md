@@ -1,3 +1,107 @@
+###  Публикация: 1508834   (795949) от 10.11.2021
+
+Пресеты - Creative Market - 400+ Lightroom Presets Bundle - 6274176 [XMP, DNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 400+ профессиональных пресетов Lightroom для блоггеров и фотографов. Пресеты Lightroom созданы для всех видов внутренней и наружной фотографии Портретов, пейзажей, путешествий и т. д. Все 400+ пресетов идеально подходят для работы с вашими фотографиями всего одним щелчком мыши. Для достижения наилучшего результата мы создаем каждый пресет для разных настроек (   Читать дальше...   )Формат: XMP, DNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15B76C7DF3A620D89AF9F54C07E982C55938EB1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385951   (795867) от 27.05.2020
+
+Растровый клипарт - Pixelbuddha - Holographic Stickers [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные изображения голографических наклеек на прозрачном фоне в двух вариациях. Материал раздается с официальной документацией.Разработчик: Jesse Makes (Paterson, NJ, USA)Формат: PNGРазрешение файлов: 2078 x 2100
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9524B84006C670F924DB0BC094C9EF3B7439B2FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385954   (795844) от 27.05.2020
+
+Растровый клипарт - Pixelbuddha - Golden Alphabet Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница в растре. Материал раздается с официальной документацией.Разработчик: Elen StolzФормат: PNGРазрешение файлов: 4500 x 4500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF4EC371D07D151523556B9A9A0AB3896B69D212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385955   (795834) от 27.05.2020
+
+Растровый клипарт - Pixelbuddha - Sunny Grape Vintage Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные 10 иллюстраций птиц и 20 иллюстраций винограда + 5 бесшовных узоров в растре на прозрачном фоне. Материал раздается с официальной документацией.Разработчик: Maria LettaФормат: PNGРазрешение файлов: 827 x 885 - 5001 x 5001
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:173E0032255595F394077FF75927D2564688B88B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386023   (795781) от 27.05.2020
 
 Футажи - VideoHive - Air Strike Drone Fighter On Alpha Channel Loops V1 - 26436004 [MOV]
@@ -571,111 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6934ACF19F7C79C8139CFB661549FDB89D0F6E58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274218   (793991) от 06.01.2019
-
-3D модели - Hum3D - Holden Colorado Space Cab Divisional Van 2018 [V-Ray|*.max, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793991.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки HoldenФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB4A7C87936E3CF1EA11286A2884586867C00C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274441   (793946) от 06.01.2019
-
-Boom Library - DEBRIS [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793946.jpg" />
-</div>
-
-
-###  Подробнее
-
-DEBRIS BUNDLE дает вам всю мощь звукового дизайна, так как содержит 2 пакета DEBRIS DESIGNED и DEBRIS CONSTRUCTION KIT.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C457CBD6FCB446C8CAE7F73206001EFE48C53BA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274209   (793932) от 06.01.2019
-
-3D модели - Hum3D - BMW X5 (G05) M sport 2019 [V-Ray|*.max, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793932.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки BMWФормат: Сorona|Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL, SKP, PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B3A8C6C8A5B2724DDAD584F67D2BA47A6A8846
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200824   (793698) от 23.01.2018
-
-3D модели - Daz 3D - Everyday [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор одежды от повседневной до вечерних платьев для DAZ 3D из категории People.
-Для Genesis 3 и Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E98756E1765991E2E3C8FBAAE336601146D46C90
 ```
 
 https://mybot314.ru/tekegram_catalog/

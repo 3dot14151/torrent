@@ -1,3 +1,56 @@
+###  Публикация: 825442   (460035) от 27.09.2014
+
+Проекты - VideoBlocks - Cinematic Trailer [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект анимации ваших титров в стиле трейлера.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A97DB9C46E4F2B348331B3B1850936951601082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 825477   (460027) от 27.09.2014
+
+Pond5 - Slide Corporate Presentation - 40832114 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для вашей видеопрезентации.
+Превью, файл помощи - в раздаче.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C7A945F984EE285A0FE2C9C0E68FD71D0B0DF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 825453   (460024) от 27.09.2014
 
 Revostock - Our Wedding PopUp Album V3 - 834643 [AEP]
@@ -621,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3653980DAEC9A9DF2B7A3EA16D7F1BBF8958D3B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942071   (457292) от 29.09.2015
-
-Проекты - VideoHive - Epic Light Media Opener - 12109202 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:087DCF66AF5DDCE71A982A44EA4180B2DB51622E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942047   (457287) от 29.09.2015
-
-Проекты - VideoHive - Neon TV Broadcast Package [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой пакет для создания превью к телевизионным трансляциям. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B01F1F7369342F9B62C678440DFEA99D73B15038
 ```
 
 https://mybot314.ru/tekegram_catalog/

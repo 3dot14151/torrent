@@ -1,3 +1,61 @@
+###  Публикация: 1242013   (517187) от 20.08.2018
+
+Marfen - Velvet Summer (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iris (Ambient Mix)
+02. Pulp (Original Mix)
+03. Summer (Original Mix)
+04. Ya Salam (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F356EEA259D53A6A809809182B7294852DDB783A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242122   (516234) от 21.08.2018
+
+VA - Dirty Sexy House Club 8 (Smashing Tunes) (2018) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dimiz & Baley feat. Amber Thirsa Chloe - In My Dreams (Original Mix) 5:01
+02. Luke K - Here And Now (Deep Edit) 4:20
+03. Mario Valley - Take You There (Original Mix) 2:44
+04. Casa & Nova - Another Day In Paradise (Radio Version) 3:59(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCFE6C37C70D41F83A9458C72F9EEADF89891684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242564   (513984) от 23.08.2018
 
 VA - Barcelona to Mykonos - The Circuit Music Guide (2018) [MP3|320 Kbps] <House, Big Room, Progressive House>
@@ -735,64 +793,6 @@ VA - Progressive Cuts (2018) [MP3|320 Kbps] <House, Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD899C27488861EF3D3A723AADDE170BA1F2DE3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242897   (496106) от 25.08.2018
-
-VA - Deep-House Themes, Vol. 3 (2018) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonic Dreams - Blanche (Coco's Deep Mix)
-02. Mischa Miller - Black & White (Original Mix)
-03. Liam Day - Walk On The Beach (Mark's Deep Mix)
-04. Mandrágora - Playing With Fun (Sunset Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D2B9B50E1375CE28E388BEEDC1F85934497A694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243012   (496094) от 25.08.2018
-
-VA - It's Disco House (2018) [MP3|320 Kbps] <House, Nu Disco, Disco House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jason Prince - Careless Whisper (Calenzo Club Mix) 3:38
-02. Carol Jiani - Feel It (Andre Schluter Funky Night Mix) 3:10
-03. Chris Excess feat. Lexine - It Feels So Good (Jason Parker Remix Edit) 3:45
-04. Jason Parker feat. Gemma Macleod - U Sure Do (Radio Edit) 3:25(   Читать дальше...   )Жанр: House, Nu Disco, Disco HouseПродолжительность: 02:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42622CBB8FCAEC0BBF4C9F0157C76BB96562B622
 ```
 
 https://mybot314.ru/tekegram_catalog/

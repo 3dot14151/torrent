@@ -1,3 +1,32 @@
+###  Публикация: 1013187   (777315) от 05.05.2016
+
+VA - Top Club Music World Hits Vol.75 (2016) [MP3|320 кб/с] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777315.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Thomas Newson & Asonn Ft. Brad Mair - Home Is Where The Heart Is (Edit) (02:41)
+2. R3hab - Hakuna Matata (Hardwell Radio Edit) (02:46)
+3. Twoloud - Boston (Radio Edit) (02:55)
+4. Sam Feldt - Been A While (Madison Mars Remix Edit) (03:00)(   Читать дальше...   )Жанр: HouseПродолжительность: 08:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16740E968B02B195C9C2C835D12B488EA4865C34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211534   (777156) от 08.03.2018
 
 VA - Hed Kandi - 169 Best House Tracks In The Past 15 Years (2017) [Compiled by Firstlast] [MP3|320 Kbps] <Deep House, Nu-Disco, Funky House>
@@ -716,35 +745,6 @@ VA - Drum'n'Dream (2010-2016) [MP3|128-320 кб/с] <Bass, Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79AC1A495498B43BDB58322C0DCF27616F6F45BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014625   (776177) от 08.05.2016
-
-VA - European Disco EDM (2016) [MP3|320 кб/с] <House, Trance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776177.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Talla 2Xlc & Binary Finary - Believe In Everything ( feat. Sylvia Tosun) 3:39
-002. Roger Shah & Nathia Kate - Never Forget ( feat. Amber) 3:38
-003. Rene Ablaze - Into The Stars ( feat. Robin Vane) 3:47
-004. MaCiD - Fading Memories (Official Uptrax Winner Track) 3:44(   Читать дальше...   )Жанр: House, Trance, ClubПродолжительность: 08:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:009E6B270FC73E4E7FD7C7C367382D3C5A289B21
 ```
 
 https://mybot314.ru/tekegram_catalog/

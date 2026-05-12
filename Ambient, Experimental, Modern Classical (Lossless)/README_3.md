@@ -1,3 +1,32 @@
+###  Публикация: 1356728   (977942) от 31.01.2020
+
+Jogging House - Lure (2019) Seil Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tulip (05:32)
+ 02. Weavings (04:59)
+ 03. Reeds (06:58)
+ 04. Fountains (05:18)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:743EDAFD60493476A14B03FBBEBDC10AA6DAF24C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356508   (974329) от 03.02.2020
 
 Tangerine Dream - Recurring Dreams (2020) Studio/Compilation, 2019 [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
@@ -708,35 +737,6 @@ Sinepearl - Cycles Within Cycles Within (2014) [FLAC|Lossless|WEB-DL]<Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46EAF7806353C888A1628662CADDFFB8B51CE395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491661   (908724) от 26.08.2021
-
-Xu & Darren Harper - Arising & Ceasing Of Things (2021) Rottenman Editions [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flickering Of Shadows & Leaf (03:40)
- 02. A Dove Singing Near Broken Glasses (08:08)
- 03. Early Morning Chords (08:32)
- 04. Arising & Ceasing Of Things (07:38)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC22D1293DFDE49FCAF20C40D811285F5E8EBCEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

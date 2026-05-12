@@ -1,3 +1,119 @@
+###  Публикация: 979595   (959885) от 26.01.2016
+
+David Wahler - Secret Dream (2012) [MP3|320 кб/с] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Finger Rain
+02. Snowflake
+03. Beyond the Edge
+04. Free as a Bird(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5596590A888F9BDCCEEC98DBACB8EB6B152DEF54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979597   (959786) от 26.01.2016
+
+Arash Behzadi - With Closed Eyes (2015) [MP3|320 кб/с] <New Age, Solo Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dilemma
+02. The Joy of Storm
+03. Searching for Paradise
+04. Glittering Waves(   Читать дальше...   )Жанр: New Age, Solo PianoПродолжительность: 01:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D0391AA44ED603A6EE67FE25753D6C15EAD3F23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360552   (959460) от 16.02.2020
+
+Hacknet - Soundtrack (2015) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remi Gallego - Malware Injection
+02. Cinematrik - The Quickening
+03. Sean Gillespie - Tetrameth
+04. Carpenter Brut - Roller Mobster(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8C11F512449617FE3A9093581CF80E09723C857
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360548   (959446) от 16.02.2020
+
+Portal - Soundtrack (2014) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Subject Name Here
+02. Taste of Blood
+03. Android Hell
+04. Self Esteem Fund(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C040A5B0EA53AED0E78F41079BBBA837E26AA92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360545   (959404) от 16.02.2020
 
 Portal - Soundtrack (2014) [FLAC|Lossless|tracks] <Soundtrack>
@@ -632,122 +748,6 @@ Enya - The Very Best of Enya (2009) [FLAC|Lossless|image + .cue] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F64776E07B4B633142CD96FBF7552DFA69C01541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088521   (953506) от 02.01.2017
-
-Abel Korzeniowski - Nocturnal Animals / Под покровом ночи (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wayward Sisters (02:56)
-02. Exhibition (01:13)
-03. Restless (01:21)
-04. A Solitary Woman (02:35)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:33:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DED8B0599DB715708058E2F67AB51E3911DD8D83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980644   (952901) от 31.01.2016
-
-VA - Mambo (2000) 3CD box [FLAC|Lossless|tracks + .cue] <Mambo>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L. Rodriguez Salazar, Ch. Leis Bendorff - Mira Nina (3:33)
-02. L. Rodriguez Salazar, Ch. Leis Bendorff - Mambo Para Gozar (3:51)
-03. L. Rodriguez Salazar, Ch. Leis Bendorff - Lolita Mambo (3:14)
-04. L. Rodriguez Salazar, Ch. Leis Bendorff - Mambo Espanol (3:13)(   Читать дальше...   )Жанр: MamboПродолжительность: 00:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EACB820689B9633E4667F1D415E229775A8EA374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980856   (952880) от 31.01.2016
-
-VA - Sirtaki Dance (1997) Instrumental [FLAC|Lossless|tracks + .cue] <Folklore>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. G.Zampetas, A.Sakelarios - Siko Horepse Sirtaki (3:53)
-02. St.Xarhakos, V.Goufas - Na Me Thimase (3:16)
-03. I.Kapellas - Nostalgo (3:34)
-04. George Maustaki, D.Christodoulou - Mesogios (3:21)(   Читать дальше...   )Жанр: FolkloreПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:923F5B79D8885CA9E73A270FFF14764DE34774B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980974   (952810) от 31.01.2016
-
-VA - Die schonsten Wiener Walzer (2007) [FLAC|Lossless|tracks + .cue] <Classical>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orchester der Volksoper Wien - Wiener Blut (Johann Strauss) (3:13)
-02. Orchester der Volksoper Wien - Dorfschwalben aus Osterreich (Josef Strauss) (3:09)
-03. Orchester der Wiener Staatsoper in der Volksoper - Facherpolonaise (Carl Michael Ziehrer) (3:00)
-04. Orchester der Wiener Staatsoper in der Volksoper - Hofballtanze (Josef Lanner) (5:59)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C19DB637A8D358C7C61CB0DE451944F0F1A680A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

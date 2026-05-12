@@ -1,3 +1,59 @@
+###  Публикация: 1258063   (341342) от 28.10.2018
+
+VA - FG Top 10: October (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Freegrant & Slow Fish – The Dark Side (Extended Mix)
+02. Andre Sobota – Ground Level (Rokazer Remix)
+03. H3 – Windfall (Original Mix)
+04. Tony Hammer – Wild West (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5715F24EE90A9D05FC8C6E0C926AA8AB35050210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330240   (341312) от 10.10.2019
+
+Solis & Sean Truby with Audrey Gallagher - Skin Deep (Solis & Sean Truby vs. Ultimate Remix) (2019) Single [MP3|320 Kbps] <Trance, Uplifting>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341312.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Skin Deep (Solis & Sean Truby vs. Ultimate Extended Remix) [07:52]
+2. Skin Deep (Solis & Sean Truby vs. Ultimate Remix) [03:45]Жанр: Trance, UpliftingПродолжительность: 00:11:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E25304FFA57DE6EDD86CF8A7D405797428884DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330444   (341001) от 10.10.2019
 
 Dave Steward - Rage (2019) [MP3|320 Kbps] <Trance>
@@ -684,64 +740,6 @@ VA - Beautiful Vocal Trance Progressive 2022 [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:664BC01346D992A572D222FC5795DF7664083B0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580421   (330814) от 01.10.2022
-
-VA - Suanda Music 2022 - Mixed by Roman Messer [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jordy Eley - Nova (Original Mix) (4:13)
-02. NoMosk - Better For You (Extended Mix) (3:19)
-03. Milad E & David Deere - Got You (Extended Mix) (5:05)
-04. Jon The Dentist - Global Phases (Aimoon Extended Remix) (6:31)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D6800BCF8C91480C70B258F479FA699C1A39EDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957357   (327667) от 17.11.2015
-
-VA - Recoverworld Radio 002 (Mixed by Rich Smith) (2015) [MP3|320 кб/с]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Icone - Outer Limits (Original Mix) (8:35)
-02. The Cracken - Pegaz (Original Mix) (6:20)
-03. Lostly - Take This Acid (Original Mix) (7:34)
-04. Rich Smith - Nightfall (Original Mix) (7:02)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC620BB9D169309BA9E1214715216AB3D16548AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

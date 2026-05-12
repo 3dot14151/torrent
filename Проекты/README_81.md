@@ -1,3 +1,57 @@
+###  Публикация: 1006434   (828480) от 11.04.2016
+
+Проекты - VideoHive - Slideshow Pack 3 in 1 - 11126579 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828480.jpg" />
+</div>
+
+
+###  Подробнее
+
+3 проекта для создания фото-видео слайдшоу. Используются в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83C88B1C256037C5CEA7EC84EDD74268062BDD6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006214   (828387) от 11.04.2016
+
+Проекты - VideoHive - Fast Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fast Slideshow - это стильный, современный, позитивный проект, подходящий для быстрого вступления, презентаций, портфолио, короткого динамичного слайд-шоу.
+Проект хорошо организован. Вы можете легко изменить длительность путем дублирования или удаления сцен.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F83C0FBB5E8DBEAD1F348C2CD9AEAAEC024E39C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006370   (828376) от 11.04.2016
 
 Проекты - VideoHive - Video glitch FX - 2753756 [AEP]
@@ -621,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E71EC08499549B3C253D7C7243A3E285F58BF00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006526   (826902) от 12.04.2016
-
-Проекты - Rotating Photos Montage [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rotating Photos Montage - Энергичный хай-тек проект After Effects с великолепными частицами, искрами, огненными шариками и вращающимися фотографиями. Имеется 2 варианта проекта - pre-rendered(без плагинов) и для работы с плагинами.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45929B69F8878D508E3840424FBF3D7447DD7CBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006512   (826761) от 12.04.2016
-
-Проекты - VideoHive - Nyx [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот проект вступление, сделает ваше видео или фильм более интересным!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C912B3AD18F72D04B6B417088A3B924959A1D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

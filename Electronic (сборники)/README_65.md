@@ -1,3 +1,32 @@
+###  Публикация: 1014625   (776177) от 08.05.2016
+
+VA - European Disco EDM (2016) [MP3|320 кб/с] <House, Trance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776177.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Talla 2Xlc & Binary Finary - Believe In Everything ( feat. Sylvia Tosun) 3:39
+002. Roger Shah & Nathia Kate - Never Forget ( feat. Amber) 3:38
+003. Rene Ablaze - Into The Stars ( feat. Robin Vane) 3:47
+004. MaCiD - Fading Memories (Official Uptrax Winner Track) 3:44(   Читать дальше...   )Жанр: House, Trance, ClubПродолжительность: 08:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009E6B270FC73E4E7FD7C7C367382D3C5A289B21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014706   (776149) от 08.05.2016
 
 VA - Beatport Top 100 Tech House April (2016) [MP3|320 кб/с] <Tech House>
@@ -714,35 +743,6 @@ VA - Empire Records - Deep Blue 3 (2019) [MP3|320 Kbps] <House, Deep House, Club
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F58E0393C2947C2FC1AD48C891C1A360436AF1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213062   (773355) от 15.03.2018
-
-VA - Ibiza Love Injection Trance Box Edition (2018) [MP3|320 Kbps] <Progressive, Uplifting, Future Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773355.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. John O'Callaghan - Permutations (Intro Mix Edit)
-002. Kaimo K & Cold Rush feat. Katty Heath - Here I Am
-003. Sun Liquide - Celebrate The Light (Rene Ablaze Radio Edit)
-004. Vintage & Morelli - While The Earth Sleeps (Extended Mix)(   Читать дальше...   )Жанр: Progressive, Uplifting, Future TranceПродолжительность: 12:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36941893033E05EE9A5128DAD852C5D49B1DD552
 ```
 
 https://mybot314.ru/tekegram_catalog/

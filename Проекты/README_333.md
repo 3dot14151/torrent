@@ -1,3 +1,55 @@
+###  Публикация: 1194230   (151064) от 27.12.2017
+
+Проекты - VideoHive - Titles v5.0 - 17500952 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blade Titles 5.0 - Этот пакет имеет прекрасный, современный дизайн и предлагает некоторые анимационные трюки. Шаблон разнообразный, поскольку он содержит не только lower thirds, но и анимацию логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23A99A453DBC5A4994DB038E16F9549FA68B1A5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194233   (150834) от 27.12.2017
+
+Проекты - VideoHive - Extreme Show // Sport Event Promo - 20706485 [AEP]
+
+>>Проекты
+>>Спортивные (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отлично подойдет для презентации разных видов спорта. Очень зрелищный и динамичный проект.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD193412143E11A40DD31244376C702FF7C383F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194957   (150825) от 27.12.2017
 
 Проекты - VideoHive - Typopro | Typography Pack - Title Animation - Kinetic - Minimal - Vintage V3.5 - 20448499 [AEP]
@@ -627,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FE80264D1F0AF5E8867CAC38317F063D2EC7B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086730   (149245) от 25.12.2016
-
-Проекты - VideoHive - Christmas - 19169491 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Christmas - проект для создания Рождественского пожелания или другого праздничного приветствия!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A96125472F128E837C457557BF8F1D54083E4EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086763   (149238) от 25.12.2016
-
-Проекты - VideoHive - Social Media Bundle - 16974172 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Social Media Bundle - пакет анимации, отображающий работу социальных сетей.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F5EBC6F90BD0B2CCDBC05DE2D434C66B19119CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

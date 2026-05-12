@@ -1,3 +1,57 @@
+###  Публикация: 1788821   (22814) от 01.04.2025
+
+Проекты - VideoHive - Ransom Letters - 49277679 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы ищете уникальность и свежий взгляд на свой проект, то Ransom Letters - идеальный выбор, предлагающий более 2500 элементов, из которых вы можете свободно выбирать то, что вам нужно.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D7E3F380A72A5EA10BBBBD6D72D178B0BC52B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788982   (22812) от 01.04.2025
+
+Проекты - VideoHive - Photo Logo Intro - 56833503 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивый проект с логотипом для фотографов.
+
+Музыка предоставлена в демо режиме.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84B045B73DBACB3EF043EF0A0E4909E9B0AB6322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788832   (22809) от 01.04.2025
 
 Проекты - VideoHive - Ethereal Motion Slideshow - 56732181 [MOGRT]
@@ -637,58 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70112E2584F7CEFAFBE5DE8A36C20FA43280C4E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801774   (14735) от 13.06.2025
-
-Проекты - VideoHive - Electric Reveal - 58370219 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интересный проект для создания видео с логотипом.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC9A0497E36A90D75A943C83F9B291FA302B2DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802359   (14453) от 16.06.2025
-
-Проекты - VideoHive - History Opener And Trailer - 57951579 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14453.jpg" />
-</div>
-
-
-###  Подробнее
-
-History Opener And Trailer - отличный проект для создания действительно эпичных и полных эмоций заставок, трейлеров, вступлений, слайд-шоу, фильмов и ваших воспоминаний.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E185DA491D5CDAD19E372BDB51B6B69D83ED4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

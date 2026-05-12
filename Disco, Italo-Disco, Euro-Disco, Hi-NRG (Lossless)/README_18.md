@@ -1,3 +1,32 @@
+###  Публикация: 1416159   (369541) от 15.10.2020
+
+VA - Italo Disco - The Lost Legends Vol. 23 (2018) [FLAC|Lossless|tracks + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Boys - Fantastic World (4:41)
+02. Business - Moon Light Field (3:41)
+03. Giusy Dej - Follow Me (3:54)
+04. Ekstasy - I Need Sincerity (5:06)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58F507C05FAC4883040F38495026CAB173C9FE00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950836   (362755) от 29.10.2015
 
 Video Kids - The Invasion Of The Spacepeckers (1995) Unofficial Release [FLAC|image + .cue]<Euro-Disco, Electronic>
@@ -722,35 +751,6 @@ Italove - Extended And Remixed (2018) Compilation [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9096F40ABB3AB8F5ABFF3C6CA3573F530CCE0D15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259256   (320877) от 03.11.2018
-
-VA - Disco 80's Rare & Special Versions Vol. 2 (2016) Compilation [FLAC|Lossless|tracks + .cue] <Euro-Disco, Italo-Disco, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C.C. Catch - Jump In My Car (U.S. Club Special Promo Long Mix) (5:15)
-02. Blue System - Magic Symphony (Special Version) (4:27)
-03. Divine - Hard Magic (Remix) (4:39)
-04. Latin Lover - Laser Light (Unreleased Radio Mix) (3:42)(   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, EurodanceПродолжительность: 01:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37F93D564CD5960BE0094305123F19EC7E13FE6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

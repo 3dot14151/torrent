@@ -1,3 +1,30 @@
+###  Публикация: 1638866   (237612) от 10.06.2023
+
+MetaVideo 1.0.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите взять под контроль свои метаданные видео и оптимизировать рабочий процесс? Не ищите ничего, кроме MetaVideo, идеального приложения для управления вашими метаданными видео на Mac.
+С помощью MetaVideo вы можете автоматизировать редактирование тегов QuickTime и GPS, что делает его идеальным инструментом. Если вам нужно изменить метаданные, добавить обложку или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.06.2023Разработчик: © 2012-2023 Jérémy VizziniПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE74627BD54B81D627E0D92E03515D091E1EB14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605720   (237610) от 19.01.2023
 
 GrandTotal 8.0.3.1 [Multi]
@@ -651,32 +678,6 @@ Viwizard Spotify Music Converter for Mac 2.11.0 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B5C1D0F817134438B8AE8FC3C69C52306E21639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360425   (237333) от 15.02.2020
-
-SQLPro Studio 2020.09 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237333.jpg" />
-</div>
-
-
-###  Подробнее
-
-QLPro Studio инструмент управления базами данных Postgres, MySQL, Microsoft Management Studio и Oracle.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Hankinsoft Development, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74BD10C36A77B5DF9470B2AE7C2D12750FB27F29
 ```
 
 https://mybot314.ru/tekegram_catalog/

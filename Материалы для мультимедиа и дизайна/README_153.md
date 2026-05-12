@@ -1,3 +1,107 @@
+###  Публикация: 1291438   (670226) от 24.03.2019
+
+Шаблоны - Creative Market - Fold Up Retail Box Packaging Mockup - 3461275 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три макета коробки в PSD с высоким разрешением и в каждом по 4 варианта макетов.Формат: PSDРазрешение файлов: 5400x3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7004BC2A40C791156E5A8DB579AA03654BF5C41B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031094   (670144) от 02.07.2016
+
+Экшены - GraphicRiver - Color Dust Action [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Color Dust - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D65706FF5ED91BE563D76B24CE1D0A0FFA41AAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031076   (670092) от 02.07.2016
+
+Экшены - GraphicRiver - Sand Writing Photoshop Action [ATN, ASL, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sand Writing - экшен для Вашего творчества.Формат: ATN, ASL, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C97FD2BDE5B88FA19203703A55E7308FE444C067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031081   (670090) от 02.07.2016
+
+Экшены - GraphicRiver - Draw in Sand Photoshop Action [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Draw in Sand - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8F4049279CA767AD803E4293F92CE4148E92A4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031111   (670048) от 02.07.2016
 
 Экшены - GraphicRiver - Feather Photoshop Action [ATN, ABR]
@@ -572,110 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F271CD1FD9B3FC36632DCE4DEB9CC82F780164F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291642   (668507) от 25.03.2019
-
-Стили - Best 5 Photoshop Text Effects [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668507.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 текстовых стилей в кинематографическом стиле для ваших проектов.Формат: PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA5E3D14AEF7D341EB449E7119CA9A22EE5D8CCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031225   (668439) от 03.07.2016
-
-Экшены - GraphicRiver - Splash Art Photoshop Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Splash Art - Прекрасный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFDBE782B0F473D137CC98D6B946FC21A2588B07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291526   (668418) от 25.03.2019
-
-Футажи - Коллекция видеофутажей 7 [MP4]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Седьмая часть личной коллекции из 100 видеофутажей на природную тематику...Формат: MP4Разрешение файлов: 1280х720
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4240B5AB07322E25B3341941F302A3DC8338AC06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 338759   (668346) от 19.05.2011
-
-Растровый клипарт - Изящная кухонная посуда [JPG, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изящная кухонная посуда на прозрачном фоне.Формат: JPG, PNGРазрешение файлов: 300х300 - 3000х3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:656262E17D0FB436AC0DE35558C4F7351DEC2E34
 ```
 
 https://mybot314.ru/tekegram_catalog/

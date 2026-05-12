@@ -1,23 +1,23 @@
-###  Публикация: 1006967   (825404) от 13.04.2016
+###  Публикация: 1502805   (825024) от 16.10.2021
 
-Leech 3.0 [En]
+RSS Button for Safari 1.7.1 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825024.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Leech: простой и удобный менеджер загрузок для Mac OS X
-Были времена, когда менеджер загрузок был одной из самых необходимых программ для работы в интернете. Несмотя на то, что сегодняшние каналы связи уже очень выросли и потолстели, менеджеры задач остаются популярными приложениями.  Сегдня их в основном используют, для того, чтобы докачивать файлы. Но кроме (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 апреля 2016Разработчик: Many TricksПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+Откройте для себя RSS, Atom или JSON-каналы и подпишитесь на них в предпочитаемой программе чтения новостей на компьютере или в сети «Интернет» из Safari.
+Для RSS Button for Safari  требуется либо настольная программа для чтения новостей, поддерживающая каналы RSS, Atom или JSON, либо учетная запись с онлайн-программами чтения новостей, такими как Feedbin, Feedly, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.10.2021Разработчик: BitPiston StudiosПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D89D33DD2BA365ABA02D87C3D7F15DA171C5B909
+magnet:?xt=urn:btih:8356417F805158CFC4317CD5BE5D5F6E7173C35C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,28 +25,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006803   (825403) от 13.04.2016
+###  Публикация: 1006734   (824997) от 13.04.2016
 
-Geneva Jacuzzi - Technophelia (2016) [FLAC|Lossless|tracks] <Cosmic Disco, Synthpop, Minimal Wave>
+Earthling - Interstellar Moonshine (2016) [FLAC|Lossless|tracks] <Psy-Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824997.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Technophelia (Intro) 02:45
- 02. Technophelia 02:12
- 03. Casket 04:00
- 04. God Maker 03:02(   Читать дальше...   )Жанр: Cosmic Disco, Synthpop, Minimal WaveПродолжительность: 00:36:09
+1. Hippy Daze (8:00)
+2. Breakfast of Champignons (feat. Tron) feat. Tron (7:05)
+3. Interstellar (feat. Burn in Noise) feat. Burn in Noise (8:16)
+4. Prime Time Pickle (feat. K.I.M) feat. K.I.M (7:39)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:33:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99E64368B24E3691DD261A43F47AA0C215B0DE5B
+magnet:?xt=urn:btih:FDCD0B644C353CA706F03A4927B8C60E45DCDAB0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,106 +54,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006563   (825402) от 13.04.2016
+###  Публикация: 1006854   (824994) от 13.04.2016
 
-VA - Time Militia LP (2016) [MP3|320 кб/с] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mooncat - Southern Lights (05:22)
-02. Moa - Tunnel Vision (04:36)
-03. Strago - The Shed (05:57)
-04. Exodous - Bass Scanner (05:54)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:14:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D38835BB3737806E2269A30C8DF161F4F8C71B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006826   (825401) от 13.04.2016
-
-Крампус / Krampus  (2015) BDRip [H.264/720p] [EN]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825401.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о демоне, который во время Рождества выискивает непослушных детей, чтобы наказать их.Производство: США, Новая Зеландия, Legendary Pictures, Universal PicturesЖанр: ужасы, фэнтези, комедияРежиссер: Майкл ДогертиАктеры: Эмджей Энтони, Адам Скотт, Тони Коллетт, Стефания Оуэн, Криста Штадлер, Кончата Феррелл, Эллисон Толман, Дэвид Кокнер, Маверик Флэк, Куеени Сэмюэл, Лоло ОуэнПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AD1FF61FF5E66AFFD4CE5E6E24745CAE9CE4A29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006880   (825398) от 13.04.2016
-
-Крампус / Krampus  (2015) BDRip [H.264/1080p] [EN, Fr / Fr Sub]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825398.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о демоне, который во время Рождества выискивает непослушных детей, чтобы наказать их.Производство: США, Новая Зеландия, Legendary Pictures, Universal PicturesЖанр: ужасы, фэнтези, комедияРежиссер: Майкл ДогертиАктеры: Эмджей Энтони, Адам Скотт, Тони Коллетт, Стефания Оуэн, Криста Штадлер, Кончата Феррелл, Эллисон Толман, Дэвид Кокнер, Маверик Флэк, Куеени Сэмюэл, Лоло ОуэнПеревод: ОтсутствуетЯзык озвучки: Английский, французскийЯзык субтитров: французскийПродолжительность: 01:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2916C88599899FABA4EACE99C6EB9810627BE2AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006985   (825394) от 13.04.2016
-
-Wise Care 365 Pro 4.14.399 + Portable [Multi/Ru]
+Ant Download Manager 0.3.3 Beta [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824994.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программный пакет для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать список приложений автозагрузки и пр.Язык интерфейса: Русский, Английский, др.
+Ant Download Manager - быстрый и простой загрузчик любых файлов из Интернета с передовой функцией для скачивания видео с видеосервисов, таких как Youtube, Myspace, Google Video, DailyMotion и других. Интегрируется в браузеры - Internet Explorer 8+, Mozilla Firefox 32+, Google Chrome 31+. Поддерживает HTTP (S), FTP (S) протоколы. Программа имеет простой и удобный (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C587E97FBE01114DEB04FA825F2B30E146E0B3A2
+magnet:?xt=urn:btih:F0489D490CA04CA98B2F6A8B349EBF1C330B07E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -161,34 +80,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 194977   (825362) от 28.04.2010
+###  Публикация: 1006629   (824992) от 13.04.2016
 
-Storm Of Capricorn (2005-2006) - 3 albums [MP3|320 kbps] <Martial Industrial, Neofolk, Dark Ambient>
+Dune - Live! (1996) [FLAC|Lossless|image + .cue] <Rave, Happy Hardcore>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824992.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cawatana - Quien Fue En Busca De Sabiduria (04:07)
- 02. Cawatana - Unsere Richtung (03:54)
- 03. Cawatana - Behind The Walls Of Sadness (03:17)
- 04. Cawatana - Watch The Fire (04:18)
- 05. Cawatana - Hibatlan (06:11)
- 06. Storm Of Capricorn - Where Oak Lives (06:16)
- 07. Storm Of Capricorn - The Smoke Fades Away (03:36)
- 08. Storm Of Capricorn - Cloudbusting (Kate Bush's Cover) (05:15)
- 09. Storm Of Capricorn - Renaissance (08:11)
- 10. Storm Of Capricorn - Claustro (04:13)Жанр: Martial Industrial, Neofolk, Dark AmbientПродолжительность: 00:49:24
+01. Hallo Rastatt (0:28)
+02. Hand In Hand (6:08)
+03. Can't Stop Raving (5:51)
+04. Around The World (5:16)(   Читать дальше...   )Жанр: Rave, Happy HardcoreПродолжительность: 00:42:50
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:50C95C7D0D97E376E8FF29E374365C64288CF1BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -196,27 +109,138 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 654679   (825341) от 10.05.2013
+###  Публикация: 1006963   (824990) от 13.04.2016
 
-Видео-приложение к журналу "Мир подводной охоты". Выпуск №21 (2011) DVDRip
+Geek Uninstaller 1.3.6.62 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Geek Uninstaller - удобный и надёжный деинсталлятор, разработанный, чтобы помочь пользователям произвести удаление программ, установленных в системе. В отличие от других деинсталляторов, программа осуществляет глубинные процессы сканирования и очищает Ваш ПК от того, что осталось после удаления.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FF404E7C081083B5D2DF4149896104EAE284542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006987   (824985) от 13.04.2016
+
+VA - Amsterdam Trance Sessions Vol.3 (2016) [MP3|320 кб/с] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anton Sorokin - The Eternal Sun (Original Mix) 11:23
+02. Reprobate - Renaissance (Original Mix) 07:20
+03. SoundGate - Helios (Original Mix) 07:55
+04. Macho Iberico - Wax (Original Mix) 07:32(   Читать дальше...   )Жанр: TranceПродолжительность: 02:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76FED4C82DB7930A27B0339F7ACE7E5DEBE1C0A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116401   (824982) от 19.03.2017
+
+App Pier 1.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824982.jpg" />
+</div>
+
+
+###  Подробнее
+
+App Pier представляет собой клавиатурный пусковой механизм и коммутатор с поддержкой Touch Bar для нового Macbook Pro.
+
+С App Pier вы можете сэкономить место на экране, скрыв док-станцию MacOS, поскольку App Pier позволит вам запускать приложения и переключаться между ними с помощью быстрых клавиш и сенсорной панели.  Вы можете хранить свои любимые приложения в App (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 марта 2017Разработчик: Zafer ArıcanПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F5A00A0CF290450219543B7D9A7BADC465B4B79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116449   (824976) от 19.03.2017
+
+Fantastical 2 - Calendar and Reminders 2.3.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fantastical 2 — продвинутый календарь-органайзер для Mac OS X
+Fantastical - приложение представляет собой календарь, располагающийся в строке меню, с возможностью добавления событий сопровождаемых звуками и сообщениями, без непосредственного доступа к приложению iCal, что несомненно удобно в процессе ежедневной работы.  Основным отличием от аналогичных программ такого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16 марта 2017Разработчик: Flexibits Inc.Поддерживаемая ОС: macOS 10.11.5 +Язык интерфейса: Английский, Испанский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:656ADDC506B709263B209A318CE989EABD071176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116004   (824975) от 19.03.2017
+
+Футбол. Лига Европы УЕФА 2016/2017. 1/8 финала. 2-й матч. Аякс (Нидерланды) – Копенгаген (Дания) (16.03.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824975.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этом выпуске:
-1. Про карасей и сазанов.
-2. Охота на мелководье – раскаты, плёсы, заливы.Жанр: Документальный, ТелепередачаПродолжительность: 00:55:43
+16 марта 2017, четверг. 23:05 МСК
+Лига Европы УЕФА 2016/2017. Плей-офф. 1/8 финала. 2-й матч
+Стадион: Амстердам Арена (Амстердам, Нидерланды), вместимость: 53052
+(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56325BDCEE271F9F928BA644E4C10515365A6599
+magnet:?xt=urn:btih:7FA745A88A7DD25031A9B6DC95D6EC644B0AD6E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,215 +248,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 196579   (825299) от 28.04.2010
+###  Публикация: 1115534   (824972) от 19.03.2017
 
-Звезда (1949) DVDRip
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по повести Эммануила Казакевича - о маленькой группе разведчиков. Весной 1944 года на оккупированной территории немецкое командование готовит секретное наступление. Разведчики, направленные во вражеский тыл для уточнения данных, назад не вернулись. Новую группу из семерки разведчиков, названную "Звезда", возглавляет лейтенант Травкин. Каждый (   Читать дальше...   )Жанр: Драма, ВоенныйРежиссер: Александр ИвановАктеры: Олег Жаков, Николай Крючков, Василий Меркурьев, Павел Волков, Лидия Сухаревская, Анатолий ВербицкийПродолжительность: 01:30:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502815   (825267) от 16.10.2021
-
-Resolutionator 2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изменение разрешения быстрее, чем Т-1000 меняет формы. Resolutionator делает его простым в использовании любого из доступных разрешений дисплея. Нужно больше места для проекта? Быстрый щелчок в строке меню или нажатием клавиатуры на ярлыке позволяет легко переключаться на любой доступный размер.
-Если у вас есть несколько мониторов, вы можете получить доступ ко всем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.08.2021Разработчик: Many TricksПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:742D9A2C3C71BAAAF95D47E2812F97F97354CB66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502984   (825262) от 16.10.2021
-
-AnyMP4 Data Recovery 1.1.22 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825262.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyMP4 Data Recovery - профессиональное и безопасное программное обеспечение для восстановления данных. Это может помочь вам восстановить практически все потерянные файлы, такие как фотографии, документы, электронные письма, аудио, видео и многое другое с компьютера, флэш-накопителя, карты памяти / флешки на мобильном телефоне или фотоаппарате. Независимо от того, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.06.2021Разработчик: AnyMP4 StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3EE51B1FE842928B9D394DE2FD711D09DB3453E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502999   (825261) от 16.10.2021
-
-PDF Checkpoint 1.9.15 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825261.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF Checkpoint автоматизирует рабочие процессы PDF с мощной пакетной обработкой данных: preflight, route by preflight results, экспорт в качестве изображения, split, возможность конвертировать цвета, уменьшить размер файла и многое другое. Прекрасно организованный простой и наглядный инструмент для проверки PDF перед отправкой в типографию.Тип издания: macOS SoftwareРелиз состоялся: 30.08.2021Разработчик: Zevrix SolutionsПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10004385AAF25A1F53F2CF33F91D6BD4FB3AA2A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502769   (825260) от 16.10.2021
-
-Piezo 1.7.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piezo позволяет легко и быстро записать звук на вашем компьютере. В течение нескольких секунд и вы будете иметь запись звука из любого приложения.
-Кроме записи звука из приложений Piezo умеет записывать звук из встроенного микрофона, что может быть полезно для быстрой записи подкастов или создания аудио-заметок.
-Piezo не требует никаких настроек, достаточно его запустить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.10.2021Разработчик: Rogue Amoeba Software, LLCПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD6EC36A7EB74C51EF4BDB4C6AB11C29D402A1B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502853   (825259) от 16.10.2021
-
-Alarm Clock Pro 14 v14.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приходилось ли вам слышать такое выражение как хронофаги? Так называют людей, которые ничего никогда не успевают. Как вы думаете, почему? Да потому что не умеют планировать свои дела! А ведь именно планирование является одним из залогов успеха во всех делах и гарантией того, что они будут исполнены в срок.
-Alarm Clock Pro представляет собой многофункциональный будильник (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.10.2021Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0599695FC4E19CB9CCBFC41CF54F53803BB418E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502760   (825258) от 16.10.2021
-
-Loopback 2.2.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Синхронизация аудио между приложениями на вашем Mac.
-Создание виртуальных звуковых устройств, чтобы взять звук от приложений и аудио устройств ввода, а затем отправить его к аудио приложению обработки. Loopback дает вам силу студии микшерного пульта, прямо на вашем компьютере. Настройка виртуального звукового устройства из нескольких источников легко. Просто добавьте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.10.2021Разработчик: Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский, Немецкий, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0EAFBAF9DDF34E6F5DC13ACEE7F79DFDD774800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006757   (825198) от 13.04.2016
-
-Taliesin - Tales Of The Marvelous Twilight (2015) [FLAC|Lossless|tracks + .cue] <Progressive Psy-Trance>
+Tremah, Mage, Monrroe - The Inevitable (2015) EP [MP3|320 Kbps] <Drum & Bass>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824972.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. We Celebrate (08:36)
-02. Metamorphis (07:37)
-03. A Cosmic Flow (08:27)
-04. Out of The Darkness (08:25)(   Читать дальше...   )Жанр: Progressive Psy-TranceПродолжительность: 01:14:15
+01. Tremah & Actraiser - Let It Shine (06:20)
+ 02. Mage - Lagoon (05:57)
+ 03. Monrroe - The Inevitable (06:30)Жанр: Drum & BassПродолжительность: 00:18:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4302223464F9DD3BEFD4CDC5CE8E4545CB05D080
+magnet:?xt=urn:btih:28406932F829453A83681B6BF2567A8838AA2635
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -440,53 +276,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006953   (825188) от 13.04.2016
+###  Публикация: 1115535   (824970) от 19.03.2017
 
-Sketch 3.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sketch от Bohemian Coding — один из лучших векторных редакторов под Mac OS X!
-Разработка современных приложений немыслима без работы дизайнера, а дизайнеру для работы необходимо соответствующее программное обеспечение. В основном для разработки дизайна используются Adobe Illustrator, Photoshop и другие профессиональные графические редакторы, но есть и специализированные (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 апреля 2016Разработчик: Bohemian CodingПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:017D336D509A97830199BC999CD63202ED9A782B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007044   (825182) от 13.04.2016
-
-Manuel Rocca - Lionheart (2016) Single [MP3|320 кб/с] <Trance>
+Radicall - Starburst (2017) EP [MP3|320 Kbps] <Drum & Bass>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824970.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lionheart (Original Mix) 07:20
-02. Lionheart (Radio Edit) 03:31Жанр: TranceПродолжительность: 00:10:51
+01. Starburst (Original Mix) (06:24)
+ 02. Mariner (Original Mix) (06:09)
+ 03. What We Do (Original Mix) (05:42)Жанр: Drum & BassПродолжительность: 00:18:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23147AEF9386632D28BEBF2DDEA55634C8D26CAA
+magnet:?xt=urn:btih:F1F477CC29D4946951060F99FEE04157D2C8AEE7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -494,25 +304,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006974   (825174) от 13.04.2016
+###  Публикация: 1502974   (824955) от 16.10.2021
 
-Panda Free Antivirus 2016 16.1.2 DC 12.04.2016 [Multi/Ru]
+ThunderSoft GIF to Video Converter 3.8.0 (Repack & Portable) by elchupacabra [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824955.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Panda Free Antivirus - антивирусная программа, которая защищает компьютер без ущерба для его производительности: он всегда предоставляет максимальную производительность и вступает в действие только тогда, когда это необходимо.Язык интерфейса: Русский, Английский и другие
+ThunderSoft GIF to Video Converter - является программным обеспечением для пакетного конвертирования файлов gif в видео и извлечения последовательных изображений из gif. Поддерживает все основные видеоформаты: avi, wmv, mp4, mkv, flv, mov, mpeg и прочее.
+Предварительный просмотр файла gif кадр за кадром, и богатые настройки вывода включают в себя фоновую музыку, (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D9C42F2F2FBA70EEB5E1B22C27BE1C7F290CA60
+magnet:?xt=urn:btih:7394922C2F32D4740A6BD310388953A8AA1762C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,25 +331,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006855   (825172) от 13.04.2016
+###  Публикация: 1502804   (824953) от 16.10.2021
 
-USDownloader 1.3.5.9 [12.04.2016] Portable [Ru/En]
+Mac FoneLab for iOS 10.1.90 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Universal Share Downloader - это программа для скачивания файлов. В первую очередь оптимизирована под скачивание (в том числе полностью автоматическое) с различных файлообменных серверов типа rаpidshаrе.cоm, LetitBit, Deposit и прочих, сайтов с видео YouTube.com, RuTube.com и прочих. Universal Share Downloader поддерживает более 120! Вам достаточно добавить в программу (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Приложение Mac FoneLab для iOS для восстановления данных Mac iPhone, восстановление системы Mac iOS, резервное копирование и восстановление данных Mac iOS. Передача Mac WhatsApp для iOS в комплекте.Тип издания: macOS SoftwareРелиз состоялся: 12.10.2021Разработчик: © FoneLab Studio.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CDB754FB804034276642559A4652EBC52E1749F3
+magnet:?xt=urn:btih:AAFC6863E3EA3889A90AA34CFCE094354FB5DEF4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,25 +357,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006844   (825162) от 13.04.2016
+###  Публикация: 1501585   (824947) от 16.10.2021
 
-CoolUtils Total Movie Converter 4.1.19 [Multi/Ru]
+VA - A State Of Trance Festival 1000, Music Media Dome Moscow, Russia (2021-10-08) [MP3|320 Kbps] <Progressive House, Trance, Psy-Trance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824947.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Total Movie Converter - многофункциональная программа для конвертирования видео-файлов в любые популярные форматы такие, как: AVI, MPG, WMV, MPEG, FLV. К тому-же, программа способна подготовить видео для самых различных устройств - iPod, iPhone, Zune, Apple TV, Archos, Creative Zen Vision, XBox и многих других. Предусмотрена возможность пакетного конвертирования (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Ben Nicky pres. Emotional Havoc @ A State Of Trance Festival 1000, Music Media Dome Moscow, Russia 2021-10-08
+
+01. Above & Beyond pres. OceanLab - Miracle (Above & Beyond Club Mix)
+02. Art Of Trance - Madagascar (Alex M.O.R.P.H. Remix)(   Читать дальше...   )Жанр: Progressive House, Trance, Psy-TranceПродолжительность: 07:33:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44C663C6D04CB555A4AC93693E1C6B7B0613DE03
+magnet:?xt=urn:btih:892AC8FEEFE576BEB3E8411AAEA5B48CD261E023
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -572,25 +386,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006836   (825157) от 13.04.2016
+###  Публикация: 1006743   (824920) от 13.04.2016
 
-Миссия в Майами / Ride Along 2  (2016) BDRip [H.264/720p] [EN]
+Ромео + Джульетта / Romeo + Juliet (1996) BDRemux [H.264/1080p]
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824920.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Накануне собственной свадьбы Бен отправляется с братом своей будущей жены, крутым полицейским Джеймсом, в Майами, чтобы схватить наркодельца.Производство: США, Cube Vision, Universal Pictures, Will Packer ProductionsЖанр: боевик, комедияРежиссер: Тим СториАктеры: Айс Кьюб, Кевин Харт, Тика Самптер, Бенджамин Брэтт, Оливия Манн, Кен Жонг, Брюс МакГилл, Майкл Эдвард Роуз, Шерри Шеперд, Артуро дель Пуэрто, Эрик Гойнс, Карлос ГомесПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:41:30
+Весьма вольная и смелая интерпретация великой пьесы У. Шекспира, на современный лад и манер! Верона теперь стала огромным мегаполисом, Мантеги и Капулетти из дворянских кланов превратились в мафиозные, битвы на мечах теперь заменены уличными перестрелками. Но Ромео и Джульетта так и остались подростками, а божественные строки У. Шекспира теперь звучат из уст уличных (   Читать дальше...   )Производство: 20th Century Fox Film Corporation, Bazmark FilmsЖанр: Драма, Мелодрама, ТриллерРежиссер: Баз ЛурманАктеры: Леонардо ДиКаприо, Клер Дэйнс, Джон Легуизамо, Хэролд Перрино, Пит Постлетуэйт, Пол Сорвино, Брайан Деннехи, Пол Радд, Вонди Куртис-Холл, Мириам Маргулис, Джесси Брэдфорд, Зак Орт, Джейми Кеннеди, Дэш Майок, Винсент Лареска, Карлос Мартин Мэнзо ОталораПеревод: Дублированный, Профессиональный многоголосый, Авторский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7195AA33A0A9FFE870361D3E3CC3DEA8616AA223
+magnet:?xt=urn:btih:885C504C4C93DEA29ABCDF3B02D997C28719F7BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -598,54 +412,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502991   (825148) от 16.10.2021
+###  Публикация: 1006879   (824912) от 13.04.2016
 
-AnyMP4 Screen Recorder for Mac 2.0.32 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825148.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyMP4 Screen Recorder for Mac - приложение создано, прежде всего, для записи  видео с экрана Вашего компьютера. Благодаря интуитивно понятному и лаконичному интерфейсу, разобраться в программе можно быстро. AnyMP4 Screen Recorder поддерживает запись всего, что отображается на мониторе — потоковое видео, игры, звонки по Skype и так далее. С помощью этой программы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.10.2021Разработчик: AnyMP4 StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9708986846CF4F46672DBB7F3A63F1CF471A38E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502951   (825147) от 16.10.2021
-
-NIVIRO - Rave Culture Liveset (Freedom Rave EP 01) (2021-10-10) [MP3|320 Kbps] <Electro House, Big Room, Hard Dance>
+VA - PRSPCT Best Of 2015 (2016) [MP3|320 кб/с] <Hardcore, Breakcore, Drum & Bass>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824912.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ID - ID
-02. W&W & AXMO ft. Giin - Skydance w/Mightyfools - Footrocker (Get Your, Get Your Hands Up Acappella)
-03. NIVIRO - The Wolves w/Billie Eilish - No Time To Die (Acappella)
-04. Nicky Romero - Toulouse (2020 Edit) w/Kiss - I Was Made For Lovin' You (Acappella) w/ID - ID(   Читать дальше...   )Жанр: Electro House, Big Room, Hard DanceПродолжительность: 00:54:04
+01. Counterstrike - Ready For The Pain (05:08)
+02. Synapse - Ghetto Kung Fu (04:20)
+03. The Hard Way - BLCKMTL (06:03)
+04. Dolphin - Raiders Cap (04:52)(   Читать дальше...   )Жанр: Hardcore, Breakcore, Drum & BassПродолжительность: 01:50:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34AD533C75AB029E6E61F0555C2BC92C7353E5EC
+magnet:?xt=urn:btih:B745603ED5DA2470B79D053F027EBE4A1D26CE2B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -653,25 +441,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502857   (825146) от 16.10.2021
+###  Публикация: 1116186   (824876) от 19.03.2017
 
-Librarian Pro 7 v7.0 [En]
+Direct Message for Instagram Pro 4.1.1 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824876.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение для каталогизации и систематизации различных вещей: книг, журналов, музыкальных, видео и игровых дисков и прочее. Вся создаваемая база сортируется отдельно по каждому типу вещей и содержит множество полей для максимального описания. Поля можно заполнить автоматически, скачивая необходимую информацию из интернета, поскольку программа поддерживает тесную (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.10.2021Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+Отправка и получение прямых сообщений для Instagram с вашего Mac. Первое и единственное приложение для Mac, которые может это сделать!
+
+Примечание: Аккаунт Instagram требуется для использования этого приложения. Если его у вас нет, пожалуйста, зарегистрируйтесь из Instagram приложения на вашем смартфоне.Тип издания: macOS SoftwareРелиз состоялся: 19 марта 2017Разработчик: ThinkTime CreationsПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0EA63C4735F36A2B89733C9177A1347F6D6900F
+magnet:?xt=urn:btih:E59C44254717E6515190CF63FC3FF3B7B54872C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -679,25 +469,240 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502915   (825145) от 16.10.2021
+###  Публикация: 1115473   (824863) от 19.03.2017
 
-Allavsoft Video Downloader Converter 3.23.8.7959 [Multi/Ru]
+DJ Melo - Vocal De Luxe Edition (2007-2016) [MP3|192-320 Kbps] <Vocal Trance>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824863.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Allavsoft Video Downloader Converter поддерживает загрузку фильмов, музыкальных видео, плейлистов, спортивных видео, лекций и многого другого с бесплатного веб-сайта для обмена видео, такого как Facebook, Dailymotion, eHow, и более 100 сайтов для обмена видео.Тип издания: macOS SoftwareРелиз состоялся: 15.10.2021Разработчик: AllavsoftПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Русский, Английский и др.
+1. Vocal De Luxe Edition  (61:33)
+2. Vocal De Luxe Edition 1 (62:18)
+3. Vocal De Luxe Edition 2 (62:44)
+4. Vocal De Luxe Edition 3 (63:55)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 109:05:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:216DA12D3BAC0FD31265B0828D23F8E3ACD1E7CD
+magnet:?xt=urn:btih:E3FCFBE0F224DB1CA3BC42EED3800433B1EA5C6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116202   (824861) от 19.03.2017
+
+Headstrong & Stine Grove - Time (2017) [FLAC|Lossless|tracks] <Trance, Progressive Trance, Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time (Orignal Mix) (08:16)
+02. Time (Allen Watts & Steve Allen) (08:07)
+03. Time (Headstrong Radio Edit) (03:35)
+04. Time (Chillout) (03:29)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting TranceПродолжительность: 00:29:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03AAA4F6271B3F54848E359F95F27B37B921098B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502768   (824855) от 16.10.2021
+
+Screaming Frog SEO Spider 16.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Screaming Frog SEO Spider Tool - программа для проведения подробного SEO анализа любого сайта. С помощью нее вы сможете проверить все внутренние ссылки, исходящие ссылки, метаописания каждой страницы, теги h1-h6 веб ресурса. С помощью Screaming Frog SEO Spider вы без труда обнаружите все ошибки в СЕО оптимизации вашего веб ресурса и сможете их устранить до их появления (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.09.2021Разработчик: Screaming Frog Ltd.Поддерживаемая ОС: macOS 10.7.3+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3AEB7ACA0C891C6758C8822EE589CF7CC61813B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502970   (824853) от 16.10.2021
+
+Internet Download Manager 6.39 Build 3 RePack by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9209D75D6A7EEDE7E21AFC1DA7362608F355DF99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502832   (824852) от 16.10.2021
+
+Spotify 1.1.70.610 Portable by JolyAnderson [En/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клиент для прослушивания музыки на самом популярном стриминговом сервисе.
+Вашему вниманию предоставляется Portable версия клиента Spotify.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D11EDF4963A4E50D77EC5B233F1910098D2045A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502770   (824850) от 16.10.2021
+
+Cockos REAPER 6.37 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cockos Reaper является одной из самых продвинутых программ для создания музыки, как в студии, так и в домашних условиях. Главная «фишка» программы заключается в том, что она имеет паттерновое, клавиатурное и аудио редактирование. Вы можете задавать неограниченное количество аудио или миди треков, не считая того, сколько можно добавить виртуальных инструментов формата (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ABA29A37E0070872CB5EE51FB4DFCAA8C7C542B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502975   (824845) от 16.10.2021
+
+ThunderSoft Video to GIF Converter 3.5.0 (Repack & Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824845.jpg" />
+</div>
+
+
+###  Подробнее
+
+ThunderSoft Video to GIF Converter - удобный инструмент для создания анимированных gif-файлов из видео. Предварительный просмотр видео кадр за кадром, простая обрезка и создание небольших видео-клипов, а также конвертация в gif в высоком качестве позволят создавать отличные клипы. Программа позволяет настраивать скорость воспроизведения gif файла, количество повторных (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A2FC5F291E3F9054F3B16393EC87B7678975D77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502789   (824838) от 16.10.2021
+
+Отряд самоубийц: Миссия навылет / The Suicide Squad (2021) BDRemux [H.264/1080p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отобрав наиболее перспективных заключенных из тюрьмы, в которой содержатся не только самые опасные преступники, но и люди со свехрспособностями, и даже не люди, правительственный агент отправляет их на самоубийственное задание в одну латиноамериканскую страну, где недавно произошел военный переворот. А чтобы те наверняка не сбежали, каждому в голову вживляется взрывное (   Читать дальше...   )Производство: США, Канада, Великобритания /  Atlas Entertainment, DC Comics, DC Entertainment, Safran Company, The, Warner Bros.Жанр: Боевик, фантастика, комедия, фэнтезиРежиссер: Джеймс ГаннАктеры: Идрис Эльба, Марго Робби, Джон Сина, Юэль Киннаман, Даниэла Мелшиор, Питер Капальди, Давид Дастмалчян, Сильвестр Сталлоне, Виола Дэвис, Алиси БрагаПеревод: ДублированныйЯзык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Forced, SDH)Продолжительность: 02:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8688FC728C921480E3AC6E5664FD90C0D4F09F34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 314011   (824837) от 25.03.2011
+
+BurnAware Pro 3.1.6 [Rus/Eng] [Silent Install]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824837.jpg" />
+</div>
+
+
+###  Подробнее
+
+BurnAware предназначена для записи файлов и музыки на диски CD, DVD, Blu-Ray и HD-DVD. Данная утилита имеет небольшой размер и весьма проста в освоении. BurnAware способна взаимодействовать с любыми оптическими дисками (в том числе с CD-R/RW, DVD-R/RW, DVD+R/RW, BD-R/RE, HD-DVD-R/RW и DVD-RAM) и приводами. С помощью BurnAware можно создавать образы и записывать диски с мультисессией. Кроме этого, BurnAware позволяет проводить проверку записанных на диск данных.Язык интерфейса: Rus/Eng
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

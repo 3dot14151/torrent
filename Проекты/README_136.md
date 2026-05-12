@@ -1,3 +1,55 @@
+###  Публикация: 1022829   (727233) от 03.06.2016
+
+Проекты - VideoHive - Blood Whispers - Opening Titles - 3248797 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blood Whispers - Opening Titles - вдохновленный многими фильмами, телевизионными шоу, автор сделал эту кинематографическую анимацию в жанре триллера-ужаса. Кто то найдет этот проект полезным для фильмов, а кто то для игровых роликов.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF0CD3ED8340678B4EDEC6A5205CA38C9924F99B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128584   (727194) от 25.04.2017
+
+Проекты - Motion Elements - Ink Drops Slideshow - 10327831 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ink Drops Slideshow - это потрясающий и элегантный  шаблон АЕ с капельками чернил, который можно использовать для свадебных фильмов, семейных фотоальбомов и многого другого.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:205F517B5BA0BA184C9C4B6B68A6D9219AF54B03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128450   (727188) от 25.04.2017
 
 Проекты - VideoHive - The Circle Mosaic Slideshow [AEP]
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC40744CDC7480F91C833C920F5BB7010FCBCD69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 789767   (725802) от 25.05.2014
-
-Проекты - VideoHive - Happy Birthday - 5968421 [AEP]
-
->>Проекты
->>Детские (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания поздравительного слайд-шоу С Днём Рождения.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0127DF357C78F347CBA2EC0C69C5BAF163980F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128529   (725772) от 26.04.2017
-
-Проекты - VideoHive - Epic Electric Logo Reveal - 19697746 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Epic Electric Logo Revel - удивительный и современный проект, идеально подходящий для демонстрации логотипа или вступительного видеоролика с вашим слоганом. Просто вставьте свой логотип, измените настройки и нажмите кнопку рендера.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:080FF30CA64D9EA787BA6971F6F6632A67E5A04A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,109 @@
-###  Публикация: 1695280   (120427) от 28.01.2024
+###  Публикация: 1823256   (121467) от 11.10.2025
 
-Hyloxalus - Make Me The Heart Of The Black Hole (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal, Symphonic Metal>
+DBF Viewer 2000 8.84 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121467.jpg" />
+</div>
+
+
+###  Подробнее
+
+DBF Viewer 2000® - приложение для просмотра и редактирования DBF всех типов - Clipper, dBase, FoxPro, Visual FoxPro, Visual dBase.
+
+Программа выполняет различные действия: запросы, удаление дубликатов или экспорт в различные форматы - быстрее чем вы ожидаете!
+(   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE40F8ADB71FE4FFE7F643E1AAE07E33C712A782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693833   (121466) от 22.01.2024
+
+VA - Lounge O'Clock, Vol. 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lemongrass,Suzy Duffy - Lucky (4:05)
+02. Glam Sam & His Combo - Yeah, It's Good (4:00)
+03. Michiko - Pieces Of Your Heart (3:38)
+04. Yin & Yang,Tiefblau - Golden Sun (4:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3497B273E9548EDB53DCD561E8F9C3A93736E07F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823260   (121465) от 11.10.2025
+
+Александр Сухов | ТехникСан (Книга 3). Зов крови (2025) [MP3, Михаил Трофимов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения Василия Петровича Лисина ТехникСана,нынче Лиса Терранина в мирах Галактического Содружества продолжаются.Перед ним все та же благородная цель вернуться на Землю и помочь её обитателям покинуть «колыбель» цивилизации. Однако его планам постоянно мешают разного рода непредвиденные обстоятельства.Теперь его путь в магическую Академию. Уж там-то он непременно (   Читать дальше...   )Жанр: фантастика, попаданцыИздательство: ЛитРесПродолжительность: 12:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FABAF79FAF6665EA1C9AB4E9E8A7086FD570BA9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693784   (121464) от 22.01.2024
+
+KJ Dale - Plays songs from Pioneers - End of time album (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121464.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - He Dies In The Swamp (00:03:44)
-02 - Dream Chasm (00:06:18)
-03 - Beyond The Soil (00:05:46)
-04 - Undead In Ward 6 (00:06:31)(   Читать дальше...   )Жанр: Power Metal, Symphonic MetalПродолжительность: 00:34:56
+01. Be a pioneer (5:01)
+02. Walk in the moonlight (4:36)
+03. Annie (3:56)
+04. This is high (4:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F875DDB3E2D1F60EC08600CAC9CF683B095BD452
+magnet:?xt=urn:btih:AE9EA658EF06DE0987DC9A267266918A5ABB1F47
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,26 +111,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695315   (120426) от 28.01.2024
+###  Публикация: 1823257   (121463) от 11.10.2025
 
-Право на жизнь / Das Recht auf Dasein (1913) WEBRip [H.264/720p-LQ]
+1С Учебный центр №1, Павел Белоусов | Конфигурирование платформы "1С:Предприятие 8.3" (2024) WEBRip [RU]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121463.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бывшего осужденного считают виновным в том, что он напал на женщину, хотя на самом деле он пытался ей помочь. Но кто ж ему поверит - ведь он уже был судим. С невероятным экстримом ему удалось уйти от погони. Но у судьбы свои планы на его счет. И на его, якобы, жертву...
-Криминальный экшэн столетней давности.Производство: Германия, Eiko Film GmbHЖанр: короткометражный, драма, криминал, немое киноРежиссер: Йозеф ДельмонтАктеры: Йозеф Дельмонт, Фред ЗауэрПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:42:35
+Отличительная особенность курса: подробное обсуждение механизмов платформы, знание которых и умение их использовать необходимы для успешной сдачи экзамена 1С:Специалист по платформе «1С:Предприятие 8». Работа с механизмами платформы демонстрируется на примере решения учебной задачи, аналогичной экзаменационным заданиям. Решение построено с использованием нового пользовательского (   Читать дальше...   )Производство: 1С Учебный центр №1Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 32:08:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BEA748A2C9630DC3014B0743CC206E3F2F3F2E06
+magnet:?xt=urn:btih:3CA60E59A96568E567D5DE296E10129887E053E0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,28 +137,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695120   (120425) от 28.01.2024
+###  Публикация: 1693795   (121462) от 22.01.2024
 
-Bobby Darin - Commitment (1969) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk-Rock, Country Funk>
+Елена Новосёлова | Лекция «Чего я хочу?» (2023) [MP3, Елена Новосёлова]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121462.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Me & Mr. Hohner
-02. Sugar Man
-03. Sausalito (The Governors Song)
-04. Song for a Dollar(   Читать дальше...   )Жанр: Folk-Rock, Country FunkПродолжительность: 00:42:45
+До определённого возраста за нас многое решает общество и его традиционные запросы: обучение в школе и в вузе, первая работа, карьера, семья – по накатанной, как говорится. Но в один прекрасный день вдруг приходит понимание: всё, дальше оно не может продолжаться. В силу личного кризиса или внешних обстоятельств – причины могут быть любыми. И жизнь встаёт на паузу, (   Читать дальше...   )Жанр: семейная психологияИздательство: Лекторий «Прямая Речь»Продолжительность: 01:23:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5EF96CAFD8B701CFDFCB6647B03C033D1AE5DE14
+magnet:?xt=urn:btih:FB08AAA5A608D40E25B739A1530944C68304E2B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -83,28 +163,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695261   (120424) от 28.01.2024
+###  Публикация: 1693769   (121461) от 22.01.2024
 
-Grey Wolf - Glorious Death (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
+Людмила Петрановская | Всё-всё-всё о воспитании детей (2020) [MP3, Ксения Бржезовская]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121461.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wrath of the Gods
-02. The Eyes of the Medusa
-03. Glorious Death
-04. Metal Avenger(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:07
+Людмила Петрановская – известный психолог, лауреат премии президента РФ в области образования, автор бестселлеров «Что делать если…» и «Что делать если…2». Благодаря своей практической значимости книги Людмилы Петрановской стали абсолютными хитами среди научно-популярной литературы по воспитанию детей.
+Эту аудиокнигу стоит прослушать всем родителям. И тем, кого заботит (   Читать дальше...   )Жанр: Детская психологияИздательство: Аудиокнига АСТПродолжительность: 15:49:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:14E01C7ED6D828636373A2815224F7F85E26F9EF
+magnet:?xt=urn:btih:652173381B8A3A937D537E243DF58D941F2B11D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -112,28 +190,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695241   (120423) от 28.01.2024
+###  Публикация: 1823273   (121460) от 11.10.2025
 
-Mago De Oz - Alicia En El Metalverso (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Celtic-Folk-Power Metal, Hard Rock>
+Ant Download Manager 2.16.0 Build 91579 [Multi/Ru]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121460.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alicia en el metalverso (12:01)
-02. El sombrerero loco (4:31)
-03. El metalverso (4:56)
-04. Seremos huracán (4:57)(   Читать дальше...   )Жанр: Celtic-Folk-Power Metal, Hard RockПродолжительность: 00:55:57
+Ant Download Manager (AntDM) - это инструмент, позволяющий многократно увеличить скорость скачивания файлов за счет нескольких потоков загрузки, возобновления, планирования, захвата аудио и видео потоков. Автоматически обрабатывает ошибки, восстанавливается после временных сетевых ошибок, переподключается в случае задержки ответа сервера, имеет возможность возобновить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7246EDC2B6D41AB58C4E0DA18C6C53BE3F465D8
+magnet:?xt=urn:btih:6E880F7416B360387C6B34EF47D72DCFCD6E99BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -141,82 +216,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695310   (120422) от 28.01.2024
+###  Публикация: 1693856   (121459) от 22.01.2024
 
-Krooked Step - As the Crow Flies (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120422.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cricket Licker 00:03:42
-2. Loonatic 00:04:33
-3. As The Crow Flies 00:07:16
-4. RAT 00:04:05(   Читать дальше...   )Жанр: Stoner Metal, Stoner RockПродолжительность: 00:30:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B598E7DD0F91DB8304BFCA086C2E7594BA1AEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695213   (120421) от 28.01.2024
-
-Мир в моем углу / World in My Corner (1956) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перспективный амбициозный боксер Томми Ше должен выбрать между зарабатыванием нечестных денег с нечестным промоутером Гарри Крамом или честным завоеванием титула, как советует его менеджер Дэйв Бернстайн.Производство: США / Universal International Pictures (UI)Жанр: фильм-нуар, драма, спортРежиссер: Джесси ХиббсАктеры: Оди Мерфи, Барбара Раш, Джефф Морроу, Джон МакИнтайр, Томми Ралл, Ховард Ст. Джон, Чико Виджер, Стефен Эллис, Арт Арагон, Дэни КрейнПеревод: Авторский (Алексей Багичев)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:22:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FC76379E43123042FC6754F531839EEE73DEE82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695284   (120420) от 28.01.2024
-
-Александр Лукин | Естествознание. Как мы устроены (2018) [MP3, Владимир Левашёв и др.]
+Оксана Онисимова | Золотая коллекция сказок. Зимние приключения Волчонка Вовы и Зайчонка Васи (2011) [MP3, Сергей Бурлаков и др.]
 
 >>Аудио для детей и родителей
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121459.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издательство «АРДИС» представляет уникальную коллекцию аудиоспектаклей для детей. Легко, будто играя, дети погрузятся в яркий и увлекательный мир знаний. А помогут им в этом знаменитые артисты, принявшие участие в записи спектаклей.
-
-Двое героев – Маша и Петя, сопровождаемые добрым знакомым – профессором Владимиром Сергеевичем, раз за разом отправляются в захватывающие (   Читать дальше...   )Жанр: аудиоспектакли, учебная литература, энциклопедииЯзык озвучки: русскийИздательство: АРДИСПродолжительность: 01:06:08
+Серия/Цикл: Золотая коллекция сказок.
+Оксана Онисимова написала сказки «Приключения Волчонка Вовы и Зайчонка Васи», «Мальчик-сон» и «Сказка про львёнка», «Приключения дикобразиков»  и многие другие.
+Аудиосказка Оксаны Анисимовой «Зимние приключения волчонка Вовы и зайчонка Васи» передает весёлую, увлекательную, удивительную и захватывающую историю волчонка и его друзей (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: ТВИК, Детское радио, Радиотеатр «Цветной»Продолжительность: 01:01:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6FA866743DACABCBB5665DA7F8BD78FB703BB57
+magnet:?xt=urn:btih:CEC5F8EDEDEFEB2F95CF693ED8C9579CADBAB2E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,54 +244,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695344   (120419) от 28.01.2024
+###  Публикация: 1693739   (121458) от 22.01.2024
 
-Rene Huard Project - Blues Calling (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard Times (2:58)
-02. Child's Play (4:15)
-03. Blues Calling (4:15)
-04. Demolition Man (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A58436A237F9D3A4DF4494EFE184C6226172B8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695304   (120418) от 28.01.2024
-
-Navicat for SQL Server on Mac 16.3.5 [Multi/Ru]
+Smooze Pro 2.0.61 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121458.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Navicat для SQL Server предоставляет вам полностью графический подход к управлению и разработке баз данных. Быстро и легко создавайте, редактируйте и удаляйте все объекты базы данных или выполняйте SQL-запросы и сценарии. Подключайтесь к любому локальному или удаленному SQL-серверу и совместимо с облачными базами данных, такими как Amazon RDS и Microsoft Azure.Тип издания: macOS SoftwareРелиз состоялся: 09.01.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+Smooze одушевляет ваш скролл и добавляет функциональность к вашей не оригинальной Apple мыши (прокрутки колеса мыши).Тип издания: macOS SoftwareРелиз состоялся: 21.01.2024Разработчик: © 2024 Segev SherryПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6897DE7AE95D7CEAF91F9E35161A672A27EDFF9A
+magnet:?xt=urn:btih:7FFB4D9453EC5DBBFB15452B9BD68320E20C59FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -279,286 +270,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695256   (120417) от 28.01.2024
+###  Публикация: 1693791   (121457) от 22.01.2024
 
-Rage Of Light - Studio Albums (4 releases) (2016-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Electronic/Melodic Death/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rage Of Light - Melodic Death/Trance метал-группа из Швейцарии.2016 - Chasing A Reflection (EP)
-2019 - Imploder
-2021 - Redemption
-2023 - Opaque (EP)Жанр: Electronic/Melodic Death/Groove MetalПродолжительность: 02:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:446E0DEBBC6D8173825DAB3B75670C59F6803B3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695361   (120416) от 28.01.2024
-
-Hanne Boel - Norwegian Recordings (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Pop>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Standing on the Edge of Love [00:04:08]
-02. Between Dark and Daylight [00:04:21]
-03. Killing Me Softly With His Song [00:06:06]
-04. Don't Look Down [00:06:06](   Читать дальше...   )Жанр: Blues, PopПродолжительность: 00:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE589686E149A9CC97FAE06C4FF9EA4BFBA933B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695336   (120415) от 28.01.2024
-
-Jim Capaldi - The Outside Years (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Disc 1 - Living On the Outside
-Disc 2 - Poor Boy Blue
-Disc 3 - Live Recordings 1993 – 2001(   Читать дальше...   )Жанр: RockПродолжительность: 4CD, 04:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C348D378C0C73E0E8C8531057B9991EC84C63C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695265   (120414) от 28.01.2024
-
-Grey Wolf - The Icy Mountains (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Storm Foreshadows the Battle
-02 - Thunder and Rain
-03 - The Icy Mountains
-04 - They Rule the Night(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA4570D5F82925506475B9FB7CD29B13014AEAFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695298   (120413) от 28.01.2024
-
-Navicat for MongoDB on Mac 16.3.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat для MongoDB предоставляет вам высокоэффективный графический интерфейс для управления, администрирования и разработки баз данных MongoDB. Подключайтесь к локальным/удаленным серверам MongoDB и совместим с MongoDB Atlas. Navicat для MongoDB предлагает замечательные функции для управления, мониторинга, запроса и визуализации ваших данных. Вы можете легко повысить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.01.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09426E03CD4EC641E92B791CDE5AE3C238EE6071
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695195   (120412) от 28.01.2024
-
-JD Allen - Toys / Die Dreaming (2020) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Thrill [9:33]
-02. The G Thing [6:41]
-03. Die Dreaming [5:58]
-04. Red Label [6:30](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D5AFD95C59CA64D80C6735B8E0409404AE4374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695216   (120411) от 28.01.2024
-
-Greengoat - A.I. (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120411.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Void 02:23
-2. The Seed 07:06
-3. A.I. 05:30
-4. Human 05:05(   Читать дальше...   )Жанр: Stoner Rock, Stoner MetalПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:914F8C0E28330B2FB5B0B11B99E133768EEA27A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695187   (120410) от 28.01.2024
-
-Mel Torme & Carmen McRae - Ralph J Gleason's Jazz Casual (1962, 1964) 2001, Koch Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We've Got a World That Swings [2:10]
-02. Interview [7:24]
-03. Comin' Home Baby [2:31]
-04. Mel Speaks [1:20](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62A1C218FC83FEE3C881EE7DC459984C9F8EF5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695178   (120409) от 28.01.2024
-
-Mel Torme - Two Darn Hot (1990) 2CD, 2002, Concord Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine on Your Shoes [3:19]
-02. Looking at You/Look at That Face [4:34]
-03. A Nightingale Sang in Berkeley Square [4:46]
-04. Wave [5:46](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E3B79F5F9EA3AA426CF90BD9F2A9FFA4DBCC60D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695244   (120408) от 28.01.2024
-
-Vipassi - Lightless (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Extreme Progressive Metal>
+Suncity Blues - Blues on my mind (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121457.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lightless (5:07)
-02. Labyrinthine Hex (7:11)
-03. Morningstar (6:57)
-04. Shapshu (4:22)(   Читать дальше...   )Жанр: Extreme Progressive MetalПродолжительность: 00:50:07
+01. Doghouse daddy (3:34)
+02. Blues on my mind (3:13)
+03. She left me this morning (3:03)
+04. Long and winding road (4:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:320DF0D9E9A8AC6DB00477154B30EA1F85E44C8B
+magnet:?xt=urn:btih:1D484C7CE0FF4AB036C315608FD0F9EAFB895EA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -566,25 +299,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695296   (120407) от 28.01.2024
+###  Публикация: 1823265   (121456) от 11.10.2025
 
-Navicat for PostgreSQL on Mac 16.3.5 [Multi/Ru]
+Девушка из каюты №10 / The Woman in Cabin 10 (2025) WEB-DLRip [H.264] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Успешная журналистка Лора Блэклок для работы над новой статьёй отправляется в плавание на роскошной яхте вместе с группой влиятельных людей. Однажды ночью она слышит шум и крики, которые раздаются из соседней каюты. Лора выглядывает наружу и успевает увидеть, как за борт выбрасывают тело. Журналистка сообщает о произошедшем, но команда и другие пассажиры не верят (   Читать дальше...   )Производство: США, Великобритания | CBS Films, Gotham Group, The, Sister PicturesЖанр: триллер, драма, детективРежиссер: Саймон СтоунАктеры: Кира Найтли, Ханна Уэддингхэм, Гай Пирс, Кая Скоделарио, Гугу Мбата-Роу, Дэвид Моррисси, Пол Кэй, Дэниэл Ингс, Арт МаликПеревод: Многоголосый профессиональный (заКАДРЫ)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E68EBC3EDCA8E83DA08DCD25061F34F615BDF3EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693740   (121455) от 22.01.2024
+
+Stats 2.9.21 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121455.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Navicat для PostgreSQL — это мощный, но простой в использовании графический интерфейс PostgreSQL, предоставляющий обширные функциональные возможности для управления базой данных PostgreSQL и ее разработки. Расширенные функции позволяют создавать модели баз данных, импортировать/экспортировать данные, выполнять резервное копирование, передавать базы данных, создавать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.01.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+Stats - это приложение с открытым исходным кодом, предназначенное для помощи в отслеживании температуры, напряжения, энергопотребления, уровня заряда батареи, а также общего использования ресурсов из строки меню. Оно полностью настраиваемое, ненавязчивое и довольно простое в использовании.Тип издания: macOS SoftwareРелиз состоялся: 21.01.2024Разработчик: © 2023 Serhiy MytrovtsiyПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7767B8161385AED810F423767792AB4C31362C54
+magnet:?xt=urn:btih:05D6EF6DFBFCBE9EB0891406B1213803FA9B8400
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -592,28 +351,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695107   (120406) от 28.01.2024
+###  Публикация: 1823272   (121454) от 11.10.2025
 
-Fionn Legacy - Rise of the Windlord (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+Девушка из каюты №10 / The Woman in Cabin 10 (2025) WEB-DLRip [AV1/1080p] [HDR, 10-bit] [MVO]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121454.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Departure (01:43)
-02 - Majestic Return (04:15)
-03 - Distant Lands (04:36)
-04 - Farewell (04:39)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:43:31
+Успешная журналистка Лора Блэклок для работы над новой статьёй отправляется в плавание на роскошной яхте вместе с группой влиятельных людей. Однажды ночью она слышит шум и крики, которые раздаются из соседней каюты. Лора выглядывает наружу и успевает увидеть, как за борт выбрасывают тело. Журналистка сообщает о произошедшем, но команда и другие пассажиры не верят (   Читать дальше...   )Производство: США, Великобритания | CBS Films, Gotham Group, The, Sister PicturesЖанр: триллер, драма, детективРежиссер: Саймон СтоунАктеры: Кира Найтли, Ханна Уэддингхэм, Гай Пирс, Кая Скоделарио, Гугу Мбата-Роу, Дэвид Моррисси, Пол Кэй, Дэниэл Ингс, Арт МаликПеревод: Многоголосый профессиональный (заКАДРЫ)Язык озвучки: Русский, английскийСубтитры: Русские (Full), английские (Full, SDH)Продолжительность: 01:35:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:448333CB661AFBE130096CC572AE9BBD51628D9A
+magnet:?xt=urn:btih:D1A22E733921DDD0BAA4F40F567F2C89CFC392DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -621,28 +377,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695337   (120405) от 28.01.2024
+###  Публикация: 1693902   (121453) от 22.01.2024
 
-Davide Pannozzo - Room for Joy (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+djay - DJ App & AI Mixer 5.0.4 [En]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121453.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Plug It In (4:02)
-02. Keep on Loving You (Extended Version) (6:00)
-03. Without You, Once Again (5:50)
-04. Love Is a Simple Thing (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:20
+djay Pro обеспечивает полный инструментарий для профессиональной деятельности ди-джеев. Его уникальный современный интерфейс создан вокруг сложной интеграции с iTunes и Spotify, предоставив Вам мгновенный доступ к миллионам дорожек. Нетронутое качество звука и мощный набор функций включая формы волны высокой четкости, четыре деки, звуковые эффекты и аппаратную интеграцию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.01.2024Разработчик: © 2024 algoriddim GmbHПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D36ED55C7AF997343817EDB6026F30AF55758791
+magnet:?xt=urn:btih:C97D2DFB4CDE7AAB19BD167671BD99B7E77BADDD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -650,28 +403,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695318   (120404) от 28.01.2024
+###  Публикация: 1563510   (121451) от 11.10.2025
 
-Alice Babs - The Unforgettable Songbird (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+Утиные Истории / DuckTales (1987-1990) DVDRemux (Сезоны 1-3, серии 1-100 из 100)
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Мультфильмы
+>>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121451.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Undecided
-02. Hallelujah
-03. The Boy in My Dreams
-04. Visiteur étrange(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:37:09
+«Утиные истории» — популярный классический мультсериал Disney. Главные герои сериала — Скрудж МакДак и его племянники, Билли, Вилли и Дилли. Скрудж – самый богатый селезень в мире, что, однако, не мешает ему быть невероятно скупым. Он объясняет свой успех тем, что был умнее самых умных и упорнее самых упорных. Однако, несмотря на жёсткую деловую «хватку» и скупость, (   Читать дальше...   )Производство: США, Walt Disney Television AnimationЖанр: мультфильм, комедия, детский, приключения, семейныйРежиссер: Дэвид БлокПеревод: Дублированный:
+серии 001-052 - дубляж ЦТ-1 1991 года;
+серии 053-078 - дубляж 1 канала Останкино 1992 года;
+серии 079-091 - дубляж РТР 1994 года;(   Читать дальше...   )Субтитры: русские, английскиеПродолжительность: ~00:23:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D254BBFF99C9E0BA718B8496FAF3C01C02010A2
+magnet:?xt=urn:btih:F9E3EDCDF32E8D9E439413621BB6E8CEF578A7D3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -679,28 +432,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695342   (120403) от 28.01.2024
+###  Публикация: 1693851   (121450) от 22.01.2024
 
-Mike Goudreau Band - Just Wanna Have Fun (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Polarnik - Протокол (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Black, Doom, Death Metal>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121450.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Don't Want to Go to Work (3:52)
-02. Mr. Foolish (3:35)
-03. How Can I Change Your Mind (3:51)
-04. She Found Me (3:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:05
+01 - Волчок (00:04:38)
+02 - Змей (00:04:47)
+03 - Ледокол (00:04:10)
+04 - Серп (00:04:21)(   Читать дальше...   )Жанр: Post-Black, Doom, Death MetalПродолжительность: 00:41:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1020DFCC54EA6209A4AE2EE47A29BAFCA5D2E6F
+magnet:?xt=urn:btih:4E2FA9704429E7A04CA91E5A83C326EFE6814AC5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -708,28 +461,246 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695326   (120402) от 28.01.2024
+###  Публикация: 1823189   (121449) от 11.10.2025
 
-Eve's Bite - Blessed in Hell (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+Легенда о рыцаре / El Cid: La leyenda / El Cid: The Legend (2003) WEBRip [H.265/720p] [10-bit]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121449.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fire, Fire, Disaster (05:34)
-02. She's Got More Balls Than You (04:34)
-03. The Fighter (06:16)
-04. Feel The Heat (04:28)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:00:59
+Сын кастильского дворянина Родриго – идеальный кандидат на роль героя. Он смелый, сильный, с хорошим чувством юмора, любимец придворных дам королевского двора. Дружба с наследником престола гарантирует Родриго блестящее будущее.
+Только одно обстоятельство омрачает его дни при дворе. Отец возлюбленной Родриго, герцог Гормаз, считает, что его дочь – прекрасная Гимена, (   Читать дальше...   )Производство: Испания / Castelao Producciones S.A.Жанр: мультфильм, фэнтези, мелодрама, приключения, семейный, биографияРежиссер: Хосе ПосоАктеры: Манель Фуэнтес, Наталия Вербеке, Лолес Леон, Санчо Грасия, Карлос Латре, Мигель Анхель Родригес «Эль Севилья», Sergio Zamora, Мануэль Гарсиа, Эдуард Фарело, Арсенио КорсельясПеревод: Дублированный, Авторский (Андрей Дольский)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:20:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A654B3D9464ACEB312FD64DEE4EF91C5333E39A4
+magnet:?xt=urn:btih:A6C7AE146FC135A800C3F436B24C55557B0A8FB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693781   (121448) от 22.01.2024
+
+Fumo - Entropy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hunter (5:19)
+02. Breed (5:50)
+03. Ji (3:46)
+04. Gently Walking the Himalayas (4:39)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8A45E3F4223AF08B104669A813D7682EE852D31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823286   (121447) от 11.10.2025
+
+Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack Other s [Enhanced Edition]
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя (заново) мрачный сказочный мир Little Nightmares с поддержкой 60 кадров в секунду и разрешением 4K. Little Nightmares Enhanced Edition позволяет увеличить число кадров в секунду или повысить качество изображения. В игре появятся улучшенные визуальные эффекты, включая трассировку лучей, объёмные лучи, эффекты воды и увеличенное количество частиц. (   Читать дальше...   )Тип издания: RepackРазработчик: Engine Software BVЖанр: Приключенческие игрыЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:642BAED8AB4B7633EA14F68C3D596898315E8089
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693777   (121445) от 22.01.2024
+
+Denny Newman - Reach Out - Music For Ruth Cape (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Wheels (4:31)
+02. Runaway Train (5:42)
+03. The Letter (Telegram to Monica) (5:38)
+04. Reach Out (6:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3AD4C8ADF4CF00B30DDBB5B6B9754A0A60E5AB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823287   (121444) от 11.10.2025
+
+Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack seleZen [Enhanced Edition]
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя (заново) мрачный сказочный мир Little Nightmares с поддержкой 60 кадров в секунду и разрешением 4K. Little Nightmares Enhanced Edition позволяет увеличить число кадров в секунду или повысить качество изображения. В игре появятся улучшенные визуальные эффекты, включая трассировку лучей, объёмные лучи, эффекты воды и увеличенное количество частиц. (   Читать дальше...   )Тип издания: RepackРазработчик: Engine Software BVЖанр: Приключенческие игрыЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4460506B637B0ED50DF88E3BC4C59A1A51FC39CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823289   (121443) от 11.10.2025
+
+Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack FitGirl [Enhanced Edition]
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя (заново) мрачный сказочный мир Little Nightmares с поддержкой 60 кадров в секунду и разрешением 4K. Little Nightmares Enhanced Edition позволяет увеличить число кадров в секунду или повысить качество изображения. В игре появятся улучшенные визуальные эффекты, включая трассировку лучей, объёмные лучи, эффекты воды и увеличенное количество частиц. (   Читать дальше...   )Тип издания: RepackРазработчик: Engine Software BVЖанр: Приключенческие игрыЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C25B1FA0711AC3D56A126A6F485720BD3F46CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693787   (121442) от 22.01.2024
+
+Michael Messer & Chaz Jankel - Mostly We Drive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runaway Train (4:22)
+02. Slow Down Billy (4:05)
+03. Mostly We Drive (5:23)
+04. It Doesn't Matter (4:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBBE6DBC54F3DE12E387FCFEFBFEAF6B4D51A761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823291   (121441) от 11.10.2025
+
+Little Nightmares III (3) (2025) [Ru/Multi] (Build 20188271) Scene Rune
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Little Nightmares III - это новая часть серии, представляющая двух новых играбельных персонажей, Low и Alone, которые пытаются спастись из кошмарного мира Нигде. Игроки, управляя героями, должны объединиться и использовать свои уникальные инструменты - чтобы решать головоломки, преодолевать препятствия и противостоять врагам в этом мрачном мире. Игра продолжает традицию (   Читать дальше...   )Тип издания: SceneРазработчик: Supermassive GamesЖанр: Приключенческие игрыЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B297B8C0C1DEE3FD5F829BDCB2D59DAB43FBE8B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693854   (121440) от 22.01.2024
+
+Lazarus Dream - Lifeline (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dead End Symphony (00:06:26)
+02 - Don't Look Down (00:04:45)
+03 - Mind Like A Windmill (00:04:51)
+04 - Freedoom (00:05:21)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C07E85A422C89CD70D5DEDF451A7402C4E65CCE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

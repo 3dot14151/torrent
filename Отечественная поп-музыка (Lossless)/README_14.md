@@ -1,3 +1,61 @@
+###  Публикация: 1319264   (486691) от 10.08.2019
+
+VA - XXXL 13 Праздничный (2005) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вовочка - Копейка [3:20]
+02. Чё те надо? - Катюша [2:51]
+03. Надежда Бабкина и анс. Русская Песня - Чудный месяц [4:21]
+04. гр. Подруги - Вот кто-то с горочки спустился [2:41](   Читать дальше...   )Жанр: PopПродолжительность: 01:18:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63809F711FAC92637D5BDF7C4C3AC20A14BB5A75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319302   (486583) от 10.08.2019
+
+ohdrina - 8 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, R'n'B, Soul, Downtempo>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lubi menia szadi (4:00)
+ 02. Sex Cigarettes (4:52)
+ 03. Nas bolshe net (3:30)
+ 04. Uhodi (4:15)(   Читать дальше...   )Жанр: Pop, R'n'B, Soul, DowntempoПродолжительность: 00:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45F6A73C1336B4FFE83D66EFBBB2F2E4D1D65BC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 384025   (484768) от 05.09.2011
 
 Балаган Лимитед - Welcome to Russia (2006) [FLAC|Lossless]<Pop>
@@ -702,64 +760,6 @@ Reflex (Ирина Нельсон) - The Very Best Of (2015) [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F90E24E06FE7B3C802E18A8095B69C2CE3923C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251183   (420088) от 30.09.2018
-
-Екатерина Семёнова - Имена на все времена (2001) [FLAC|Lossless|image + .cue]<Рор>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чудес не бывает
-02. Школьница
-03. Я выросла
-04. Стой!(   Читать дальше...   )Жанр: РорПродолжительность: 01:12:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D49F88F90FBEAABD63234BFA3B1DC4E1EACDAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066564   (412087) от 26.10.2016
-
-Наталья Гончарова - Я не блудница (1996) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Второй попытки нет в любви (03:17)
-02 - Прости за моё неверие (03:46)
-03 - Я не блудница (03:10)
-04 - Не судьба (03:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12032E7926376E7675DFF4EB494B858C50232FA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

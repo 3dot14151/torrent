@@ -1,22 +1,51 @@
-###  Публикация: 895603   (698843) от 06.05.2015
+###  Публикация: 1026947   (699833) от 17.06.2016
 
-DjVuLibre DjView 4.10.1 RePack (& Portable) by Trovel [Multi/Ru]
+Беглецы от времени / Siganitalja (2016) HDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двое мужчин из разных времён начинают видеть друг друга в своих снах. Школьный учитель из 1983 года встречается со своей любимой. Полицейский из 2015 года знакомится с девушкой — точной копией возлюбленной учителя. Мужчины видят в своих снах повседневную жизнь и окружение друг друга. В одном из снов, девушка становится жертвой убийства…Производство: Южная Корея, Sangsang FilmЖанр: Фэнтези, Триллер, МелодрамаРежиссер: Квак Чэ-ёнАктеры: Им Су-джон, Чо Джон-сок, Ли Джин-укПеревод: Двуголосый закадровый, любительский (den904 & DeadSno)Продолжительность: 01:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D1B19B59704AA973DBDABE2AEB31780A84B680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402516   (699832) от 15.08.2020
+
+Disk Xray 2.7.3 [Multi]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699832.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа DjVuLibre DjView представляет собой свободное программное обеспечение и предназначена для просмотра, конвертирования, распространения документов и изображений в формате DjVu. Загрузка приложения DjVu происходит намного быстрее, чем у других подобных программ такого рода. Изображения в DjVuLibre могут изменяться - как в масштабе, так и возможно графическое изменение содержимого. DjVuLibre - включает в себя средства просмотра, дополнения к программе-браузеру. DjVu включает в себя несколько технологий (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+Disk Xray - утилита для просмотра статистки о жестком диске, поиска дубликатов файлов и содержит в себе инструменты для очистки.
+
+Folder scanner - визуально анализирует диск / папку и позволяет определить большие файлы и папки на жестком диске (дисках).
+• Сканирование любого из ваших дисков (локальный, удаленный, сетевые или портативные), или просто папку.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Naraak StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C00A42F591F0A1557FFCCF854FE6629E571196FE
+magnet:?xt=urn:btih:C1E93793E5B14F406AB40F4DEBFE7377800B89F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,171 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 895457   (698838) от 06.05.2015
+###  Публикация: 1402546   (699831) от 15.08.2020
 
-Re-Loader 1.3 RC 5 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Re-Loader Activator - ещё один автоматический активатор Windows XP/7/8/8.1/10TP и Office 2010/2013/2015.
-Есть возможность изменения ОЕМ информации в свойствах системы..Язык интерфейса: Мульти/Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B736182A30AE60A00FAEABBCFDF1438202E2BE72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220828   (698810) от 22.04.2018
-
-Martial Solal - At Newport '63 (2016) Sony Music [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poinciana [04:34]
-02. Clouds [03:06]
-03. Suite Pour Une Frise [11:56]
-04. Stella By Starlight [04:21](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A961D30259745987C4732FE23D5A0FB181A5F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221056   (698809) от 22.04.2018
-
-Oscar Pettiford Sextet (1954) 2016, Sony Music [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burt's Pad [09:47]
-02. Marcel The Furrier [06:01]
-03. Ondine [03:10]
-04. Stardust [05:11](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F45EBC89606A5228F6D164D39876F77767F64A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221059   (698808) от 22.04.2018
-
-Curtis Fuller Jazztet with Benny Golson (1959) 1991, Savoy Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's All Right With Me [07:39]
-02. Wheatleith Hall [14:06]
-03. I'll Walk Alone [06:57]
-04. Arabia [06:36](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7FEC85F9F1D62E4D1162D73A40D0CFC3E38F52D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220985   (698807) от 22.04.2018
-
-VA - Artworx Vol.1. (Mixed by Nicholson) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Yorrin – Nebula (Original Mix)
-02. Melvin Sheppard – Telekinetic (Original Mix)
-03. Nicholson – Perfect Storm (Original Mix)
-04. Nicholson feat. Niki Mak – To The Flame (Charlotte’s Theme) (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D2F315F7FF4E9BC4683FFA06AF88781E74DD6F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221087   (698806) от 22.04.2018
-
-VA - Spring Essentials: April House (2018) [MP3|320 Kbps] <House, Electro>
+VA - The Official UK Top 40 Singles Chart 14.08.2020 [MP3|320 Kbps] <Pop, Dance, Other>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699831.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Patrick Topping - Be Sharp Say Nowt (Original Mix)
-002. Shashaf - Monkey Fun (Original Mix)
-003. KDA & Patrick Cash - Hate Me (Original Mix)
-004. Bicep - Metro (Original Mix)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 10:47:48
+01. Joel Corry - Head & Heart (feat. MNEK)
+02. Jawsh 685 - Savage Love (Laxed - Siren Beat)
+03. Nathan Dawe - Lighter (feat. KSI)
+04. Cardi B - WAP (feat. Megan Thee Stallion) (New Entry)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:10:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7F8FFB6966C4A6C6C4ED4F7E7F3D70898DD5378
+magnet:?xt=urn:btih:707011803C1E8C8484F46FF8269DFCDDA54889D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -196,28 +82,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221035   (698805) от 22.04.2018
+###  Публикация: 1402551   (699830) от 15.08.2020
 
-Хоккей. Евро хоккей тур 2017-2018. Чешские игры 2018. Финляндия – Чехия (19.04.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+iVI Video Converter 4 v4.726 [Multi]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699830.jpg" />
 </div>
 
 
 ###  Подробнее
 
-19 апреля 2018 года, четверг. 20:00 МСК
-Еврохоккейтур 2017-2018. Чешские игры 2018
-Финляндия – Чехия
-Стадион: Типспорт-Арена (Пардубице, Чехия), 6212 зрителей (61 % при вместимости 10194)(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:55:08
+iVI - это видео конвертер с самым высоким рейтингом американского Mac App Store.
+iVI способна конвертировать и импортировать видео в iTunes и iMovie методом drag and drop. iVI идентифицирует ТВ шоу и фильмы и автоматически добавит метадату: постеры, детали эпизодов, списки актеров и т. п. iVI конвертирует видео для проигрывания на Mac, AppleTV (1-3), iPad, iPhone (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.03.2020Разработчик: Southpole SoftwareПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Французский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13188C3777993C4E44B6F497D02A9CA0879441F7
+magnet:?xt=urn:btih:7FBFD895934DB058B5D15EE5024803F9B6C17E8F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -225,310 +109,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220514   (698804) от 22.04.2018
+###  Публикация: 1402633   (699829) от 15.08.2020
 
-Eddie South - 1937 - 1941 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
+Юлия Ляпина | Смерть за левым плечом (2020) [MP3]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699829.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fiddle Blues [02:47]
-02. Interpretation Swing Du Premier Mouvement Du Concerto En Re Mineur De Jean-Sebastien Bach - Part 2 [03:23]
-03. Honeysuckle Rose [03:06]
-04. On The Sunny Side Of The Street [03:03](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D5CA6691E541BA5D9B345957C7E8EE6960D480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220991   (698803) от 22.04.2018
-
-Danielle Bradbery (Даниэль Брэдбери) - The Voice: The Complete Season 4 Collection (2013) Universal Motown Records Group [MP3|256 Kbps] <Pop, Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даниэль Брэдбери - американская кантри-певица, ставшая победительницей четвертого сезона шоу «Голос» и успевшая порадовать слушателей одноименным дебютным альбомом «Danielle Bradbery» в ноябре 2013 года, перепела один из главных хитов Адель, «Set Fire to the Rain» (2011). Дебютным синглом юной исполнительницы после победы в «Голосе» стала композиция «The Heart Of (   Читать дальше...   )01. Mean 3:31
-02. Put Your Records On 3:37
-03. Jesus, Take the Wheel 3:25
-04. Maybe It Was Memphis 3:23(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C772AEF3D6FB51DD0CADCDFF604FA45A363E88F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220982   (698802) от 22.04.2018
-
-Danielle Bradbery (Даниэль Брэдбери) - Danielle Bradbery (2013) Republic Nashville, Deluxe Edition [MP3|320 Kbps] <Pop, Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даниэль Брэдбери - американская кантри-певица, ставшая победительницей четвертого сезона шоу «Голос» и успевшая порадовать слушателей одноименным дебютным альбомом «Danielle Bradbery» в ноябре 2013 года, перепела один из главных хитов Адель, «Set Fire to the Rain» (2011). Дебютным синглом юной исполнительницы после победы в «Голосе» стала композиция «The Heart Of (   Читать дальше...   )01. Young In America 3:43
-02. Wild Boy 3:41
-03. The Heart of Dixie 3:30
-04. I Will Never Forget You 3:47(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 00:53:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D9AE201DF72B6BE8D6219745A43B47DC368C74F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220983   (698801) от 22.04.2018
-
-VA - Power Workout Vol.2 (2018) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forward - Fall of Illusions (Original Mix) 07:59
-02. Tektoys - Nothern Woods (Mundo Celebris Remix) 05:38
-03. Tom Stribol - Almost Panacea (Original Mix) 07:28
-04. Andrey Meduer - Progressive Strіngs (Original Mix) 08:22(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:435EED9DB96949657A63A6D3BD802F98951BE774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221057   (698800) от 22.04.2018
-
-Hazem Beltagui - VIVID (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hazem Beltagui - Made Of Light (In Memory Of Helena Copto)(Original Mix)
-02.Hazem Beltagui - Reasons To Love (Original Mix)
-03.Hazem Beltagui & Ataberk Onal - You Were Always Mine (Original Mix)
-04.Hazem Beltagui & Rebecca Louise Burch Fade Away (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:28:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:723F0094E695CE80C5D1E5A838936C31C6DD72CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221034   (698799) от 22.04.2018
-
-Bicep - Rain (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698799.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rain (Edit) (04:00)
-2. Rain (05:51)
-3. Helix (05:10)Жанр: Electronic, House, TechnoПродолжительность: 00:15:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7218F852D3B5F9C4CFE018F922A6340C0324E6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132817   (698798) от 10.05.2017
-
-VA - Summer Mix 2017: Marbella Dance Music Vol.01 (Mixed By Deep Dreamer) (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Aly Neto - Kussanguluka 05:15
-02. Dainpeace - Requal Dalo - Extended Mix 04:07
-03. DJ Favorite - Rock the Party - DJ Dnk Remix 03:51
-04. House Hustler - Something Unreal 05:08(   Читать дальше...   )Жанр: HouseПродолжительность: 03:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF740DB8BFA42A8FB98C68157EBBEBD0C5A63325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132869   (698797) от 10.05.2017
-
-VA - Greatest Ever! Brazil (2012) [MP3|320 Kbps] <World Music, New Age, Brazil>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clara Moreno, OrlandrVo - Tamanco No Samba
-02. Nina Miranda, Zeep, Chris Franck - Keep an Eye On Love
-03. Banda Black Rio, Marcio Local - Quern Vem Li
-04. Marcos Valle - Parabens(   Читать дальше...   )Жанр: World Music, New Age, BrazilПродолжительность: 03:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FADE4791EBD4F8A36961602DBABD665B766A0482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132677   (698796) от 10.05.2017
-
-VA - Speakeasy Electro Swing Compilation Vol. 3 - Swing-Hop Don't Stop (2014) [MP3|320 Kbps] <Electro Swing, Electro Blues, Hip Hop>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dedy Dread & Dj Rebel feat. Delhi Sultanate - Criss N Shine (03:45)
-02. Ray Charles - I Got A Woman (Beatsy Collins Edit) (02:53)
-03. ProleteR - It don't mean a thing (03:38)
-04. Mr Frisbee - No Swingity (04:12)(   Читать дальше...   )Жанр: Electro Swing, Electro Blues, Hip HopПродолжительность: 01:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279E49D856371CCFD112C25E0E8B201F75C02788
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132759   (698795) от 10.05.2017
-
-Sylvie Vartan - Confidanses (1989) [FLAC|Lossless|tracks + .cue] <Pop , Chanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C'est Fatal 3:31
-YouTube: Q6SUwv4RmmM
-(Michael Cretu / D.Barbelivien)
-02. Ca va de soi 3:32(   Читать дальше...   )Жанр: Pop , ChansonПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B770936FE8026180B70BED09EC1316C436DBBB7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132196   (698794) от 10.05.2017
-
-Астрономы считают, что большинство из пригодных для жизни планет могут быть полностью покрыты водой
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_698794.jpg" />
-</div>
-
-
-###  Подробнее
-
-В представлении большинства людей пригодная для жизни планета является своего рода "двойником" Земли, где площади суши и океанов находятся в идеальном балансе друг относительно друга. Однако, в реальности все может обстоять совершенно иначе, согласно исследованиям, проведенным Фергусом Симпсоном (Fergus Simpson) из университета Барселоны (University of (   Читать дальше...   )
+Сын короля – беспомощный калека? Больной наследник – что может быть ужаснее для короля? А как быть с необычайным предсказанием, гласящим, что нервный комок плоти станет великим королем, и имя его будет занесено в Книгу Королей? Есть ли на белом свете человек, способный удивить юношу, мечтающего о смерти? Так начинается эта история… Эта книга о временах суровых мужчин (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 10:05:51
 
 ## Скачать торент
 ```bash
@@ -540,25 +135,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132801   (698793) от 10.05.2017
+###  Публикация: 1402594   (699828) от 15.08.2020
 
-Машины-монстры: Oklahoma Willy - Фольксваген 1958 года, способный разгоняться до 480 километров в час
+Drops of Heart - Stargazers (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 
->>Поговорим
->>DailyTechInfo
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_698793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699828.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Перри Уоткинс (Perry Watkins), известный в определенных кругах умелец и автолюбитель, продемонстрировал всему миру свое очередное удивительное творение. Этим творением стал пикап VW type 2 Transporter 1958 года выпуска, на который был установлен реактивный двигатель от истребителя, мощностью 5 тысяч лошадиных сил. И такая мощность позволила разогнать восстановленный и кардинально переделанный грузовичок до скорости 480 километров в час (300 миль в час) на стандартной дистанции в четверть мили.(   Читать дальше...   )
+01. Echoes [00:06:02]
+02. Frost Grip (feat. Richard Sjunnesson) [00:04:27]
+03. Knot [00:06:00]
+04. Escapist [00:03:52](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:59:26
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:9DDD7F741A2FA5FE73E80DF60909E825DC2A84A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -566,25 +164,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132778   (698792) от 10.05.2017
+###  Публикация: 1402632   (699827) от 15.08.2020
 
-Н. А. Рубакин | Из мира науки и из истории мысли (1896) [PDF]
+Unholy Night - Succubus (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Rock'n'Roll>
 
->>Научная и техническая литература
->>Научно-популярная литература
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699827.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этой книжке собраны статьи, написанные в разное время и напечатания в разных журналах. Они касаются различных областей жизни и мысли. Но во всех их есть и нечто общее, — это стремление человеческого ума проникнуть в тайну, окружающую его, добиться точной, беспристрастной, ничем неопровержимой истины, распространить эту истину среди человечества, среди всех людей, (   Читать дальше...   )Жанр: История, науковедениеФормат: PDF
+01. Evil Rocknroll [00:01:51]
+02. Long Live Death [00:02:29]
+03. Infected with Mayhem [00:02:37]
+04. Sabbat Night [00:03:19](   Читать дальше...   )Жанр: Black Metal, Rock'n'RollПродолжительность: 00:20:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30AAD08E7E78A56EA57EFB40C323053DBD78B9A2
+magnet:?xt=urn:btih:32E3383057101FEACC404E57CD133553009AB404
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -592,28 +193,81 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132647   (698791) от 10.05.2017
+###  Публикация: 1402507   (699826) от 15.08.2020
 
-VA - 100-ка популярных весенних хитов от Европы Плюс. Версия № 9 (2017) [MP3|256 Kbps] <Pop>
+PopChar X 8.10 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваш Mac включает более чем 700 шрифтов, каждый из которых содержит тысячи знаков - Почему бы не сделать их максимально доступными?Тип издания: macOS SoftwareРелиз состоялся: 05.05.2020Разработчик: Ergonis SoftwareПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Английский, Немецкий и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8A32D69B2F71B78DB4014851EBC83D32DC7B25C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402679   (699825) от 15.08.2020
+
+Екатерина Юсупова | Экологичное материнство. Как оградить своих детей от вредной химии (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юсупова Екатерина (@amelyrain.eco) – профессиональный эколог и один из самых известных ЭКО- и ЗОЖ-блогеров в Инстаграме. К ее мнению прислушивается уже более 250000 человек!
+Свой экоблог Екатерина начала вести после рождения дочери Амелии, когда узнала, что даже многие детские товары не отвечают стандартам безопасности и крайне вредны для здоровья. Ей захотелось (   Читать дальше...   )Жанр: Воспитание детей, Здоровье детей, ЭкологияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E70A8EFD11F52ED1647D86B3A718C2DEA7306169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402549   (699824) от 15.08.2020
+
+VA - German Top 100 Single Charts 14.08.2020 [MP3|320 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699824.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Alex Belak - Невыносимая 2:58
-002. Галамартовна - Ермакова 3:12
-003. Андрей Леницкий - Она 4:10
-004. Helena Shadia - Не Верь Мне 4:07(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:06
+01. Jawsh 685 & Jason Derulo - Savage Love (Laxed - Siren Beat)
+02. Apache 207 - Bläulich
+03. KitschKrieg & Jamule - Unterwegs
+04. Samra - 24 Stunden(   Читать дальше...   )Жанр: PopПродолжительность: 05:15:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29DD7AABF8EAA33254FDA33CF40A8A35E7C55F1D
+magnet:?xt=urn:btih:38BF430A7345E93C5DC15908A127EA19DF4B199F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -621,25 +275,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132782   (698790) от 10.05.2017
+###  Публикация: 1402642   (699823) от 15.08.2020
 
-Н. А. Рубакин | Птичьи гнезда: рассказы об искусстве в мире животных (1909) [PDF]
+Сара Перри | Мельмот (2020) [MP3]
 
->>Научная и техническая литература
->>Научно-популярная литература
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699823.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этой книжке будет рассказано о нерукотворных постройках, — а именно, о строительном искусстве птиц.Жанр: История, науковедениеФормат: PDF
+«Мельмот» – ошеломляющий готический роман-бестселлер одной из лучших современных писательниц. Хелен Франклин, неприметная англичанка, живет в Праге, зарабатывает на жизнь переводами и вот уже двадцать лет хранит какую-то страшную тайну. Ее секрету, казалось бы, суждено остаться в прошлом, но все меняется, когда через Карела, одного из ее немногочисленных друзей, (   Читать дальше...   )Жанр: Современная проза, зарубежная проза, готический романПродолжительность: 10:19:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA6D44E9935258612D91BCBCC416A37510BC43DB
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -647,28 +301,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131802   (698789) от 10.05.2017
+###  Публикация: 1402715   (699822) от 15.08.2020
 
-Алан Менкен & VA - Beauty And The Beast / Красавица и Чудовище (Оригинальный Саундтрек) (2017) [MP3|320 кб/с]<Soundtrack>
+Формула-2. Сезон 2020. 6-й Этап. Гран-при Испании. Гонка 1 (15.08.2020) HDTV [H.264/1080i-LQ]
 
->>Other Styles
->>OST
+>>Спорт и активный отдых
+>>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699822.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Алан Менкен - Увертюра (03:06)
-02. Алан Менкен - Пролог 1 (00:43)
-03. Екатерина Лёхина - Ария (01:03)
-04. Алан Менкен - Пролог 2 (02:22)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:26
+4-й Чемпионат ФИА Формула-2. Сезон 2020 года
+15 августа 2020, суббота. 17:45 МСК
+6-й Этап. Гран-при Испании. Барселона (Испания)
+Гонка 1(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:14:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F0C63465A6D99F4D6883678415A5E251E513A35
+magnet:?xt=urn:btih:F8A98F5A57AF02F969EE8DD609665F32C9490996
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -676,57 +330,380 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132639   (698788) от 10.05.2017
+###  Публикация: 1402600   (699821) от 15.08.2020
 
-VA - Synthetics Drive (2017) [MP3|192-320 Kbps] <Synthpop, Synthwave, Electronic>
+RadioMaximus 2.28.1 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный инструмент для прослушивания и записи потокового аудио самых различных радиостанций мира. Захват звука возможен сразу с нескольких каналов, для этого пользователю предстоит настроить несколько несложных параметров. Записанные данные легко сохраняются в памяти вашего компьютера в одном из пяти доступных форматах (RAW, MP3, AAC, OGG, WMA).Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CECC12A0565E37BD54BF12E8DCF0ED827AC17F69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402749   (699820) от 15.08.2020
+
+Формула 1. Сезон 2020. Этап 6. Гран-при Испании. Квалификация (15.08.2020) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-при Испании. Квалификация
+Арена: Автодром Каталунья (Барселона, Испания)
+15 августа 2020 года, суббота. 16:00 МСКТелекомпания: Матч ТВЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 00:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B522B2FC6E2473F0072631F66C8974BC84B441E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402134   (699819) от 15.08.2020
+
+Fit For A King - 5 Singles (2020) [MP3|320 Kbps] <Christian Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Locked (In My Head) (Single)Жанр: Christian MetalcoreПродолжительность: 00:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB201192F8EB247AFF3F2951347FA049AB6CD7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402682   (699818) от 15.08.2020
+
+Формула 1. Сезон 2020. Этап 6. Гран-при Испании. Квалификация (15.08.2020) IPTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-при Испании. Квалификация
+Арена: Автодром Каталунья (Барселона, Испания)
+15 августа 2020 года, суббота. 16:00 МСКТелекомпания: Матч ТВЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 00:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A02367E9FABD1C7215537214FACF9963A260013F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402605   (699817) от 15.08.2020
+
+Telegram Desktop 2.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Telegram — это приложение для обмена сообщениями. Почти как SMS, однако помимо отправки простых текстовых сообщений, можно также отправлять фото, видео и любые другие файлы. Ещё можно создавать конференции для группового чата.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402510   (699816) от 15.08.2020
+
+Q-Dir 8.71 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Файловый менеджер с оригинальным четырехпанельным интерфейсом и широкими возможностями по работе с файлами. Работает с любого съемного устройства. Многоязычный интерфейс.
+Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок "Quick-Link's", поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C23A6680D6182F7137923CCA9FB350E4E7A99B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402595   (699815) от 15.08.2020
+
+Юрий Кудинов (клоун Плюх) - Музыкальные развивайки с Плюхом. Супердискотека для детей (2014) [MP3|320 Kbps]<Детские песни и минусовки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01+/-13. Таня Соловьёва - Детство
+02+/-14. Клоун Плюх - Чуковский
+03+/-15. Алина, «Конфетки» - Блинчики
+04+/-16. Алина, «Конфетки» - Стиральная машина(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 01:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E3EEC8A2F945EEB0174A03035A81BAB3E19C308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402687   (699814) от 15.08.2020
+
+Юрий Сотник | Все школьные истории [сборник] (2018) [EPUB]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699814.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли веселые рассказы замечательного писателя Юрия Сотника: «Как я был самостоятельным», «„Архимед“ Вовки Грушина», «Дрессировщики», «Кинохроника» и др., а также повесть «Машка Самбо и Заноза». Герои Сотника – веселые и предприимчивые ребята, попадающие в самые невероятные переделки, но они никогда не унывают и всегда готовы прийти на помощь друзьям.Жанр: Повести и рассказы, Приключения для детейФормат: EPUB
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402506   (699813) от 15.08.2020
+
+Dio - Маgiса (2000), Reissue, Remastered, 2020, BMG Records, 2xCD [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699813.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Magica:
+01. Discovery (00:52)
+02. Magic Theme (01:16)
+03. Lord Of The Last Day (04:04)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:58:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 211115   (699802) от 17.06.2010
+
+Крепкий орешек 4.0 / Die Hard (2007) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир опять на краю гибели из-за новой террористической угрозы. В этот раз в «заложниках» оказывается всемирная компьютерная сеть. Правительство и спецслужбы бессильны, все готово погрузиться в хаос. Но на борьбу с нависшей над миром опасностью выходит наш старый герой Джон МакКлейн со своей неразлучной подругой «Береттой».
+
+Он давно в отставке, но когда на карту поставлена жизнь членов его семьи, он не будет стоять в стороне и бросит вызов террористам. Однако в этот раз ему уже не справиться без молодого, но очень талантливого помощника.Жанр: Боевик, Триллер, КриминалРежиссер: Лен Уайзман.Актеры: Брюс Уиллис, Тимоти Олифант, Джастин Лонг, Мэгги Кью, Клифф Кёртис, Джонатан Садовский, Эндрю Фридман, Кевин Смит, Йорго Константин, Сирил Раффаэлли и др.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 211092   (699798) от 17.06.2010
+
+[UA] День Святого Валентина / Valentine's Day (2010) DVDRip
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьбы многих влюбленных и одиноких сердец в Лос-Анджелесе переплетаются в ожидании одного единственного Дня — Дня Всех Влюбленных — Дня Святого Валентина.Жанр: Мелодрама, КомедияРежиссер: Гэрри МаршаллАктеры: Джессика Альба, Джессика Бил, Брэдли Купер, Энн Хэтэуэй, Дженнифер Гарнер, Джейми Фокс, Эштон Катчер, Тэйлор Лотнер, Джулия Робертс, Кэти Бейтс, Эрик Дэйн, Патрик Демпси, Гектор ЭлизондоПеревод: ДублированныйПродолжительность: 01:59:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 210935   (699793) от 17.06.2010
+
+Санта-Хрякус: Страшдественская сказка / Terry Pratchett's Hogfather (2006) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ночь перед Страшдеством обычно самое радостное время в Плоском мире, когда перевозбуждённые дети не могут заснуть, предвкушая подарки в развешенных для этого носках… Но в этом году с праздниками творится что-то не то. Всеобщие подозрения связаны с гильдией наёмных убийц Анк-Морпока, и что-то уже замышляется.
+А любимый дедушка Хог (Санта-Хрякус), который приносит (   Читать дальше...   )Производство: Великобритания / The Mob Film Company, British Sky Broadcasting (BSkyB)Жанр: фэнтези, триллер, драма, комедияРежиссер: Вадим ЖанАктеры: Мишель Докери, Марк Уоррен, Иэн Ричардсон, Марникс Ван Ден Бруке, Дэвид Джейсон, Джон Фрэнклин-Роббинс, Дэвид Уорнер, Робинсон, Найджел Плэйнер, Питер ГиннессПеревод: профессиональный многоголосыйПродолжительность: 01:37:24 + 01:35:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 332140   (699780) от 04.05.2011
+
+Обиженные игрушки (1949) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультипликационный фильм о медвежатах, которые не умели бережно играть со своими игрушками и постоянно ломали их. Однажды бабушка-медведица пошла в магазин игрушек и купила любимым внучатам очередные подарки. Но медвежата разломали новые игрушки в первый же день. Пришлось бабушке нести сломанные игрушки в мастерскую. Когда медвежата уснули, им приснился сон, будто (   Читать дальше...   )Режиссер: Владимир МуджириПродолжительность: 00:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B9205824F78F1B344231005E9230EBD6AB6675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287942   (699772) от 09.03.2019
+
+VA - Night In The Tropics (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699772.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Mflex - Shining Echoes 7:01
-002. Robert Marlow - Smile (Reset Remix By Angst Pop Feat. Technomancer) 4:54
-003. Dynatron - Fireburner 3:58
-004. Rossetti's Compass - My Beloved (Abi's Electro Mix By Angst Pop Feat. Technomancer) 3:16(   Читать дальше...   )Жанр: Synthpop, Synthwave, ElectronicПродолжительность: 10:25:49
+001. Anthony Yarranton - Meridian
+002. Michael Hooker - Melindas Secrets (Original Mix)
+003. Moscoman - Song for Bourdain
+004. DeeJay PARTYman - U.F.O. (Radio Edit)(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 10:21:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B2D1B35DD6437F3479ACA77D60CED7E627EDEE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132673   (698787) от 10.05.2017
-
-VA - Cosmical Odissey: Synthetic Musical Mix (2017) [MP3|192-320 Kbps] <Spacesynth, Synthwave, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698787.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 3Rd Planet - Planet Rock 6:32
-002. Amandi - Digital Attack 5:57
-003. Aphelion - Endless Flight 6:35
-004. Digital Oblique - White Planet 5:43(   Читать дальше...   )Жанр: Spacesynth, Synthwave, ElectronicПродолжительность: 08:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8CFD323A67DAE9E21BC20A7E0D21BEEF30A7CB
+magnet:?xt=urn:btih:8DE45A1B5388750F366702CC3BDC3155AC2FD8F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

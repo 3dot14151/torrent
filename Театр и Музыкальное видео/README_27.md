@@ -1,3 +1,114 @@
+###  Публикация: 635882   (907713) от 27.03.2013
+
+Austin Mahone Say You're Just A Friend ft Flo Rida (2013) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6D3C73FF636A416008265E8A671E8CA6A4ACA47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635887   (907649) от 27.03.2013
+
+Justin Timberlake Suit & Tie (Official video) ft JAY Z (2013) [H.264/1080p WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8224B7D5D11788926A0F46C398C70A6218080BB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635833   (907461) от 27.03.2013
+
+Louna - Проснись и Пой! (live) (2013) 2*DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907461.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVD1:
+01. Проснись и пой
+02. Кризис Крайст Суперстар
+03. Время Х(   Читать дальше...   )Жанр: КонцертПродолжительность: 02:28:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990276   (907446) от 27.02.2016
+
+VA - Коллекция клипов в авто (ZAP_part4) (2DIN) (2015 - 2016 + бонус) DVDRip,HDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение коллекции клипов в авто.Часть 4.
+Клипы на весь экран для автомагнитол, так же планшетов и тд.Keida - Ganja Tea.avi
+Kelis - Acapella.avi
+Kelly Clarkson - Heartbeat Song.avi
+Kelly Clarkson - Stronger.avi(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 40:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3FE3F34B5682060791BA0AE90945CCE3BDFB066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368771   (907183) от 21.03.2020
 
 Квартирник НТВ у Маргулиса. Manizha (20.03.2020) WEB-DL [H.264/1080p-LQ]
@@ -595,116 +706,6 @@ Olga Vels весьма одарённая молодая девушка (и по
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A36ECA2C431B730E66F82A37CABA8AC6E344D1FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 293240   (902689) от 09.02.2011
-
-Gary Moore & The Midnight Blues - Live at Montreux 1990 (2004) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902689.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Oh Pretty Woman
-2. Walking By Myself
-3. The Stumble
-4. All Your Love(   Читать дальше...   )Жанр: Рок, БлюзРежиссер: Gavin TaylorАктеры: Gary Moore - guitar & vocals
-Don Airey - keyboards
-Andy Pyle - bass,
-Graham Walker - drums,(   Читать дальше...   )Перевод: ОригинальныйПродолжительность: 01:45:55 + 00:26:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637061   (902628) от 30.03.2013
-
-Nells - Watch My Body (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7968391E531A8755854F874B5726FB5833F819C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636965   (902620) от 30.03.2013
-
-Cascada - Glorious (2013) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F59C28CC238965E9EAD722F1434BDB593DF078E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637064   (902610) от 30.03.2013
-
-Innocence feat. Brian Cross - Houdini Girl (Brian Cross Remix 2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D6E703BF9EBB3ACD03A04D92F2B8EF8C263FD51
 ```
 
 https://mybot314.ru/tekegram_catalog/

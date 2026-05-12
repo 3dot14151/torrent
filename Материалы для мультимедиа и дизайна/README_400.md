@@ -1,3 +1,107 @@
+###  Публикация: 1791873   (21234) от 16.04.2025
+
+Фоны - STCrafts - Creative Fabrica - French Cottagecore Blue Floral Digital Paper Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Синие цветочные фоны.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E82B4308782BF3F39977F516630B1FC61C60AE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791886   (21230) от 16.04.2025
+
+Фоны - STCrafts - Creative Fabrica - Neon Yellow Damask Digital Paper Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неоново-жёлтые Дамасские цифровые бумажные фоны.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D6864C741609D838A8D264948F91E84426ED1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791888   (21222) от 16.04.2025
+
+Текстуры - STCrafts - Creative Fabrica - Luxury Indigo Texture Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роскошная цифровая бумага с текстурой цвета индиго.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A91E020265FAED7AA891F76E8F0A8AAE3D03D5AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791855   (21213) от 16.04.2025
+
+Растровый клипарт - STCrafts - Creative Fabrica - Cute Poppy Flowers Mug Wrap Sublimation Design [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дизайн сублимационной упаковки для кружек с цветами мака.Формат: PNGРазрешение файлов: 2925×1425
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A8A96200B43FCA925C10DB763CF105E48C5E483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791877   (21208) от 16.04.2025
 
 Растровый клипарт - STCrafts - Creative Fabrica - Yellow & Teal Flowers Mug Wrap Sublimation Design [PNG]
@@ -567,112 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CA42D97F0B019CB38DB20D68608C319907852AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793533   (20168) от 26.04.2025
-
-Растровый клипарт - STCrafts - Creative Fabrica - Iridescent and Gold Glitter Mug Wrap Sublimation Design [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изображения с радужными и золотыми блёстками для сублимационного дизайна.Формат: PNGРазрешение файлов: 2925 x 1425
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA684E899A2527652F78BE785923777F64A98B12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793858   (20164) от 26.04.2025
-
-Растровый клипарт - GreenWich Design - Creative Fabrica - Butterfly Fussy Cut [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Растровый клипарт с бабочками.Формат: JPGРазрешение файлов: 2480 x 3508
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34D66128C53195D5E7EB6C2AE9DFA4A4B9D99E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793523   (20163) от 26.04.2025
-
-Текстуры - Martina Palazzese - Behance - LIQUID Colorful texture - 191979883 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные текстуры.Формат: JPGРазрешение файлов: 2828 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65534594C781C5B2E6C44888EBBD13BCD23BAD67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793938   (20064) от 27.04.2025
-
-Звуковые библиотеки - Re-Sound Studio - Starter [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20064.jpg" />
-</div>
-
-
-###  Подробнее
-
-От Автора: "Каждому звукорежиссёру нужно с чего-то начинать, и это где-то здесь!
-Вдохновленная захватывающими боевыми сценами из блокбастеров, эта коллекция наполнена ударными взрывными звуковыми эффектами.
-STARTER по сути представляет собой смесь тщательно отобранных звуков, которые создают неудержимую силу звуковой магии! От потрясающих ударов до интенсивных (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D57A7C37E41501E7F365E9144536EA88CCFCA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

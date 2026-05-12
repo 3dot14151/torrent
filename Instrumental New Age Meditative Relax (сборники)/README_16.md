@@ -1,3 +1,29 @@
+###  Публикация: 497453   (253445) от 16.05.2012
+
+VA - Инструментальная музыка (2012) vol. № 43 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 02:10:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:757E3998B0CA4C5ADF51E6EC47B9F7AB0E4AEB77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 496967   (253432) от 16.05.2012
 
 VA - Инструментальная музыка (2012) vol. № 41 [MP3|320 кб/с]<Instrumental>
@@ -689,35 +715,6 @@ VA - Fields Of Gold Music For Romance (2016) [MP3|320 Kbps] <Chillout, Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D17C282002E813EACB87EBB369237C1CB0A01261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603409   (210480) от 09.01.2023
-
-VA - Music For The Winter Interior (2022) [MP3|320 Kbps] <Lounge, Chillout, Relax>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210480.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rob Downbeat - Cosmicon [05:10]
-002. Jane Maximova - A Straw [05:01]
-003. Cane Garden Quartet - Colours Of Love [05:00]
-004. Living Room - Travelling & Learning [02:58](   Читать дальше...   )Жанр: Lounge, Chillout, RelaxПродолжительность: 09:48:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CEC481067747E825E3624A8B6B5C640C5EE4B43
 ```
 
 https://mybot314.ru/tekegram_catalog/

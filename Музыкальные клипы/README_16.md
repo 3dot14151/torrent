@@ -1,3 +1,81 @@
+###  Публикация: 331787   (699526) от 04.05.2011
+
+Scorpions - The Best Is Yet To Come - Live in Prague (2010) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard RockПродолжительность: 00:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ADD91DFA5D21456D273FD65BC6390C32065FEAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 332956   (695625) от 06.05.2011
+
+Lady Gaga - Judas (2011) HDTVRip [720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ВидеоклипПродолжительность: 00:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4821E3FEB72ECA2C10498CD6DDDA049D97C56E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 506715   (685990) от 07.06.2012
+
+Иракли - Я тебя люблю (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77592CC08E89CB3D9E08F62CA747FDA26B57B599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 507320   (683179) от 08.06.2012
 
 Evanescence - Live at Verizon Arena (2012) HDTVRip 720p
@@ -626,84 +704,6 @@ Ferry Corsten 'Radio Crash' [405 Recordings]Жанр: TranceРежиссер: н
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C64A42731DA03EA53FFBED1ED6E1A6FE0A80E1AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682085   (630903) от 23.07.2013
-
-Mr Sam & Andy Duguid vs. Pat Benatar - Invincible (2010) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mr Sam & Andy Duguid vs. Pat Benatar - InvincibleЖанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA9C91C8FDBFEF12A5AA69725F95D21AAAB3CCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682043   (630894) от 23.07.2013
-
-Chicane vs Natasha Bedingfield - Bruised Water (2009) [720p]HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chicane vs Natasha Bedingfield - Bruised Water (Original)Жанр: TranceПеревод: ОтсутствуетПродолжительность: 00:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C036C36759B58E61ADF0D11AA0AABAA879315C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682028   (630891) от 23.07.2013
-
-ATB - Humanity (Airplay Mix) (2005)   [H.264]HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630891.jpg" />
-</div>
-
-
-###  Подробнее
-
-ATB - Humanity (Airplay Mix)(Official Video HD)Жанр: TranceПеревод: ОтсутствуетПродолжительность: 00:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD6DA933AC0B026FE5437E5A77473C2C0E31408
 ```
 
 https://mybot314.ru/tekegram_catalog/

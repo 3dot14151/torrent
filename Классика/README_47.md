@@ -1,3 +1,61 @@
+###  Публикация: 1597575   (165838) от 15.12.2022
+
+Andrea Bocelli - A Family Christmas (2022) [FLAC|96/24|Lossless|WEB-DL|tracks] <Pop, Classical Crossover, Christmas>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Hear What I Hear?
+02. Away In A Manger
+03. Feliz Navidad
+04. The First Noël(   Читать дальше...   )Жанр: Pop, Classical Crossover, ChristmasПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E305D9952A5204A603BA3D297129F7E75FDF65D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674401   (160587) от 07.11.2023
+
+Orchestre National De France - Georges Bizet: Carmen (1984) 3CD [FLAC|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trio: "Melons! Coupons!"
+02. Dialogue: "Eh, Carmen! Laisse!"
+03. Morceau d'ensemble: "Quant au douanier, c'est notre affaire"
+04. Dialogue: "Ne venez pas"(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F42C7BB14CCCB5284BA7EBF23ADE671261D23204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 38336   (160493) от 07.11.2023
 
 Bela Bartok - Bartok Complete Edition (2000) 29CD [APE|Lossless|image + .cue]<Classical>
@@ -680,64 +738,6 @@ Marc-Antoine Charpentier (1634 - 1704)(   Читать дальше...   )Жан
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53E5B55FDFE6BEA9C8B0AEF3258C0770C11B370B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087180   (142484) от 29.12.2016
-
-Andreas Scholl - Kantate: German Baroque Cantatas (1998) Harmonia Mundi France [FLAC|Lossless|image + .cue] <German Baroque Cantatas>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Heinrich Schutz - O Jesu, nomen dulce, SWV 308 (3:44)
-02.Giovanni Rovetta - Ach, Herr, lass dein lieben Eingelein (7:45)
-03.Johann Christoph Bach - Lamento ''Ach, da. ich Wassers g'nug hatte'' (7:11)
-04.Franz Tunder - Salve mi Jesu (6:05)(   Читать дальше...   )Жанр: German Baroque CantatasПродолжительность: 01:09:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C42B64332B1E8255D05B951997AC0C9D3D1A47A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195754   (137957) от 31.12.2017
-
-Karl Jenkins - Symphonic Adiemus (2017) [FLAC|Lossless|tracks + .cue] <Classical, New Age,  Choral>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Caelum Fero (06:24)
-02. Chorale: Za Ma Ba (01:56)
-03. Adiemus (04:03)
-04. Song of the Spirit (05:29)(   Читать дальше...   )Жанр: Classical, New Age,  ChoralПродолжительность: 00:58:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB96D6BFF1E1D078573118254AC3301F331E32F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,5 +1,63 @@
 https://t.me/izofen
-###  Публикация: 1868202   (1067295) от 
+###  Публикация: 1869688   (1068527) от 
+
+VA - A State of Trance 2026 (Mixed by Armin van Buuren) (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omnia - As We Become One (Mixed) (Intro Mix) [3:53]
+02. Max Styler x Three Drives & Three Drives On A Vinyl - Greece 2000 (Mixed) (Max Styler Rework) [2:45]
+03. Ginchy feat. Sultan + Shepard - The Way (Mixed) (Ginchy Remix) [3:00]
+04. Ruben De Ronde & Amber Revival - River In Me (Mixed) [3:53](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 04:23:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:101066AB2AFBB89E5CB3B6167533FD2653B63E82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868994   (1067885) от 03.05.2026
+
+VA - Trance Pathways #02 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Urrrrrr - Reality (Original Mix) [8:28]
+02. Stevectro - When Life Hurts (Original Mix) [7:08]
+03. Makoom - Runway (Club Mix) [7:10]
+04. Elecdon - Frozen Rain (Original Mix) [6:17](   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3A634733D11C9D75024F78EA40C4D53652EF043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868202   (1067295) от 29.04.2026
 
 VA - 13 Years Of Suanda Music (2026) [MP3|320 Kbps] <Trance, Vocal Trance>
 
@@ -688,64 +746,6 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 17 (2026) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7326FD07BE720146C85DBE9E89486361E1D98CD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858916   (1060749) от 13.03.2026
-
-VA - Black Hole Trance Music 03-26 (2026) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ferry Corsten - Trust (Frankyeffe Extended Reprint) [7:01]
-02. Maratone & Brittany Egbert - Chasing Highs (Extended Mix) [4:41]
-03. Solarstone & Iko - Once (XiJaro & Pitch Extended Remix) [7:50]
-04. Paul van Dyk & Ciaran McAuley - When I Found You (Extended Mix) [5:50](   Читать дальше...   )Жанр: TranceПродолжительность: 02:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E0E9BC486136AFBC564989A1934F59E1EC0C000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858546   (1060350) от 11.03.2026
-
-VA - Trancendence, Vol. 05 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KUJAR3 & FOYT - Little Piece Of Heaven (Extended Mix) 06:08
-02. Chris Connolly - Echoes of The Infinite 07:31
-03. Kataploks - Think About U (Extended Mix) 05:09
-04. Quincy Weigert - Temptations Theme (Quincy s Late Summer Mix) 06:18(   Читать дальше...   )Жанр: TranceПродолжительность: 02:20:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A6E26CB85B461623A3187223244212CCE7E9AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

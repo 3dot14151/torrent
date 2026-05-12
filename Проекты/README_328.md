@@ -1,3 +1,55 @@
+###  Публикация: 1344913   (167779) от 13.12.2019
+
+Проекты - VideoHive - Parallax Promo - 18515367 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parallax Promo - создание слайдшоу с 3D эффектом.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F86CD90C5446B375EF88F132B5CA51F9CD3938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344918   (167769) от 13.12.2019
+
+Проекты - VideoHive - Neon Mood Slideshow - 19460533 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Neon Mood Slideshow - Создайте невероятную атмосферу высоких технологий и погрузитесь в мир будущего.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C352EF5BEB5649C29985E4BA4D29FD9C8F44A1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345110   (167742) от 13.12.2019
 
 Проекты - VideoHive - Christmas Lights Promo - 25277709 [AEP]
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3625C03DCC5215415D0288D8A0407F17CA2A197F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517378   (162535) от 15.12.2021
-
-Проекты - VideoHive - Christmas Icon Titles 2022 - 35201933 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон новогодних рождественских графических анимированных элементов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4153506000684D992136EDC775862330A31165BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825951   (162369) от 18.10.2025
-
-Проекты - VideoHive - Documentary Archive History - 31738007 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Documentary Archive History — это высококачественный шаблон для After Effects. Он профессионально оформлен и включает в себя креативные элементы, которые стильно сочетаются друг с другом, создавая эффектное видео. Documentary Archive History — это красивый, кинематографичный и простой проект, идеально подходящий для промо, презентаций, слайд-шоу на исторические темы, (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F21B56FDED7BA949D29B65D769834FF9CBC2B06E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1032549   (643545) от 08.07.2016
+
+Kelly Simonz's Blind Faith - The Best Of (2009) Compilation [MP3|320 Kbps] <Neoclassical Metal, Shred>
+
+>>East Asian Music
+>>Asian Rock, Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Prolouge    04:05
+02.  Destiny    04:59
+03.  The Rule Of Right    04:18
+04.  Still    04:13(   Читать дальше...   )Жанр: Neoclassical Metal, ShredПродолжительность: 01:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B2F72762B13ECECB037BC57367E6D7E6343467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 518688   (639118) от 05.07.2012
 
 VA - Xiu Shen Yang Xing Yin Yue Xi Lie (5CD) (2008) [MP3|320 кб/с]<Instrumental, Ethnic, New age>
@@ -733,35 +762,6 @@ A-One | A1 - 36 альбомов (2008-2017) Touhou Vocal, KanColle /Doujin/ [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BF973622AA74596BB0848442A23BE29C2DC43C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546035   (604429) от 25.04.2022
-
-Dexcore - Metempsychosis (2020) 2CD, Extra [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Deathcore, J-Rock>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604429.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Dead Sea
-2. Mistake
-3. above the Clouds
-4. A.S.H(   Читать дальше...   )Жанр: Metalcore, Post-Hardcore, Deathcore, Progressive, J-CoreПродолжительность: 2CD, 02:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2A27A70E2610BBBE0F654772A889EA41CD86CBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

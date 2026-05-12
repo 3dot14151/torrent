@@ -1,3 +1,61 @@
+###  Публикация: 1336953   (276223) от 09.11.2019
+
+New London Chorale - The Collection  Vol.1 (2000) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop, Ballad>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing On Air - Tchaikovsky (4:26)
+02. Stay with me 'til the morning - Wolfgang Amadeus Mozart (3:47)
+03. Anthem For The World - Giuseppe Verdi (4:31)
+04. Denied - Tchaikovsky (5:18)(   Читать дальше...   )Жанр: Classical Crossover, Pop, BalladПродолжительность: 01:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30E486382F949713B45E1F571B2568431BD1466B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336956   (276106) от 09.11.2019
+
+New London Chorale - Christmas with the New London Chorale (1994) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop, Ballad>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kumbaya (4:31)
+02. Joseph, Dearest (3:10)
+03. What Child Is This (3:15)
+04. Mary's Boy Child (3:09)(   Читать дальше...   )Жанр: Classical Crossover, Pop, BalladПродолжительность: 00:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCBD34399022FFAA96CE7905D2DED9A2E1DD184F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 73873   (276069) от 26.11.2018
 
 Федор Иванович Шаляпин-Полное собрание граммофонных записей 1907-1936 гг.[2002][mp3|192]<Классическая музыка>
@@ -715,67 +773,6 @@ Andre Rieu and his Johann Strauss Orchestra - Thank You, Johann Strauss! (2025) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACC8DA9130D456D9F0AD51A2FD6BE9E6C52E67AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497653   (253866) от 17.05.2012
-
-VA - Niccolo PAGANINI - Complete Chamber Music (2007) [APE|Lossless]<Classical, Instrumental>
-
->>Классика
->>Полные собрания сочинений (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, InstrumentalПродолжительность: 00:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2F7458E64AA4C0082CFD0BDA5EE7437962507E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498107   (253771) от 17.05.2012
-
-Johann Sebastian Bach – Violin Concertos BWV 1041-1043: VA, La Petite Bande, violin Sigiswald Kuijken, Authentic instruments, (1717-1723)/1981, EMI Records Ltd/[FLAC|Lossless]<Chamber>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto in A minor, BWV 1041
-for solo violin, strings and B.C.
-1. (Allegro) 	3:42
-2. Andante 	6:36
-3. Allegro assai 	3:33
-Concerto in E major, BWV 1042 
-for solo violin, strings and B.C.
-4. Allegro - Adagio - Allegro 	7:40
-5. Adagio		 	6:39
-6. Allegro assai 		2'44(   Читать дальше...   )Жанр: Chamber/AuthenticПродолжительность: 00:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1678F1B788A2C9EEB0C67DE1DC986589CDDF7C58
 ```
 
 https://mybot314.ru/tekegram_catalog/

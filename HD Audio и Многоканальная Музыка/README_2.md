@@ -1,3 +1,147 @@
+###  Публикация: 1850692   (1054470) от 29.01.2026
+
+Avatarium - Studio Albums (6 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Avatarium — шведская рок-группа из Стокгольма, основанная в 2013 году.2013 - Avatarium
+2015 - The Girl With The Raven Mask
+2017 - Hurricanes And Halos
+2019 - The Fire I Long ForЖанр: Doom Metal, Progressive RockПродолжительность: 4:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1CA7CB64211C5FE3D234649BB84FAEA65674A16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850729   (1054436) от 29.01.2026
+
+Ahola - Studio Albums (2 releases) (2012-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal/Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ahola - рок-группа созданная в 2011 году финским композитором и вокалистом
+Jarkko Kalevi Ahola.2012 - Stoneface
+2014 - Tug Of WarЖанр: Heavy Metal/Hard RockПродолжительность: 01:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4839E79D411FD3D0277C1136D3A0D83783809464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850509   (1054413) от 28.01.2026
+
+Avatar (Sweden) - Studio Albums (10 releases) (2006-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal/Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Avatar — шведская метал-группа, образованная в Гётеборге в 2001 году.2006 - Thoughts Of No Tomorrow
+2007 - Schlacht
+2009 - Avatar
+2012 - Black WaltzЖанр: Melodic Death Metal/MetalcoreПродолжительность: 08:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC7FF94010E2853698E089E12690D9F97DEF78E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850498   (1054412) от 28.01.2026
+
+Cliff Richard - She's So Beautiful. Extended Mix From The Musical "Time" (1985) Single, 45RPM [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054412.jpg" />
+</div>
+
+
+###  Подробнее
+
+A She's So Beautiful (Extended Mix)
+B She's So Beautiful
+
+(c) 1985 Dave Clark Productions, under exclusive licence to E.M.I. Record Ltd.(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA037D554CEFF014C5E7EF99CAD68EBC8E1FD30F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850304   (1054141) от 27.01.2026
+
+VA - Magical Melodies: Nicolai, Rossini, Gounod, Brahms, Tchaikovsky, Wagner - Overture, Waltz and other (1968) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054141.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Vienna State Opera Orchestra - The Merry Wives Of Windsor : Overture Nicolai
+A2 The Beecham Promenade Orchestra - The Thieving Magpie : Overture Rossini
+A3 The Vienna State Opera Orchestra - Faust Waltzes Gounod
+B1 The Vienna State Opera Orchestra - Three Hungarian Dances (Nos. 6, 7 And 1) Brahms(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12B91270303C405F91D635574F13175399F914C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850341   (1054140) от 27.01.2026
 
 The Boomtown Rats - Dave (1984) [FLAC|Lossless|image + .cue] <Rock, New Wave, Synth-pop>
@@ -599,146 +743,6 @@ Dust In Mind - французская рок-группа из Страсбур�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BC7784923DE601EE1EBA9E54CC396C0A7219F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847782   (1052312) от 14.01.2026
-
-Vermocracy - Studio Albums (3 releases) (2020-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vermocracy - австрийская дэт-метал группа из Вены, основана в 2017 году.2020 - Vermocracy
-2022 - Age of Dysphoria
-2026 - Of Failing and FadingЖанр: Melodic Death MetalПродолжительность: 01:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90E100A0D51077CC7157072AFDD978B7AF26C98F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847451   (1052244) от 12.01.2026
-
-Destroy Them - Studio Albums (2 releases) (2018-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Destroy Them - немецкая трэш-метал группа из Эссена; образована в 2016 году.2018 - Use Hate (EP)
-2026 - Threshold Of ApocalypseЖанр: Thrash MetalПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8525FA8562B4493197A5F72A6E1C3E4CF9D88C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847467   (1052234) от 12.01.2026
-
-Velozza - Studio Albums (4 releases) (2017-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Velozza - трэш-метал группа из Рурмонда, Нидерланды, основана в 2016 году.2017 - Excluded Human Being (EP)
-2021 - Apocaholic
-2023 - Bankrupt the Republic (EP)
-2026 - HumanityЖанр: Thrash MetalПродолжительность: 01:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB906D8C09EC15B1653A9D56ACBC5E5D194DD505
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847124   (1051979) от 10.01.2026
-
-For My Pain... - Studio Albums (2 releases) (2009-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Metal/Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051979.jpg" />
-</div>
-
-
-###  Подробнее
-
-For My Pain… — финская готик-метал супергруппа из города Оулу. В состав группы входят участники из различных финских групп, в частности Eternal Tears of Sorrow и Nightwish2009 - Fallen
-2026 - Buried BlueЖанр: Gothic Metal/RockПродолжительность: 01:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2113F2C66D92FA11A32AF215F4571A0F1B0CED8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846733   (1051663) от 08.01.2026
-
-Dew-Scented - Studio Albums (11 releases) (1996-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dew-Scented — метал-группа из немецкого города Брауншвейг. Сформирована в 1992 году.1996 - Immortelle
-1998 - Innoscent
-1999 - Ill-Natured
-2002 - InwardsЖанр: Thrash/Death MetalПродолжительность: 08:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA4E6028878DF71FFA70447919DFEAFD2C049EA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

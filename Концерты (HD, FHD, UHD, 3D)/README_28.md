@@ -1,3 +1,55 @@
+###  Публикация: 1325532   (412249) от 15.09.2019
+
+Квартирник НТВ у Маргулиса. Группа Ария (14.09.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412249.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гости к Евгению Маргулису пришла одна из самых успешных российских рок-групп современности — «Ария». История группы — это летопись становления целой жанровой культуры и хронология появления других известных, которые в своей тусовке называют «семейкой Арии». Визитной карточкой группы стали такие хиты, как «Беспечный ангел», «Штиль», «Потерянный рай», «Возьми мое (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:01:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88FE665BFFBE726D079D94E42B8E07A05B3DCC76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168556   (408728) от 24.09.2017
+
+Олег Газманов. Концерт, посвященный Дню железнодорожника (04.08.2017) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408728.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 августа в Центральном парке культуры и отдыха имени Щербакова в Донецке состоялся концерт народного артиста России Олега Газманова и группы «Эскадрон». Донецк встретил артиста на ура. Больше десяти тысяч зрителей собрались послушать давно знакомые и новые песни. Певец открыл выступление популярным хитом «Есаул». Старые хиты здесь, в Донецке, звучат по-новому. Пусть (   Читать дальше...   )Производство: LIFE.RUЖанр: КонцертПродолжительность: 01:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:292BBBB6EBAC13DCC2A6FB9558569339A5D67C6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413586   (408193) от 04.10.2020
 
 Квартирник НТВ у Маргулиса. Михаил Бублик (03.10.2020) WEB-DL [H.264/1080p-LQ]
@@ -673,71 +725,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6488C20EB72E764620FA78BB54D70CB2D8F187BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401705   (366936) от 16.10.2020
-
-Lacuna Coil - The 119 Show - Live In London (2018) Blu-ray  [H.264/1080p] [Custom]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. A Current Obsession
-03. 1.19
-04. My Wings(   Читать дальше...   )Производство: Century MediaЖанр: Gothic Metal, DocumentaryЯзык озвучки: EnglishПродолжительность: 02:16:15 + 00:27:40 + 00:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE54F697CEA58CB3FA60460A6BFBDAED4447E8E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575958   (365146) от 16.11.2012
-
-Coldplay - Live 2012 (2012) [1080p] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_365146.jpg" />
-</div>
-
-
-###  Подробнее
-
-• Coldplay Live 2012 is the band’s first concert film/live album for nine years. It documents their acclaimed Mylo Xyloto world tour, which has been seen by more than three million people since it began in June 2011. The film was directed by Paul Dugdale, previously responsible for Adele’s Live at the Royal Albert Hall and The Prodigy’s Worlds On Fire concert films. Coldplay Live 2012 includes footage from Coldplay’s shows at Paris’s Stade de France, Montreal’s Bell Centre and the band’s triumphant Pyramid Stage headline performance at Glastonbury 2011.
-«Coldplay Live 2012» — это первый фильм группы за 9 лет, представляющий их новый альбом. Это запись мирового концертного тура «Mylo Xyloto», который с 2011 года собрал более трех миллионов зрителей.01. Mylo Xyloto
-02. Hurts Like Heaven
-03. In My Place
-04. Major Minus
-05. Yellow
-06. Violet Hill
-07. God Put A Smile Upon Your Face
-08. Princess Of China (with Rihanna)
-09. Up In Flames
-10. Viva La Vida(   Читать дальше...   )Жанр: Alternative rockПродолжительность: 01:36:55
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

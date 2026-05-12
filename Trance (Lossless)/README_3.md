@@ -1,3 +1,90 @@
+###  Публикация: 1027984   (692770) от 21.06.2016
+
+VA - Best Of Uplifting Vocal Trance 2016 (2016) [FLAC|tracks|WEB-DL]<Trance, Uplifting Vocal Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692770.jpg" />
+</div>
+
+
+###  Подробнее
+
+[07:07] 01. Allen, Envy & Neev Kennedy - Without You (Dan Stone Remix)
+[06:32] 02. Yuri Kane & Ana Criado - Running Wild (Liam Wilson Remix)
+[07:07] 03. Kaimo K & Cathy Burton - You Deserve Life (2016 Rework)
+[05:51] 04. ReOrder & Katty Heath - Our Nature (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting Vocal TranceПродолжительность: 02:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D8DCBE2149815A158AC4CC6BF8CA0EEC74EBE5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134308   (688885) от 15.05.2017
+
+Armin Van Buuren - The Best Of Armin Only (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive Trance, Progressive House>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Overture (I Imagine)  2:26
+02.  Overture (II Mirage)  2:08
+03.  Overture (III Sail)  1:00
+04.  Overture (feat. Eric Vloeimans) (IV Embrace)  4:48(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 02:00:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E8B155742993F7CB5095A26B8AB891BE4FF8784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289148   (687731) от 15.03.2019
+
+Robert Miles - Dreamland (1996) Japanese Edition [FLAC|Lossless|tracks + .cue] <Electronic, Trance, Ambient>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One And One (Radio Version) (4:02)
+ 02. Children (Eat Me Edit) (4:05)
+ 03. Children (Dream Version) (7:06)
+ 04. Fable (Message Version) (6:25)(   Читать дальше...   )Жанр: Electronic, Trance, AmbientПродолжительность: 01:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4059668152553F0B31B927D2A039FD31DC9AE19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404179   (684278) от 23.08.2020
 
 VA - Discover Trance 3 (2020) [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting Trance>
@@ -660,93 +747,6 @@ Orbital ‎ - Orbital 2 (1993) [FLAC|Lossless|tracks + .cue] <Trance, Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73328B8BDE0C0E16493E608B0EA7B48986A0B84B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038787   (599286) от 30.07.2016
-
-Chicane - Twenty (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance, House, Ambient>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Offshore (Thomas Datt Remix) (7:31)
-02. Saltwater (feat. Maire Brennan) (Jody Wisternoff Remix) (8:40)
-03. Poppiholla (Anniversary remix) (6:40)
-04. Dont Give Up (feat. Bryan Adams) (Philip George Remix) (5:50)(   Читать дальше...   )Жанр: Trance, House, AmbientПродолжительность: 03:25:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C70471E136BA2E552FB636FAB81C56E310560876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550871   (591212) от 13.05.2022
-
-Alternate High - Emotional Music on VERSE (2022) [FLAC|Lossless|WEB|tracks] <Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alternate High - Strings of Destiny (Emotional Mix) (8:52)
-02. Alternate High - Far Away (Original Mix) (7:49)
-03. Alternate High - On My Mind (Original Mix) (8:50)
-04. Alternate High - Strings of Destiny (Original Mix) (8:33)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F783682AE8CE818DB324DC57B1C2C0C226084146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916796   (590385) от 09.07.2015
-
-VA - Magic Island - Music For Balearic People Vol. 6 (Mixed by Roger Shah) (2015) [FLAC|Lossless|WEB-DL]<Trance, Progressive Trance, Balearic Trance >
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roger Shah & Aisling Jarvis - Call Me Home (Magic Island Mix) (6:20)
-02. Brian Laruso & John James Renfrow - We Used to Know (Original Mix) (5:06)
-03. Rogier Dulac - On the Beach (MI6 Edit) (4:25)
-04. Othon - Japan Suite (Brian Laruso's MI6 Edit) (5:18)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Balearic TranceПродолжительность: 05:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570D4613DD9A37329B2F27D29FDB979CEFBC3181
 ```
 
 https://mybot314.ru/tekegram_catalog/

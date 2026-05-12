@@ -1,25 +1,22 @@
-###  Публикация: 1237500   (551542) от 24.07.2018
+###  Публикация: 1001743   (553374) от 25.08.2016
 
-Dtroy - Terra Incognita (2018) Detroit Underground [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Techno>
+Час пик / Rush Hour (2016) WEB-DLRip (сезон 1, серии 1-13 из 13) BaibaKo
 
->>Архив торрентов
->>Архив Музыки
+>>След.
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553374.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Abysmal13xm (05:22)
- 02. Absent Drop (03:53)
- 03. Blank Canvas (05:20)
- 04. Fiscal Fracture (06:51)(   Читать дальше...   )Жанр: Electro, IDM, TechnoПродолжительность: 01:08:18
+Сериал-ремейк одноименного фильма о приключениях болтливого копа и его напарника. Самодовольный офицер Картер считает, что командная работа не для него. Однако, в паре с ним вынужден работать Ли — офицер полиции Гонконга, который был направлен в Лос-Анджелес.Производство: СШАЖанр: боевик, комедияРежиссер: Джон ТёртелтаубАктеры: Джон ФуДжастин ХайрсМорис Комт, Скотт Ринкер, Бертон Перез, Джон М. Адриан, Crispin Alapag, Бетси Бейкер, Элисон Болл, Карисса Блейдс и др.Перевод: Многоголосый закадровый, профессиональный |BaibaKo|Озвучка: Юля Малахова, Дмитрий Нежельский, Акмал Гурезов и Руслан ИвановПродолжительность: ~ 00:43:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7120CD376E6AD1D9B6C3AA01C6EEE9147ECFB90E
+magnet:?xt=urn:btih:5F2EDDBD6031A0507AE54E06282E0EC3B069EE32
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,26 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236802   (551541) от 24.07.2018
+###  Публикация: 1045710   (553373) от 25.08.2016
 
-Atmozfears - Scantraxx 102 (2012) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
+Gothic 3 (2006) (1.75.14/dlc) Repack/Mod Drakyla666
 
->>Архив торрентов
->>Архив Музыки
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553373.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Atmozfears – Just Let Go
-02. Atmozfears & Phuture Noize – DestruktoЖанр: HardstyleПродолжительность: 00:10:38
+Вы защитили остров Хоринис от сил зла в "Готике" и "Готике II". Теперь пришло время отправляться на материк, где злобные орки поработили королевство людей. Остались лишь небольшие свободные группы на холодном севере и в жаркой пустыне на юге, а также кучка мятежников в лесах и горах Мидленда. Вы можете присоединиться к восстанию, можете служить (   Читать дальше...   )Тип издания: Repack/ModРазработчик: Pluto 13Жанр: RPG, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C8F600BFEB1095EA74BDDB8F8D25B0899A0BF59
+magnet:?xt=urn:btih:D97A7B7C3FC3D017D7AD3D3126291ADEEFF4B31D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,273 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237504   (551540) от 24.07.2018
+###  Публикация: 1237193   (553321) от 22.07.2018
 
-The Exaltics - Das Heise Experiment 2 (2018) Solar One Music [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Experimental, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 0001100.3.0 (02:18)
- 02. 00022.000.8 (04:24)
- 03. 00033.001.4 (04:12)
- 04. 00044.00.1.5 (In Zusammenarbeit Mit Rudolf Klorzeiger) (05:56)(   Читать дальше...   )Жанр: Electro, IDM, Experimental, AmbientПродолжительность: 00:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EFB5372E61C5B3F133EE1CFB90AC82C15970E89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236804   (551539) от 24.07.2018
-
-Atmozfears - Bella Nova (2013) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bella NovaЖанр: HardstyleПродолжительность: 00:04:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B503C84D9BDD3D7FF2E50EDF79B199DC00FFB61D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236808   (551538) от 24.07.2018
-
-Audiofreq & The Prophet feat. Teddy - Scantraxx085 (2012) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551538.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Bring Me DownЖанр: HardstyleПродолжительность: 00:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F515062FDA5077B0E009D7F8F227E033E757CDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237509   (551537) от 24.07.2018
-
-ScrollNavigator 5.9.0 RePack by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа, которая дает вам возможность колесом мыши прокручивать фоновое окно.
-
-Программа, позволяющая сделать более точной, но в то же время динамичной, прокрутку колесика вашей мыши и сможет обеспечить перемещение по листам документов, имеющих стандартные полосы прокрутки, одновременно в обоих направлениях без необходимости перемещения курсора мыши на полосу прокрутки.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01DEB1E70A776F7EEF9D7307513C34ED41B2E712
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237445   (551536) от 24.07.2018
-
-D BLOCK & S TE FAN feat MC VILLAIN - Evolutionz 017 (2011) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551536.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  The Magical MysteryЖанр: HardstyleПродолжительность: 00:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B6830106472B4DEC467ED3934408C330446FEAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237506   (551535) от 24.07.2018
-
-VA - We Love Summer (2018) 2CD [MP3|320 Kbps] <Dance, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551535.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Luis Fonsi & Stefflon Don - Calypso [03:20]
-02. Alvaro Soler - La Cintura [03:23]
-03. Jax Jones Feat. Mabel & Rich The Kid - Ring Ring [03:37](   Читать дальше...   )Жанр: Dance, DiscoПродолжительность: 02:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE4C9F17251F0BDCFD377902C273647B5169D3EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237563   (551533) от 24.07.2018
-
-Digilio Lounge Music - Relax Chillout Music Summer (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mountain Road 5:08
-02. For Only A Moment 4:05
-03. Serenade 5:07
-04. Blessings Peace 4:10(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 04:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D359715CAEFF28A6BBA245730373B563FC2C6E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236854   (551532) от 24.07.2018
-
-CRYPSIS - Break Down Low (2013) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551532.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Break Down LowЖанр: HardstyleПродолжительность: 00:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6078904F5D9AD526681526772A18D3EFC0C738B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237567   (551530) от 24.07.2018
-
-Обои - Wallpapers Full HD / Кошачьи #11 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник обоев на тему КошкиФормат: JPGРазрешение файлов: 1920x1080-3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1AEA0BD48D09ABC7440E60249B68D667410CBFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237452   (551528) от 24.07.2018
-
-Spiritual Evolution - Genesis (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
+VA - Blue (2016) WFMU [FLAC|Lossless|tracks+.cue] <Ambient, Experimental, Field Recording>
 
 >>Electronic
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553321.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. In The Beginning (01:37)
-2. Let There Be Light (06:50)
-3. Earth (06:40)
-4. Oceania (05:45)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:02:19
+01. Hannes Strobl – Yves Klein (05:23)
+02. Philip Marshall – This Is How You Disappear (04:15)
+03. Simon Wickham-Smith – Cerulean Breathing (04:35)
+04. Omit – Dark Blue Down (04:59)(   Читать дальше...   )Жанр: Ambient, Experimental, Field RecordingПродолжительность: 01:09:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DDBDCFB8BDA4CD62BFE3DFF4F6B93C810E26709
+magnet:?xt=urn:btih:C73B8344988086A37D75405DBF558BC917847482
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -328,25 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237535   (551527) от 24.07.2018
+###  Публикация: 1237108   (553320) от 22.07.2018
 
-FileZilla 3.35.1 + Portable [Multi/Ru]
+Галина Демыкина | Цветные стёклышки (1981) [PDF]
 
->>Архив торрентов
->>Архив Программ
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553320.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FileZilla — это свободный многоязычный FTP-клиент с открытым исходным кодом для Microsoft Windows, Mac OS X и Linux. Он поддерживает FTP, SFTP, и FTPS (FTP через SSL/TLS) и имеет настраиваемый интерфейс с поддержкой смены тем оформления. Оснащен возможностью перетаскивания объектов, синхронизацией директории и поиском на удаленном сервере. Поддерживает многопоточную (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Рассказы для младшего школьного возраста.Жанр: Детская прозаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7CF16936261702B4E262EABBB0B2F6B3C086B8A2
+magnet:?xt=urn:btih:35AD7E0DFE2AA84E030AAF6B31C8E4EAFD72E3C5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -354,25 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237570   (551525) от 24.07.2018
+###  Публикация: 1237109   (553319) от 22.07.2018
 
-Обои - Wallpapers Full HD / Кошачьи #10 [JPG]
+Андрей Нечаев | В гости к медведю по имени Сипанг (1991) [PDF]
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553319.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник обоев на тему КошкиФормат: JPGРазрешение файлов: 1920x1080-3840x2160
+Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61DB69544652EF065DA3E3F0435E99DAF9869D0A
+magnet:?xt=urn:btih:518F8DA2F9C3FE15E849B95074F87F85C5C407CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -380,25 +131,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 692670   (551519) от 24.08.2013
+###  Публикация: 1236898   (553318) от 22.07.2018
 
-Журнал | Вязание для вас №9 (сентябрь 2013) [PDF]
+VA - Empire Records - Funky House (2018) [MP3|320 Kbps] <House>
 
->>Журналы
->>Хобби (журналы)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553318.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В журнале представлен модный трикотаж: пуловеры, топы, платья. Модели выполнены на спицах и крючком - доступно проиллюстрированы фотографиями, подробными описаниями по выполнению работы, точными выкройками и схемами узоров.Формат: PDF
+01. David Caruso - Life Is Better With Sunshine (Radio Version)
+02. Me and My Toothbrush - Hands Off
+03. Lee Cabrera - Shake It (Dj Rabinu & MD Dj Remix)
+04. Quantek - Feeling (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:01:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE09CFB294E4A681FC59880A5CFBB6F32CD37388
+magnet:?xt=urn:btih:789AF29C7F43828F3A2E81825E443C3A998578F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -406,25 +160,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 815792   (551494) от 24.08.2014
+###  Публикация: 1237070   (553317) от 22.07.2018
 
-Владимир Воланд | Все о Боге, что нужно знать атеисту (2015) [DJVU]
+VA - Markus Schulz - Global DJ Broadcast Top 20 July (2018) [MP3|320 Kbps] <Trance>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553317.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге представлено конструктивное религиозное мировоззрение, с которым может быть полезным ознакомиться человеку атеистических и материалистических взглядов, а равно и наоборот, представителям традиционных религий. Книга также будет интересна всем духовно ищущим людям и людям с открытым разумом, чья позиция по вопросам религии еще не сформирована окончательно. Затрагивается весьма широкий круг тем, начиная от собственно религиозной проблематики и оканчивая такими далеко идущими вопросами, как политическое (   Читать дальше...   )Формат: DJVU
+01. Giuseppe Ottaviani - Ozone (Markus Schulz Extended Remix)
+02. Arkham Knights - Industry (Extended Mix)
+03. Andy Moor & Adina Butar - Wild Dream (Extended Mix)
+04. Tilt - Miracle (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC19566D523FDE09CBB8A8C5A656CB62C011048E
+magnet:?xt=urn:btih:FE343C725F21E5B101DCB19AB27A87D53CC040CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -432,193 +189,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237573   (551484) от 24.07.2018
+###  Публикация: 1236971   (553316) от 22.07.2018
 
-Агата Кристи | Эркюль Пуаро (Книга 21). Свидание со смертью (2018) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551484.jpg" />
-</div>
-
-
-###  Подробнее
-
-На решение загадки у Пуаро всего лишь сутки!
-Не осталось никаких следов!
-Кто убил старуху?
-Путешествуя по Востоку, Эркюль Пуаро остановился в Иерусалиме. Однажды вечером, стоя у открытого окна своего гостиничного номера, он вдруг услышал фразу, произнесенную где-то в стороне: «Ты ведь понимаешь, что ее нужно убить, правда?». Поначалу сыщик не придал значения этим (   Читать дальше...   )Жанр: ДетективИздательство: АудиокнигаПродолжительность: 05:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40BA9A593A78D5F882A7FCD062C5098294B2AED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237485   (551482) от 24.07.2018
-
-Airmail 3 v3.5.9 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Airmail – это почтовый клиент для операционной системы Mac OS X, поддерживающий сервисы Gmail, Google Apps, iCloud, Yahoo!, AOL и IMAP.
-
-По словам авторов программы, ее интерфейс «очень легкий, выполнен в минималистическом стиле». При создании дизайна Airmail разработчики вдохновлялись официальным твиттер-клиентом под Mac. Программисты не пошли на поводу у стереотипов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Bloop S.R.LПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F708DC729D14068EE65CA8A27F91D8900507FF65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237572   (551481) от 24.07.2018
-
-Malin Andersson - Follow (2018) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Deep Water (3:52)
-02 - Follow (3:26)
-03 - Giving It Away (3:37)
-04 - Those Eyes (3:38)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7DBAD90D421B489B683CB3D775304A1B5D1E8E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237372   (551480) от 24.07.2018
-
-Arch FX - Friendship (2018) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551480.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  FriendshipЖанр: HardstyleПродолжительность: 00:08:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45DA9C1CDF36CF8857B329E1547CB7841BF339A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237560   (551479) от 24.07.2018
-
-Обои - Ultra HD 3840x2160 Wallpaper Pack 317 [JPG, PNG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551479.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка обоев на различную тематикуФормат: JPG, PNGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B7E8DF4D9504D09855047174688CAA3D3B34B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237519   (551478) от 24.07.2018
-
-Andre Gagnon - Les Jours Tranquilles (1993) [FLAC|Lossless|tracks + .cue] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Un Piano Sur La Mer
-02. Chanson Du matin
-03. Photo Jaunie
-04. Souvenir Lointain(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:901EEE9DD7FEADCCDC26B9C69E7FB52171E84855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237497   (551477) от 24.07.2018
-
-Г.К. Зайцев | Устройство, эксплуатация и ремонт тепловозов серии 2ТЭ25А (2ТЭ25К) (2014) [DJVU]
+А. Киров (сост.) | Молодёжь в 1905 году (1926) [PDF]
 
 >>Научная и техническая литература
->>Техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553316.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рассмотрено устройство узлов и агрегатов тепловоза, систем отопления, вентиляции, кондиционирования, торможения. Приведены технические характеристики, возможные неисправности и методы их устранения. Изложены основные правила подготовки тепловоза к эксплуатации, проверки технического состояния систем пожаротушения, периодичности ремонтов, техники безопасности.
-Предназначено (   Читать дальше...   )Жанр: учебное пособиеФормат: DJVU
+В книге собраны наиболее характерные материалы об участии молодежи в первой революции. В качестве вводной статьи помещен доклад тов. Ленина о революции 1905 г., дающий полное представление о ходе революции и ее уроках. Затем даны три небольшие статьи в виде обзоров, освещающие движение рабочей, крестьянской и учащейся молодежи, а также и взаимоотношения партии и (   Читать дальше...   )Жанр: История, политология, публицисткаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2BC2464D3207C9D28F62B4CEB8D4059B0061B5C4
+magnet:?xt=urn:btih:43F3DD0B90EDDA4954C578A9CD326A0CED45A5D4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -626,28 +215,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237557   (551476) от 24.07.2018
+###  Публикация: 1237178   (553315) от 22.07.2018
 
-VA - New Italo Disco: Reloaded Hits & New Songs (2018) [MP3|320 Kbps] <Disco, Nu-Disco>
+Юкио Мисима | Смерть в середине лета [Сборник] (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553315.jpg" />
+</div>
+
+
+###  Подробнее
+
+В семье главных героев случилась ужасная трагедия — погибло двое детей. На протяжении долгого времени они пытаются бороться с этим ужасом, но тень смерти теперь витает над чувствами и мыслями семейства.
+Юкио Мисима (настоящее имя Кимитакэ Хираока, 1925-1970) - самый знаменитый и читаемый в мире японский писатель, автор сорока романов, восемнадцати пьес, многочисленных (   Читать дальше...   )Жанр: Современная проза, рассказыПродолжительность: 04:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F31AA23CC98C8BCE2399EBB1CF933D2FAEF99AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236950   (553313) от 22.07.2018
+
+VA - 100X Zomer (2018) 5CD [MP3|320 Kbps] <Dance>
 
 >>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553313.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marc Reason - I Like Chopin (Radio Mix) (3:34)
-02. Casandra - Take Me Away (Birizdo 80s Italo Radiomix) (3:24)
-03. Lola Lee - Ding Dong Song (4:03)
-04. Den Harrow - Don't Break My Heart (Reload Mix) (2:55)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:48:42
+CD01
+01. Luis Fonsi & Demi Lovato - Echame La Culpa
+02. Zedd ft. Maren Morris & Grey - The Middle
+03. Axwell - Dreamer(   Читать дальше...   )Жанр: DanceПродолжительность: 05:35:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C01656BB711BDAC8640A4A171D94C97ACE94A24A
+magnet:?xt=urn:btih:7B7165745B81CD849278C44DA1B237B6E9A002D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -655,25 +271,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237574   (551475) от 24.07.2018
+###  Публикация: 1237105   (553312) от 22.07.2018
 
-Обои - Desktop Wallpapers Full HD. Part (242) [JPG]
+Юрий Коваль | Чистый Дор (1970) [PDF]
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553312.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+Рассказы для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:403E4234542BC368DB33BB1965875C2F88948D1D
+magnet:?xt=urn:btih:E71C70FDC1DBAA219C07B1945CA767CCCDFDEDC1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -681,25 +297,417 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237569   (551474) от 24.07.2018
+###  Публикация: 815021   (553302) от 22.08.2014
 
-Обои - Desktop Wallpapers Full HD. Part (243) [JPG]
+Подшивка журналов | Приусадебное хозяйство №7, 8 (июль, август 2014) [PDF]
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553302.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+Журнал «Приусадебное хозяйство» знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не обойдены вниманием и владельцы домашних ферм — здесь они находят ответы на многие (   Читать дальше...   )Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81CB0198770CBC01B2B16E0D00F35795166C79B7
+magnet:?xt=urn:btih:D45DE49BDF156D3A0028C25BE527C5A9DA092E6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237203   (553291) от 22.07.2018
+
+Joker - Joker (1990) 1991, TECP-25726 [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553291.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Want Love (04:48)
+2. Say Yeah (04:25)
+3. Lorraine (04:14)
+4. Party for Your Life (03:42)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0028761770A42CE8E7BEC81F8986B64F8976AA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237060   (553290) от 22.07.2018
+
+VA - Black Hole Trance Music 07 - 18 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Moor & Adina Butar - Wild Dream (Extended Mix)
+02. Bobina - Something About You (Extended Mix)
+03. Arkham Knights - Industry  (Extended Mix)
+04. Ferry Corsten & DIM3NSION - Safe With Me (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C5E8AE6558FD50905DACF0DF584B4DBF9E8E5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236918   (553287) от 22.07.2018
+
+VA - ЕвроХит Топ 40 Europa Plus 20.07.2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta feat. Sia - Flames 3:15
+02. Consoul Trainin feat. Steven Aderinto & DuoViolins - Obsession 3:02
+03. Dynoro & Gigi D'Agostino - In My Mind 3:05
+04. C-BooL feat. Giang Pham - DJ Is Your Second Name 3:33(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC889F0900372C2E3D5ADFFB44A1DD7A0C281119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237112   (553286) от 22.07.2018
+
+Jan Hammer - Seasons, Pt. 1 (2018) [MP3|320 Kbps] <Synth-Pop, Instrumental>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miami: Night
+02. 68 Reasons
+03. Ocean Drive
+04. Suite European(   Читать дальше...   )Жанр: Synth-Pop, InstrumentalПродолжительность: 00:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9CC9157FB3113043F2B21E5579AC5CAEC286BF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237103   (553285) от 22.07.2018
+
+Daddy DJ - /Folder (2015) Deluxe Version [MP3|320 Kbps] <EuroDance, Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Mirror (4:02)
+02. That's The Way Life Goes (3:50)
+03. Crying (3:30)
+04. Crying (HiLo Mix) (3:40)(   Читать дальше...   )Жанр: EuroDance, Euro-HouseПродолжительность: 01:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD1F68CFC1B43719AAF53231BE196DD39680786
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237146   (553284) от 22.07.2018
+
+Джек Килборн | Веб Камера (2016) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто-то охотится на вебкам-моделей.
+Он прячется в недосягаемых закоулках "даркнета".
+Он смотрит на тебя. Прямо сейчас.
+Когда он не может больше смотреть, он звонит.(   Читать дальше...   )Жанр: УжасыПеревод: Эмили БраунФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E80F85A313FE9B70125AFD2D5789B714B0ABD85E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237220   (553283) от 22.07.2018
+
+Обои - Ultra HD 3840x2160 Wallpaper Pack 316 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553283.jpg" />
+</div>
+
+
+###  Подробнее
+
+В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D19268F84CDE0C546CB8B1315A43ADCF3B4717E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237101   (553282) от 22.07.2018
+
+Daddy DJ - Let Your Body Talk (2001) [MP3|320 Kbps] <Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daddy DJ (Chico & Tonio Radio Edit) (3:39)
+02. Where Are You? (3:30)
+03. Over You (Original Radio Edit) (3:36)
+04. Let Your Body Talk (4:30)(   Читать дальше...   )Жанр: Euro-HouseПродолжительность: 01:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44DF145757E6A28B5951FBD54EDA3577F453F3DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237223   (553280) от 22.07.2018
+
+Обои - Ultra HD 3840x2160 Wallpaper Pack 314 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553280.jpg" />
+</div>
+
+
+###  Подробнее
+
+В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C08EE216379184503195C5C62CA48CDD8429AB6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236970   (553279) от 22.07.2018
+
+Джон Руссо | Нелюди (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553279.jpg" />
+</div>
+
+
+###  Подробнее
+
+В тихом мирном городке умирающая в собственной постели старушка предрекает приход змей.
+И однажды змеи все же приходят... но не в своем обычной облике, а под личиной потерявших разум террористов...Жанр: УжасыПродолжительность: 09:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0273D70B7C8D463873F059508A49F2DD0C94B374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237254   (553278) от 22.07.2018
+
+Gayalaxy - Ashes of Time (2018) Astropilot Music [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashes of Time (11:50)
+02. Hang on the Moon (10:21)
+03. Duduk Spell (10:18)
+04. Gayalaxy & Joyfull Natives – Triskel Gateway (06:56)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 01:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E062F005F057234CC24170575188C842A31C6F50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237222   (553277) от 22.07.2018
+
+Обои - Ultra HD 3840x2160 Wallpaper Pack 315 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553277.jpg" />
+</div>
+
+
+###  Подробнее
+
+В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFE028DFA717A2AF240A174F30BA063ECC53DA46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237034   (553276) от 22.07.2018
+
+Panic! At the Disco - Pray For The Wicked (2018) [FLAC|Lossless|tracks + .cue] <Alternative, pop rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Fuck a) Silver Lining (2:48)
+02. Say Amen (Saturday Night) (3:09)
+03. Hey Look Ma, I Made It (2:49)
+04. High Hopes (3:10)(   Читать дальше...   )Жанр: Alternative, pop rockПродолжительность: 00:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F431041FB339B47964082FA77F6108A3A4958E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237088   (553275) от 22.07.2018
+
+Гамлет / Hamlet (2000) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие этого фильма, снятого по мотивам бессмертной драмы Шекспира, разворачивается в современном Нью-Йорке. Гамлет предстает в роли режиссера, которому после смерти отца с трудом удается справиться с управлением компанией «Датская корпорация». После трансцендентного опыта общения с призраком своего отца, он погружается в пучину сомнений, нерешительности и страданий…Производство: США / double A FilmsЖанр: Триллер, Драма, МелодрамаРежиссер: Майкл АлмерейдаАктеры: Итэн Хоук, Кайл МакЛахлан, Дайан Венора, Сэм Шепард, Билл Мюррей, Лив Шрайбер, Джулия Стайлз, Паула Малкомсон, Стив Зан, Джеффри Райт, Кейси Аффлек, Тим Блэйк Нельсон, Карл Джиари, Пол Бартел (I), Ларри Фесенден, Келли СебастьянПеревод: Профессиональный (Многоголосый, закадровый) (iTunes)Субтитры: Русские (вшитые, отключаемые), Английские (вшитые, отключаемые)Продолжительность: 01:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92AF8A8DC8E4B98412B03F9B4BF5F5DD628B5D24
 ```
 
 https://mybot314.ru/tekegram_catalog/

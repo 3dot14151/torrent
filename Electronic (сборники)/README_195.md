@@ -1,3 +1,61 @@
+###  Публикация: 1655938   (203956) от 28.08.2023
+
+VA - I'm Listening Now 4 (2023) [MP3|320 Kbps] <Club, House, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dmitry Glushkov - It's deep, it's love (Original mix) (5:39)
+02. DJ Sandro Escobar, BoValigura - Блеск шик (Brant & Olshevsky Mash Up) (4:59)
+03. Why So Sad - Don't wake me up (4:40)
+04. Block & Crown, Atilla Cetin - How Many Nations (Original Mix) (4:28)(   Читать дальше...   )Жанр: Club, House, OtherПродолжительность: 05:29:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:411C166500A21A2097438EA52B1B470DD80ED35E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609732   (203124) от 04.02.2023
+
+VA - The Sonic Blade: Synthwave Electronic Mix (2023) [MP3|320 Kbps] <Synthwave, Electronic, Experimental>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203124.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Boys Noize & Abra - Affection
+002. Mike Dean - Challenger
+003. Twilight Ritual - Receiving The Stigma
+004. Jose Diaz & Bias - Last Word(   Читать дальше...   )Жанр: Synthwave, Electronic, ExperimentalПродолжительность: 10:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BDC982C204F57E27B0DB3CC956302CB4DBFDE20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610653   (202939) от 08.02.2023
 
 VA - Крутые пушки Зима 2023 [MP3|320 Kbps] <Club, Dance, Other>
@@ -687,64 +745,6 @@ VA - From The Depths (2023) [MP3|320 Kbps] <Electronic, Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEEDB5F5976678E0B653D998AD71A8811C057249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628315   (199416) от 22.04.2023
-
-VA - Friday Reloaded Vol.01 (2023) [MP3|320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199416.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hoten - Sunrise
-002. Modern Brothers - The Journey Will Begin
-003. Pigsie - Phor
-004. Outflux With Hypers Ft Caelu - Afterlife(   Читать дальше...   )Жанр: Dance, Club, House, ElectroПродолжительность: 11:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56EA33F9D26DF3ED96DAB1A9D1EF2116BDE58B99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628325   (199414) от 22.04.2023
-
-VA - Deep House Pool Party (2023) [MP3|320 Kbps] <Deep-House, Electro, Tech-House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199414.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Amcu - Man
-002. Deljoi - Inform The Horn
-003. Maty Badini - Nostoppin
-004. Juan Barrero - Te Conoci(   Читать дальше...   )Жанр: Deep-House, Electro, Tech-HouseПродолжительность: 11:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BC3295D0EEE570AB6F784B5255F0D97C83DAF22
 ```
 
 https://mybot314.ru/tekegram_catalog/

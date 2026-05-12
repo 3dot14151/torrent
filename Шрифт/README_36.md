@@ -1,3 +1,55 @@
+###  Публикация: 1811286   (16323) от 09.08.2025
+
+Шрифты - Behance - Wladyslaw Borisov - Advaken Sans - 227558651 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт с кириллицей.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90D6E85F325F222D3310F1ABCCD236D52F80B1F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811455   (16145) от 09.08.2025
+
+Шрифты - Behance - Alexey Atapin - Lost Cap font - 210600235 [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Декоративный шрифт с кириллицей.Формат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6295DA605662CC7F191C9A9A278F984395244EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811456   (16144) от 10.08.2025
 
 Шрифты - Behance - Alexey Atapin - Motion - 211991577 [TTF]
@@ -626,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:432DA97C62A96F38C1FD918F1639853E552DF331
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803574   (13577) от 24.06.2025
-
-Шрифты - Sentavio - Envato - Ronald Gunfire Serif Font Family - UQMZEGL [OTF, EOT, SVG, WOFF, WOFF2, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей, с засечками.Формат: OTF, EOT, SVG, WOFF, WOFF2, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A43E1F9D97AC0865017F84F775EEE2B3DC712025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803578   (13575) от 24.06.2025
-
-Шрифты - Sentavio - Envato - Skyrox Font - AC42EQ8 [OTF, EOT, SVG, WOFF, WOFF2, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей, создает современную футуристическую атмосферу и стиль в стиле хай-тек.Формат: OTF, EOT, SVG, WOFF, WOFF2, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00D9D035D9748EE2005C411E30EEBF4462D815A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

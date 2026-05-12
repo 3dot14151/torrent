@@ -1,3 +1,67 @@
+###  Публикация: 655174   (821520) от 12.05.2013
+
+Antonio Lucio Vivaldi-Concerti per mandolini: Europa Galante, conductor Fabio Biondi (2001) /2002 Virgin Classics [flac|Lossless]<Chamber>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto in G major for 2 mandolines and strings RV532
+1 I. Allegro 3:57
+2 II. Andante 2:46
+3 III. Allegro 3:20
+Concerto in C major for 2 violini in tromba marina, 2 flauti dritti, 2 madolini, 2 salmoe, 2 teorbe e violoncello RV558
+4 I. Allegro molto 4:52
+5 II. Andante molto 1:29
+6 III. Allegro 2:54
+Concerto in G minor per violino, 2 flauti dritti, 2 oboi, fagotto ed archi RV 576, 'dedicato a Sua Altezza Reale di Sassonia'
+7 I. Allegro 4:13(   Читать дальше...   )Жанр: BaroqueПродолжительность: 01:07:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7E0038B2BFE6B790A778ABD530F9ADE50E357E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503181   (821233) от 18.10.2021
+
+VA - Essential Classical Piano (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aldo Ciccolini - Suite bergamasque, L. 75 - III. Clair de lune (4:43)
+02. Alexis Weissenberg - Nocturnes, Op. 9 - No. 2 in E-Flat Major (Andante) (4:40)
+03. Henrik Mawe - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 -Moonlight - - I. Adagio sostenuto (5:26)
+04. Kun-Woo Paik - Hungarian Rhapsodies, S. 244 - No. 12 in C-Sharp Minor (10:49)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB6DE383589D15CA10FE881F9128D4720DFDB40C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 653376   (821213) от 12.05.2013
 
 Ансамбль Мадригал, Андрей Волконский - Cерия Тысяча лет музыки (после 1981) 16 LP [FLAC|Lossless]<Сlassic>
@@ -694,64 +758,6 @@ VA - Great Romantic Piano Favorites (The World's Most Beautiful Melodies) (1997)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A371E93D399C7DD9221B8AF3A3932B9E466E14DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384021   (805890) от 18.05.2020
-
-Lindsey Stirling - Warmer In The Winter (2018) Deluxe Edition [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Classical Crossover>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance Of The Sugar Plum Fairy
-02. You’re A Mean One, Mr. Grinch (feat. Sabrina Carpenter)
-03. Christmas C’mon (feat. Becky G]p)
-04. Carol Of The Bells(   Читать дальше...   )Жанр: Classical CrossoverПродолжительность: 01:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A65063BE4ABC81EC02FFB82C8BE2BE9D844A2E20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119769   (805130) от 29.03.2017
-
-La Grande Ecurie et la Chambre du Roy, Jean-Claude Malgoire - Jean-Philippe Rameau - Les Paladins (Паладины) (1990) [FLAC|Lossless|image + .cue] <Baroque opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805130.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01 - ACTE I: Ouverture. Galop, Menuet, Rondeau
-02 - Scène 1: Argie, 'Triste séjour, solitude ennuyeuse'.
-03 - Scène 2: Orcan, 'Argie, holà... Nérine...'.(   Читать дальше...   )Жанр: Baroque operaПродолжительность: 02:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECF1147D4A0909153D6AB1EEAFE7960F5261B0BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,136 @@
+###  Публикация: 301513   (990753) от 28.01.2013
+
+Chakra's Dream - 27 albums (2002 - 2009) [MP3|128-320 кб/с]<New age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990753.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:38) 01. The Spirit of Reiki
+(2:10) 02. Quality of Life
+(4:22) 03. Life Energy
+(3:16) 04. Atonement
+(3:33) 05. Karma
+(3:14) 06. Satori
+(3:15) 07. Touch
+(3:51) 08. Body and Mind
+(3:56) 09. The Gift Of Life
+(4:07) 10. Spiritual Conciousness(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 01:06:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353689   (990691) от 19.01.2020
+
+Leonard Cohen - Popular Problems (2014) [FLAC|Lossless]<Contemporary folk, Soft rock, Singer/Songwriter>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.   Slow   (3:25)
+02.   Almost Like The Blues   (3:28)
+03.   Samson In New Orleans   (4:39)
+04.   A Street   (3:33)(   Читать дальше...   )Жанр: Contemporary folk, Soft rock, Singer/SongwriterПродолжительность: 00:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E595AC3E693FD766F63A049757B867C37C352168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609947   (990575) от 29.01.2013
+
+VA - Angel Prayer (2012) [MP3|320 кб/с]<New age, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990575.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:50) 01. Gary Stadler & Stephannie - Garden of Dreams
+(4:32) 02. Alquimia - She Moved Through the Faire
+(4:45) 03. Stella Maris - To the Promised Land
+(4:24) 04. Sharon Kight - May Morning Dew
+(4:10) 05. Gary Stadler & Singh Gaur - Laura's Hill
+(6:51) 06. David Gordon - Beneath the Misty Fell
+(3:13) 07. Achillea - The Monks of Lindisfarne
+(8:27) 08. Everstar - Departure from the Shire
+(5:48) 09. Artemsia - The Fairie Muse
+(4:41) 10. Steve Gordon - Banks of the Avonmore(   Читать дальше...   )Жанр: New age, CelticПродолжительность: 01:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:803DE539DD392EEB4F4B3DDF7BA435F084FB50C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 162542   (990210) от 03.01.2010
+
+Snatam Kaur - Liberation's Door (2009) [MP3|320 kbps]<mantra, spiritual, meditation, new age, female vocalists
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Servant of Peace (7:13)
+02. Liberation's Door (11:01)
+03. Crimson (5:02)
+04. Mother's Blessing (8:11)
+05. Har Har Ram Das Guru Hai (8:19)
+06. Pritham Bhagaautee (7:05)
+07. Charan Sat Sat (6:54)
+08. Ardas Bhayee (9:24)
+09. Cherdi Kalaa (9:44)Жанр: mantra, spiritual, meditation, new age, female vocalistsПродолжительность: 01:12:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 609967   (990195) от 29.01.2013
 
 VA - Romantic Instrumentals. Candle In The Wind (2CD) (1998) [MP3|320 кб/с]<Instrumental, Easy Listening>
@@ -652,134 +785,6 @@ VA - Restart 2020 Chillout (2020) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C829429786327B1223A78A6E0E457E61972F37AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971873   (984472) от 04.01.2016
-
-Mashrou' Leila - Ibn El Leil (2015) [MP3|320 кб/с] <Ethnic, Indie, Pop Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aoede
-02. 3 Minutes
-03. Djin
-04. Icarus(   Читать дальше...   )Жанр: Ethnic, Indie, Pop RockПродолжительность: 00:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B58C3A76D1F8541C9AC83A5A20E5B62482E2924
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 165101   (983989) от 09.01.2010
-
-Enigma - Revival from Disuse (feat. Fato Deejays) 2009 (2009) [MP3|320 kbps]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endless Quest 2009 (Fato Deejays Mix)
-02. Carly's Loneliness (Fato Deejays Remix)
-03. Downtown Silence 2009 (Fato Deejays After The Contest Mix)
-04. Downlown Silence (Fato Deejays Remix)
-05. I Love You, I'll Kill You (Fato Deejays Call It Love Mix)
-06. A Part Of Experience (Mix - Feel Me Heaven, Eppur Si Muove)
-07. The Future Megamix (By Fato Deejays)
-08. Sadeness (Fato Deejays Club Mix)
-09. We Will Rock You (Enigma, Queen, Fato deejays, Shane 54 Mix)
-10. Dancing With Mephisto (Dance In Club Mix)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:14:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355420   (983440) от 26.01.2020
-
-Jim Brickman - Interstellar (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interstellar
-02. Starship
-03. Starbright (Interstellar Mix)
-04. Time Continuum(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:27:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78D6947401DC6314606BDA7371A23DBD642FE422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613057   (982455) от 04.02.2013
-
-Ennio Morricone - Once Upon A Time... (2004) [FLAC|Lossless]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-1. Once Upon A Time In The West - Man With The Harmonica
-2. A Fistful Of Dollars
-3. For A Few Dollars More
-4. Days Of Heaven - The Harvest
-5. The Five Man Army
-6. Once Upon A Time In The West - Jill's Theme
-7. The Men From Shiloh
-8. Guns For San Sebastian - Overture
-9. Two Mules For Sister Sara(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 56:35
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1094261   (930282) от 17.01.2017
+
+Проекты - VideoHive - Inspirational Parallax Slideshow - 19219370 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект с эффектом параллакса для создания слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD8282B83E5364A6687F52FF9866EFC937550DA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094246   (930279) от 17.01.2017
+
+Проекты - VideoHive - Smooth Slide [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания фото-видео слайдшоу.
+Так же можно использовать в качестве промо-ролика или начального видео.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA438618385162F1D6078E2884961AE7A28375E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986493   (930265) от 14.02.2016
 
 Проекты - VideoHive - Logo In Water [AEP]
@@ -629,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8C93FAF1C80F590AC9DF9DBE7C27EF556F04202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094888   (927612) от 19.01.2017
-
-Проекты - VideoHive - Photo World [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo World - простое слайд-шоу с 3D-переходами.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFCF22079317E1AE78B80009F32D1001F51570E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094813   (927559) от 19.01.2017
-
-Проекты - VideoHive - Cinematic Opener Slideshow - 19253490 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайдшоу. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C15F89193A17A0821D9B4C02C8CA2D8527AB8E12
 ```
 
 https://mybot314.ru/tekegram_catalog/

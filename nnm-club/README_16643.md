@@ -1,22 +1,25 @@
-###  Публикация: 1177124   (364678) от 24.10.2017
+###  Публикация: 1255343   (366232) от 17.10.2018
 
-Windows 7 Ultimate SP1 x64 By Vladios13 v.24.10 [Ru]
+Howard Shore - Edge of Darkness (2010) [FLAC|Lossless|tracks + .cue] <Score, Modern>
 
->>3
->>4
+>>Other Styles
+>>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366232.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборка сделана на основе оригинального образа ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391. Установлены все важные и рекомендуемые обновления на момент создания сборки 24 октября 2017 года. Интегрирован Internet Explorer 11. Более подробно о сборке читайте ниже.Язык интерфейса: Русский
+01. Titles (2:18)
+ 02. Mourning (3:24)
+ 03. Beach (2:35)
+ 04. Knife (2:25)(   Читать дальше...   )Жанр: Score, ModernПродолжительность: 00:41:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:020D36BF637B8AC66BC3BD098DF59A3C854D95A6
+magnet:?xt=urn:btih:18CDD4CBBEC8DF0493C4048E3BB2E8A05B892E57
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,53 +27,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 994992   (364677) от 24.10.2017
+###  Публикация: 1255289   (366231) от 17.10.2018
 
-XCOM 2 (2016) [Ru/Multi] (29.08.2017/dlc) License CODEX [Digital Deluxe Edition]
+Outline 3.21.3 [En/Ru]
 
->>3
->>След.
+>>Программы для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366231.jpg" />
 </div>
 
 
 ###  Подробнее
 
-XCOM 2 – это продолжение полюбившейся игрокам и критикам стратегии XCOM: Enemy Unknown, получившей в 2012 году титул «Игра года». Земля изменилась. Двадцать лет прошло, с тех пор как мировые лидеры подписали акт о безоговорочной капитуляции перед пришельцами. Организация XCOM, последний рубеж обороны Земли, уничтожена, а её остатки рассеяны по миру.Тип издания: LicenseРазработчик: Firaxis Games, Feral InteractiveЖанр: Strategy (Real-time, Turn-based, Tactical), 3DЯзык озвучки: Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F33CD503B0AAD120B9BD0E027C93AA762022B473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013580   (364676) от 24.10.2017
-
-Евгений Карташов | Photoshop для фотографа 3.0 (2016) HDTV [H.264/1080p]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание 2016 года курса «Photoshop для фотографа 3.0» от известного фотографа Санкт-Петербурга — Евгения Карташова. Вас ждут 130 видеоуроков по всем аспектам обработки фотографий в Adobe Photoshop и Camera Raw, а также более 140 исходных фотографий для ваших тренировок и наработки практики. Работают только те знания, которые получены в результате практики.
+Outline для Maс это интуитивное приложение для заметок с удобной организацией рабочего пространства: блокноты, секции, группы секций и страницы помогут Вам содержать записи в порядке независимо от сложности их структуры.
 
-Так же (   Читать дальше...   )Жанр: Ретушь фотоПродолжительность: 24:12:20
+Outline для Маc идеален для студентов, преподавателей, врачей, юристов, руководителей и всех, чья повседневная жизнь включает ведение записей любого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: октябрь 2018Разработчик: © GORILLIZED CORPORATIONПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83A4CE2471CF0512CF41108F88807D81A86326ED
+magnet:?xt=urn:btih:F0635E311AE3ADC15E48E9C7D26D75FB081B7398
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -78,195 +55,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 294573   (364675) от 24.10.2017
+###  Публикация: 1255251   (366230) от 17.10.2018
 
-Видеоуроки Adobe Photoshop CS3-CS5 от Зинаиды Лукьяновой и Евгения Попова [2007-2013][SWF][Обновление 11.05.2015]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все уроки в формате SWF и находятся на одной странице навигации в файле (index.html) - это очень удобно.  Просматривать эти уроки можно через браузер Opera или Mozilla Firefox, если у Вас установлен PlugIn для браузера.Жанр: Обучающие материалыПродолжительность: 32:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85D1C0B8A513D9F833BA5B58B9E520BBD25F1ECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070877   (364674) от 08.11.2016
-
-VA - Additional Deephouse (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simplex Sensus - Right Behind (07:14)
-02. Flash Is Fast - Clean Your Desk (07:11)
-03. Circuito Zeta - Step Down (07:18)
-04. Dan Rubell - My Love (DJ Fopp Mix) (06:12)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:17:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25D3DAF2E48E121FC596477D62433EA7CC629E9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070761   (364673) от 08.11.2016
-
-VA - Sense Of Deephouse (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lab of Music - The Fall (5:30)
-02. Simplex Sensus - Rhyme Master (6:16)
-03. H.a.n.t. - You Give Me (5:12)
-04. Chiffre 100 - Backshore (6:49)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6ED13B19DC4BCD755695D9153D122EF5F1BE568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070962   (364672) от 08.11.2016
-
-Э. Фиммен | Буржуазная и пролетарская Европа [«Акционерное Общество Европа» и Всеевропейский Совет Профессиональных Союзов] (1924) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364672.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своей книжке автор пытается установить главные черты новейшего развития капиталистической организации и указать на национальные и международные проблемы, вытекающие отсюда для профессионального движения.Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:639D6390A63D9F2A718F09E9148D0CE62113E00B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070959   (364671) от 08.11.2016
-
-Nice Clipboard - a cloud synced clipboard manager 1.3.6 [En]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_364671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличная реализация менеджера буфера обмена
-Чистый, привлекательный, простой в использовании. Нет-установки-ICloud синхронизация  с другими компьютерами Mac и c IOS устройствами.
-
-Nice Clipboard - менеджер буфера обмена, который всегда ждет вас под значком Menubar на вашем Mac или на главном экране на вашем iPhone. Он синхронизируется с помощью ICloud между вашими (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 ноября 2016Разработчик: Jedrzej GronekПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070755   (364670) от 08.11.2016
-
-VA - Amsterdam Dance Essentials 2016: Deep House (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KIWAMU - Life Style (Original Mix) (6:36)
-02. Tim Bell - Oceans (Original Mix) (6:10)
-03. Daemon Carter - Panorax (Original Mix) (5:26)
-04. Vinicius Valis - Dark Basement (Original Mix) (5:40)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F72B4101B4846D35E0735CF2BEB2E4E6A5997DC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070863   (364669) от 08.11.2016
-
-PaintCode 3.0.2 [En]
+ClearDisk 2.9 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366230.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PaintCode является отличным приложением для создания графических элементов, как в Photoshop . Но в этом случае эта программа генерирует не изображение, а Core Graphics код.
-Причины уникальности этого приложения заключаются в следующем:
-- Экономия времени разработки. Если бы Вы стали писать код для Core Graphics в ручную, то это заняло бы очень много времени, чем (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 ноября 2016Разработчик: PixelCut s.r.oПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+ClearDisk очищает ваш диск, удаляет ненужные файлы, а также ускоряет вашу систему через 5 минут!
+ClearDisk - простая и эффективная утилита, которая находит ненужные файлы на жестком диске, и позволяет удалить их, чтобы освободить место с помощью всего лишь нескольких щелчков мыши!
+
+Временные файлы создаются во время обычной работы системы, многие из которых не удаляются (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2018Разработчик: NektonyПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF9D3B22E786DDAAAEA3D6508E06251D8FA98004
+magnet:?xt=urn:btih:A173F9249739362845990E0014D681EED91F8477
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -274,28 +84,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070715   (364668) от 08.11.2016
+###  Публикация: 1327991   (366229) от 29.09.2019
 
-VA - Deephouse After Dusk (2016) [MP3|320 Kbps] <Deep House>
+Святой праведный Иоанн Кронштадтский | Мысли христианина. Дневники (2017) [PDF, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иоанн Кронштадтский (в миру — Иван Ильич Сергиев, годы жизни — 1829–1908) — священник Русской Православной Церкви, настоятель Андреевского собора в городе Кронштадте, проповедник, писатель, общественный деятель. Канонизирован в лике праведных в конце ХХ века.
+
+В течение всей жизни вёл личный дневник, а также им было написано множество духовных проповедей. Именно (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:240062CB413086ACDBBCD9717ACABCDC29E87CEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328309   (366228) от 29.09.2019
+
+Giuseppe Ottaviani - Evolver (The Extended Mixes) (2019) [MP3|320 Kbps] <Trance, Tech Trance>
 
 >>Electronic
->>House
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366228.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Diazar - Frequencies (5:07)
-02. Spiced Boogie - Lifestyle (5:40)
-03. Didier Beydts - Sheridan (6:28)
-04. Starbud - Need You (6:24)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:32:03
+01. Time Shift (Extended Mix) (06:39)
+02. Belasco (Extended Mix) (06:39)
+03. Another Day in L.A. (Extended Mix) (06:49)
+04. Empty World (Extended Mix) (06:57)(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 01:43:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2DF165FA0745CF7A911F488CD37553FE46AB443
+magnet:?xt=urn:btih:380A6127C358FD6579C477AB0AF99681D332E907
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -303,28 +141,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070706   (364667) от 08.11.2016
+###  Публикация: 1327818   (366227) от 29.09.2019
 
-VA - Feeling Lounge: Essential Selection (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+MacPilot 11 v11.0 [En]
 
->>нет
->>нет
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_364667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366227.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Don Gorda Project - Observations
-02. Enrico Donner - Ocean Breathes
-03. Cane Garden Quartet - Drops of Remembrance
-04. Baghira - Nightbeat(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:21
+Лёгкое включение и отключение скрытых функций Mac OS X, оптимизация и ремонт вашей системы, выполнение множества рутинных процедур по обслуживанию системы путём простого нажатия на кнопку!
+Независимо от того, профессионал вы или начинающий пользователь, теперь вы сможете повысить производительность компьютера несколькими кликами мыши. В приложении предусмотрено выполнение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2019Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:2BAA138180D45773B56F31386BD1CE24B0829290
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -332,24 +168,23 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070763   (364666) от 08.11.2016
+###  Публикация: 1328247   (366226) от 29.09.2019
 
-VA - Заключительная осенняя дискотека 6 (2016) [MP3|256 Kbps] <Pop>
+iNet Network Scanner 2.6.7 [En]
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_364666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_366226.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001.N.A.O.M.I. - Ты Скажи 3:28
-002.Timbaland Feat. Mila J - Don't Get No Betta 3:35
-003.Элемент - Музыка 3:33
-004.Медойти - Поймав Мелодию 3:32(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:57
+iNet предоставляет Вам информацию о сети к которой подключен ваш Mac. Удобный дизайн позволяет даже неопытным пользователям получить полную информацию о вашей локальной сети.
+
+iNet показывает устройства, подключенные к вашей локальной сети, компьютер или маршрутизатор, а также их имя, IP и поставщика. iNet обнаруживает и различает Windows и Macintosh. Для большинства (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.09.2019Разработчик: BananaGlueПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий, Испанский
 
 ## Скачать торент
 ```bash
@@ -361,24 +196,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070766   (364665) от 08.11.2016
+###  Публикация: 1328295   (366225) от 29.09.2019
 
-VA - Осенняя дискотека по-русски 2 (2016) [MP3|256 Kbps] <Pop>
+VA - Hypnotic Of Peace: CHillout Empire (2019) [MP3|320 Kbps] <Chillout, Ambient, Downtempo, Relax>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_364665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_366225.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001.Kristina Dux - Стираю Границы 2:36
-002.Алексей Завьялов Feat. Олеся Слукина - Ты Не Придешь 3:18
-003.Дима Масюченко Feat. Энвер Каримов - Ты Такая Разная 4:16
-004.Светлана Винник - Идиллия 3:05(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
+001. Buddha's Eyes - Indonesia
+002. Daniel Ray - Diligence (Original Mix)
+003. Jon Wesseltoft - Soft Close-Up
+004. Coppice Halifax - Sphere(   Читать дальше...   )Жанр: Chillout, Ambient, Downtempo, RelaxПродолжительность: 11:50:34
 
 ## Скачать торент
 ```bash
@@ -390,28 +225,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070800   (364664) от 08.11.2016
+###  Публикация: 1328364   (366223) от 29.09.2019
 
-VA - Whatpeopleplay Top 100 Topseller Tracks October (2016) [MP3|320 Kbps] <House, Deep House, Electronica>
+Д. А. Гобсон | Проблемы бедности и безработицы (1900) [PDF]
 
->>нет
->>нет
+>>Разное (категория книг)
+>>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_364664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366223.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001.KiNK - Chorus 6:14
-002.Herbert - See You On Monday (Linkwood Remix) 8:42
-003.Shadowdrum - Ishara 8:10
-004.Soulphiction - Sky So High (Original Mix) 5:50(   Читать дальше...   )Жанр: House, Deep House, ElectronicaПродолжительность: 12:10:49
+Цель первой части этой книги — собрать, сгруппировать и рассмотреть некоторые главнейшие факты и силы современной хозяйственной жизни, имеющие прямое отношение к бедности, и осветить надлежащими образом некоторые предлагаемые против нее паллиативы и средства. Хотя еще остается многое сделать, чтобы поставить на научную почву изучение „положения народа", однако (   Читать дальше...   )Жанр: История, политология, социология, правоведение, экономика, публицистикаФормат: PDF
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:69CB9F79249DEC633999DFB74A96BC886E27CBC7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -419,28 +251,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070835   (364663) от 08.11.2016
+###  Публикация: 1328250   (366222) от 29.09.2019
 
-VA - Deep House Republic (2016) [MP3|320 Kbps] <Deep House>
+Schiller - Die Einlassmusik 15 (2019) [FLAC|Lossless|image + .cue] <Ambient>
 
 >>Electronic
->>House
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366222.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Liam Van Dyke - Still Dre - Skydiver Edit
-02. Eric Delgado - Breaking Free
-03. Chloe Van Doren - Shades of Blue - Lust Mix
-04. Merrick Lowell - Groovejet(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:05:44
+01. Teil I (11:16)
+02. Teil II (15:20)
+03. Teil III (9:36)
+04. Teil IV (3:55)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:00:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7AAC23C7BD3F1A6A55C33DA2E4B5C6BA6E9719BC
+magnet:?xt=urn:btih:4C4BD7ECBD7F4EBC8E0296441C6424C9CB397831
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -448,28 +280,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070806   (364662) от 08.11.2016
+###  Публикация: 1328395   (366220) от 29.09.2019
 
-VA - Endless Wide - Acousitc Session Alaska (2016) [MP3|320 Kbps] <Acousitc, Pop>
+Николь Монтгомери | Неразлучные (2019) [MP3]
 
->>Pop
->>Зарубежная поп-музыка
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366220.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jenifer Brening - Asap (Acoustic Version) (2:55)
-02. Manchester Snow - Stranger (3:30)
-03. Isabel Soares - Deserve an Award (Unplugged) (3:03)
-04. A19 - 10 Years After (Aerial Mix) (5:16)(   Читать дальше...   )Жанр: Acousitc, PopПродолжительность: 01:28:22
+Бороться с оккупировавшими твою планету ящерами или сотрудничать с новой властью - рассказ не дает однозначного ответа на этот вопрос.
+Командующему 4-м драконианским флотом Рогану Кору поставлена сложная задача: подавить мятеж ирделиан, пытавшихся освободить свою планету от захватчиков, и восстановить нормальную жизнь. Одним из главных его помощников становится член (   Читать дальше...   )Жанр: Научная фантастикаПродолжительность: 01:36:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6915D02B4D90B1822682C91331E4BE5813D8C4A4
+magnet:?xt=urn:btih:D35C29D7012614A3F1DFA86887D70D29AAC7C8CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -477,28 +307,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070714   (364661) от 08.11.2016
+###  Публикация: 1328328   (366219) от 29.09.2019
 
-VA - Sensual Beach Lounge Vol. 2 (2016) [MP3|320 Kbps] <Chillwave, Downtempo, Lounge>
+Дом на холмах / A House in the Hills (1993) WEB-DLRip [1080p] ATV (VO) [PR]
 
->>Electronic
->>Easy listening
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366219.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Charly Mclion - Open Sky (Feat Julita Elmas & Susannah Mavis - Original Mix) 03:56
-02. Twentyeight - Sunday Morning (Original Version) 05:40
-03. Mindel - Heart Beat (Original Mix) 04:16
-04. Sangar - So Beautiful (Original Mix) 04:13(   Читать дальше...   )Жанр: Chillwave, Downtempo, Lounge, Smooth JazzПродолжительность: 02:01:23
+Мечтающая о карьере голливудской кинозвезды Алекс присматривает за роскошным особняком в Беверли-Хиллз во время отъезда его хозяев — богатой и несколько странной семейной пары, не подозревая, что за домом следит жаждущий отомстить его владельцам бывший заключенный Микки. И, когда ничего не подозревающая Алекс впускает полного опасного для женского сердца обаяния (   Читать дальше...   )Производство: США, Люксембург / Delux ProductionsЖанр: Триллер, МелодрамаРежиссер: Кен ВидерхорнАктеры: Майкл Мэдсен, Хелен Слейтер, Джеффри Тэмбор, Джеймс Лоренсон, Элисса Давалос, Тейлор Ли, Тони Бэрри, Джеймс Нолленхофф, Маргарет Парк, Лару М. МаллПеревод: Профессиональный двухголосый, авторский, любительский одноголосыйСубтитры: Русские, английскиеПродолжительность: 01:31:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7ADAE8FB16EB9B9947BC4E6D827B6D0F700E574
+magnet:?xt=urn:btih:63988B78293CD28405AB29FDC88F55F7CD27C5F7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -506,138 +333,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070925   (364660) от 08.11.2016
+###  Публикация: 1328240   (366217) от 29.09.2019
 
-Bill Evans With Jeremy Steig - What's New (1969) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Straight No Chaser [05:45]
- 02.Lover Man [06:24]
- 03.What's New [04:54]
- 04.Autumn Leaves [06:18](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94B2A5A2343C7DF1286E59D14EDEB85D93244A6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070747   (364659) от 08.11.2016
-
-VA - Too Deep To Sleep Vol.1 (2016) [MP3|320 Kbps] <Deep House>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_364659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danny L. - Phenom A Str. (Original Raw Mix) (7:18)
-02. Cox & Pulse - Satisfy Me (Marc Cox & Tom Pulse Tech House Edit) (3:33)
-03. Alex Cle - Frog Orchestra (6:07)
-04. Bildertal - Playa De Barceloneta (Fullruhm Remix) (6:08)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:11:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070813   (364658) от 08.11.2016
-
-Н. Тюшевский | Национально-колониальный вопрос (1929) [PDF]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_364658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марксистско-ленинская теория есть теория революционно-освободительного движения пролетариата. Всякий политический и социальный вопрос она ставит и разрешает не с точки зрения какого-либо отвлеченного нравственного принципа вроде «свобода», «справедливость», не с точки зрения интересов «всего народа», а с точки зрения исторически-конкретных интересов классовой борьбы (   Читать дальше...   )Жанр: История, политологияФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070677   (364657) от 08.11.2016
-
-Changing Yesterday - Alive (2016) [MP3|320 Kbps] <Alternative Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alive 04:28
-02. Regrets 04:12
-03. Denial 04:05
-04. Empty Life 04:30(   Читать дальше...   )Жанр: Alternative Metal, Hard RockПродолжительность: 00:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F656F3BAF2160A92B37D11C85E27D846CFC4800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071001   (364656) от 08.11.2016
-
-Место встречи. Мряка?! (08.11.2016) SATRip
+Чудо техники с Сергеем Малозёмовым (29.09.2019) SATRip
 
 >>Документалистика и Телепередачи
->>Телешоу
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366217.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый день по будням гости в студии вместе с ведущими будут в прямом эфире разбирать наиболее актуальные темы, которые подбрасывает сама жизнь. Все, что волнует зрителей, — от сезонных эпидемий до военной операции в Сирии — может стать поводом для обсуждения.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 01:33:00
+Технологии в борьбе с тараканами! Почему насекомые возвращаются в наши дома — команда программы "Чудо техники" изучила главные ошибки, которые нельзя допускать во время борьбы с усатыми вредителями и выяснила, почему одни и те же средства одних насекомых губят, а других — нет. Из рубрики "За что такие деньги?" зрители узнают, есть ли разница между (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:39:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD66CDF1CD3F629104AAF5F7ECF0B11D435F1E4D
+magnet:?xt=urn:btih:29C1FF6EC204989AD9F86458A848F8E946AF6314
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -645,28 +359,219 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070936   (364655) от 08.11.2016
+###  Публикация: 1328292   (366215) от 29.09.2019
 
-Weather Report - Live In Offenbach 1978 (2011) 2CD, WDR[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+VA - Sunshine People (2019) [MP3|320 Kbps] <Dancehall, Reggae, Latin>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366215.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alton Ellis - Too Late To Turn Back Now
+002. Reggae Roast - Sensi Skank Reloaded
+003. Razor B - Sidung
+004. Popcaan - A Wha Suh(   Читать дальше...   )Жанр: Dancehall, Reggae, LatinПродолжительность: 11:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2449F9FA5374F9F4FCC8A80C78B48F848153C33B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950632   (366198) от 28.10.2015
+
+Футбол. Чемпионат России 2015-2016. РФПЛ. 13 тур. Терек - ЦСКА (2015) IPTV [AVC/576p]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат России 2015-2016. РФПЛ. 13 тур. Терек - ЦСКА.Телекомпания: НТВ+ Наш ФутболЖанр: Спорт, ТелепередачаФормат: TSПродолжительность: 01:08:30 + 01:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:678424653D0E40FE45B34F1DB2A95F608C9FA7B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950624   (366197) от 28.10.2015
+
+Футбол. Чемпионат России 2015-2016. РФПЛ. 13 тур. Динамо - Спартак (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат России 2015-2016. РФПЛ. 13 тур. Динамо - Спартак.Телекомпания: НТВ+ Наш Футбол HDЖанр: Спорт, ТелепередачаПродолжительность: 01:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1967D46A178AA043EB79AD013A7AF3D9721AE987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951199   (366196) от 28.10.2015
+
+Русский вопрос (28.10.2015) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366196.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Русский вопрос" – еженедельная авторская программа директора Института стран СНГ Константина Затулина.В этом выпуске: 1. Русский ответ. К итогам заседания Валдайского клуба. 2. Смотреть за детьми – лучший способ смотреть за собой. Программа "Русский вопрос" открывает дискуссию. 3. Цыплят по осени считают. К чему ведут протесты в Кишинёве?Телекомпания: ТВ-ЦентрЖанр: ТелепередачаРежиссер: Александр ДавыдовПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CEE98A147F899622D0E26BFEA325FB8B1EF0195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951045   (366195) от 28.10.2015
+
+VA - More Than Ever (2015) [MP3|320 кб/с]<Uplifting Trance, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Active Visions - Rendezvous (Original Mix)
+02. Ana Criado - The Force of The Blow (UCast Radio Edit)
+03. 2 Voices - Lights of Town (Original Mix)
+04. 7 Baltic - You Are The Light (Original Mix)(   Читать дальше...   )Жанр: Uplifting Trance, Club, ElectroПродолжительность: 04:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:797D2D31E234E31DA5D2AA5FE975C4E612DA5B70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951121   (366194) от 28.10.2015
+
+Время покажет с Петром Толстым (28.10.2015) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366194.jpg" />
+</div>
+
+
+###  Подробнее
+
+В студии "Время покажет" - разговор о состоянии рыбного хозяйства в России. Как повысить качество рыбы на прилавках отечественных магазинов? Почему отечественным производителям выгоднее отправлять рыбу на экспорт, чем везти по городам России? Как отличить качественную рыбу от некачественной? Советами и мнениями делятся эксперты отрасли, политики и экономисты. (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD88449E036C03F345B710BE283BDABF2F470291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950916   (366193) от 28.10.2015
+
+VA - Chillhouse Excitation One - 25 Smooth & Tasty House Tunes (2013) [MP3|320 кб/с]<Electronic, House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreaming of Now - S.W.
+02. Karma Kings Forgotten Moments - Coconut Control
+03. Breakfast At Crystal Lake - Tafubar, Eskadet
+04. Nowhere - Aaron Bingle(   Читать дальше...   )Жанр: Electronic, House, Chill HouseПродолжительность: 02:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE9A250480F49EEDDECF83BC7D23CB395B5DF9A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950803   (366192) от 28.10.2015
+
+Herb Ellis & Jimmy Giuffre - Herb Ellis Meets Jimmy Giuffre (1959) /1999, Verve/[APE|tracks+.cue]<Mainstream Jazz, West Coast Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366192.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01.Black Market [11:14]
-02.Scarlet Woman [09:25]
-03.Young And Fine [06:47](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 02:09:00
+01.Goose Grease [03:06]
+ 02.When Your Lover Has Gone [05:58]
+ 03.Remember [07:44]
+ 04.Patricia [04:07](   Читать дальше...   )Жанр: Mainstream Jazz, West Coast JazzПродолжительность: 00:38:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC68FF01129F942648A04397E9309A2E7C2C2860
+magnet:?xt=urn:btih:BC4694EC3E72CF57F91C6051886ACF91ABB033F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -674,28 +579,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 722492   (364628) от 14.11.2013
+###  Публикация: 950940   (366191) от 28.10.2015
 
-Смурфики 2 / The Smurfs 2 (2013) BDRip [H.264]
+М. А. Киссель | Джамбаттиста Вико (1980) [DJVU]
 
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366191.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Гаргамел создаёт Хакуса и Векси, как две капли воды похожую на смурфиков злобную парочку, надеясь всё-таки обрести магическую силу.
-Когда он узнаёт, что лишь настоящий смурф может дать ему то, что он хочет, и лишь Смурфетта способна превратить Хакуса и Векси в настоящих смурфов,
-Гаргамел похищает Смурфетту и берёт её с собой в Париж, планируя сделать её своей прислужницей. (   Читать дальше...   )Производство: США  / Columbia Pictures, Sony Pictures AnimationЖанр: Мультфильм, фэнтези, комедия, приключенияРежиссер: Раджа ГоснеллАктеры: Хэнк Азария, Нил Патрик Харрис, Брендан Глисон, Джейма Мейс, Джонатан Уинтерс, Кэти Перри, Кристина Риччи, Дж.Б. Смув, Джордж Лопес,
-Антон ЕльчинПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, английскийПродолжительность: 01:44:54
+Книга посвящена жизни и творчеству итальянского мыслителя Джамбаттисты Вико (1668-1744), одного из самых глубоких и оригинальных представителей философии истории Нового времени. Его идеи об объективном характере законов общественного развития, о значении деятельности людей в осуществлении исторического процесса и др. намного опередили свое время и оказали большое (   Читать дальше...   )Жанр: История, философияФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD05F600F304716A56491D3404B3EF9C81D4C71A
+magnet:?xt=urn:btih:251319C541DF63CE86858B2C04C14DEB35C8A080
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -703,27 +605,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 722165   (364624) от 14.11.2013
+###  Публикация: 950567   (366190) от 28.10.2015
 
-Смурфики 2 / The Smurfs 2 (2013) BDRip [1080p]
+Gerry Mulligan Quartet - Swiss Radio Days Jazz Series: Zurich 1962, vol.9  /2009, TCB Records/[FLAC|image+.cue]<Cool>
 
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366190.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Гаргамел создаёт Хакуса и Векси, как две капли воды похожую на смурфиков злобную парочку, надеясь всё-таки обрести магическую силу.
-Когда он узнаёт, что лишь настоящий смурф может дать ему то, что он хочет, и лишь Смурфетта способна превратить Хакуса и Векси в настоящих смурфов,
-Гаргамел похищает Смурфетту и берёт её с собой в Париж, планируя сделать её своей прислужницей. (   Читать дальше...   )Производство: США, Columbia Pictures, Sony Pictures AnimationЖанр: Фэнтези, Комедия, СемейныйРежиссер: Раджа ГоснеллАктеры: Хэнк Азария, Нил Патрик Харрис, Брендан Глисон, Джейма Мейс, Джонатан Уинтерс, Кэти Перри, Кристина Риччи, Дж.Б. Смув, Джордж Лопес, Антон ЕльчинПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, английскийПродолжительность: 01:44:54
+01.Utter Chaos & Presentation [02:00]
+02.Open Country [05:38]
+03.Love in New Orleans [06:06]
+04.Seventeen Mile Drive [04:41](   Читать дальше...   )Жанр: CoolПродолжительность: 00:53:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:999CDCED550B12D6EAD4A800A9E38E6571634436
+magnet:?xt=urn:btih:14C4D93469F2E1636D6A5C77856DA0B2A59DE8C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951046   (366189) от 28.10.2015
+
+Les Double Six - Rencontrent Quincy Jones (1960) /1999, Columbia/[FLAC|tracks+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tickle-Toe [02:27]
+ 02.Early Autumn [03:24]
+ 03.Sweets [02:42]
+ 04.Naima [04:17](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:08:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79DB5D73438791B31B7FDBE9FDABAB0B3F0BFFB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950770   (366188) от 28.10.2015
+
+Art Blakey & The Jazz Messengers - The Witch Doctor (1961) /1999, Capitol/[FLAC|tracks+.cue]<Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Witch Doctor [05:33]
+02.Afrique [06:59]
+03.Those Who Sit And Wait [05:55]
+04.A Little Busy [06:18](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40BA9A77EB85C930D3469C43940D8E4D4D103BCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950912   (366187) от 28.10.2015
+
+В. И. Ильин | Буржуазный плюрализм: истоки и классовый смысл (1983) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366187.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматриваются современные концепции буржуазного плюрализма в их экономической, социальной и идейно-политической формах. Анализируются их истоки, классовый смысл, причины возникновения и существования как апологетических теорий, как орудия идеологической борьбы. Отмечается их непоследовательность, противоречивость и научная несостоятельность.Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2EFB633BD2171F74655F2BA49AA9E81D6814612
 ```
 
 https://mybot314.ru/tekegram_catalog/

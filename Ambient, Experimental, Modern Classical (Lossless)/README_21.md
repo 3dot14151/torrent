@@ -1,3 +1,32 @@
+###  Публикация: 1194865   (152369) от 27.12.2017
+
+Dub Tractor - Hello Ambient Wash (2017) Music For Dreams [FLAC|Lossless|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C8 90 (06:45)
+ 02. Sine Song 5 (05:08)
+ 03. Stay Home (04:45)
+ 04. Wow (05:30)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22880185628316FEAFDA0D854D55B4233A9C69CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202885   (148562) от 24.12.2019
 
 Snufmumriko - Discography 10 Releases (2012-2019) Spiritech, Lagerstätte, Dronarivm  [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Field Recording, Techno Ambient>
@@ -716,35 +745,6 @@ Aes Dana - Far & Off (2016) Remastered, 2024, Ultimae Records [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97AE859CCBD3CC3A31989875AFC0DEA3EFEB861A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938736   (50729) от 08.07.2024
-
-Brock Van Wey (bvdub, East Of Oceans, Earth House Hold) - Discography 69 Releases (2007-2021) [FLAC|Lossless]<Dub Techno, Downtempo, IDM, Ambient>
-
->>След.
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Rains, Dark Rooms (11:10)
- 02. Faded Times, Future Truths (09:45)
- 03. Endless Drifts, Empty Dreams (11:28)
- 04. Acid Lies, Ageless Loves (09:50)(   Читать дальше...   )Тип издания: CD, WebЖанр: Dub Techno, Downtempo, IDM, Techno, Ambient •Продолжительность: 80:42:58 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:322027BD4ED1B1B227BEBF5D7358C798A3A18974
 ```
 
 https://mybot314.ru/tekegram_catalog/

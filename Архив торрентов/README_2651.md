@@ -1,22 +1,22 @@
-###  Публикация: 1059321   (463693) от 03.10.2016
+###  Публикация: 940949   (464303) от 26.09.2015
 
-MetaProducts Offline Explorer Enterprise 7.3.4530 [Multi/Ru]
+Татьянина ночь (2014) WEB-DLRip [H.264/720p-LQ] (серии 1-9 из 9)
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464303.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MetaProducts Offline Explorer Enterprise — мощнейшая программа, позволяющая скачивать как отдельные файлы, так и целые веб-сайты (HTTP, FTP и HTTPS) на жесткий диск для их последующего офф-лайн просмотра как на отдельном компьютере, так и пользователями целой локальной сети. Используя Offline Explorer Enterprise, вы можете одновременно качать неограниченное количество (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+СССР, начало 80-х годов. Живёт в Москве интеллигентная семья Голубевых: отец — профессор МГУ Александр Голубев, мама — тренер по художественной гимнастике Лариса Алексеевна, дочь — красавица и одна из лучших студенток МГУ Таня Голубева. Вскоре Таню, как одну из лучших студенток курса, приглашают на собеседование в КГБ. От сотрудничества Таня отказывается. Она не (   Читать дальше...   )Производство: Россия / кинокомпания "Феникс-Фильм"Жанр: мелодрамаРежиссер: Виктор БутурлинАктеры: Кристина Бродская, Алексей Фатеев, Людмила Титова, Александр Феклистов, Ксения Радченко, Кристина Поли, Елена Махова, Оксана Мысина, Максим Январев, Алёна Кузнецова, Марина Куделинская, Наталья Новикова, Дмитрий Варшавский и др.Продолжительность: ~00:47:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90E0B0E93CAF48F36EDB507CA84A31389D7109D1
+magnet:?xt=urn:btih:79452587156361550F9ABECC1BD4DDE2E57F2071
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058983   (463684) от 03.10.2016
+###  Публикация: 940835   (464302) от 26.09.2015
 
-КВН-2016. Высшая лига. Летний кубок во Владивостоке (2016.10.02) WEB-DL [H.264/720p-LQ]
+Камеди Клаб в Сочи / Комеди Клаб / Comedy Club (25.09.2015) WEB-DL [H.264/720p-LQ]
 
 >>Архив торрентов
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464302.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В борьбу за главный приз фестиваля вступили две пары команд. Это чемпионы последних лет и те команды, которые они взяли в качестве своих помощников. Первая пара состоит из команды Сборной Камызякского края по КВНу, а также коллектив Город Пятигорск и сборная Ставропольского края. Вторая пара включает в себя команду Союз, Тюменская область, а также Детективное агентство (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ЮморПродолжительность: 02:09:06
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморПродолжительность: ~ 00:48:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CDF9868A5C77519644501F43AB6116F3ECCD9458
+magnet:?xt=urn:btih:B80C45B387425CC892288443B77715E08330E54F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,28 +50,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246376   (463634) от 10.09.2018
+###  Публикация: 940341   (464297) от 26.09.2015
 
-VA - TB Music Presents #Dance & Trance (2018) [MP3|320 Kbps] <Trance,House,Dance>
+YouTube Video Downloader PRO 4.9.2 (20150817) Portable by PortableWares [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464297.jpg" />
+</div>
+
+
+###  Подробнее
+
+YouTube Downloader - простая и легкая в использовании программа, которая предназначена для загрузки и последующего просмотра роликов с популярных сервисов видеообмена YouTube, Facebook, Google Video, Yahoo Video и пр. Для скачивания необходимо ввести ссылку на видео, которое вы хотите скачать и указать папку для сохранения клипа. Также YouTube Downloader позволяет (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BAC94DABA38FC6E202A869A5434A2328C1B7158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058998   (464294) от 03.10.2016
+
+VA - Who's Afraid Of 138! Top 15 - 2016-10 (2016) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464294.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Megara vs. DJ Lee - Human Nature 2K18 (Club Mix)
-02. The North Works feat. Jenny - Fast Driving (Original Mix)
-03. Van Der Karsten - Shining (Single Edit)
-04. Jason Parker - Hey Sound (Tomtrax and Orca Remix)(   Читать дальше...   )Жанр: Trance,House,DanceПродолжительность: 02:10:31
+01. MaRLo - Join Us Now  3:05
+02. Super8 & Tab - Into  3:24
+03. Bryan Kearney - Stealth Bomber (Chris Schweizer Remix)  4:01
+04. Allen Watts vs First Effect - That's What She Said  3:29(   Читать дальше...   )Жанр: TranceПродолжительность: 00:53:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11A6DBFC8CB7913B5D0A6C9F7F8B388C56DC3FB3
+magnet:?xt=urn:btih:ECBA2B08139729A028F063C56DDDC4531188E121
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,28 +105,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246339   (463633) от 10.09.2018
+###  Публикация: 1058803   (464293) от 03.10.2016
 
-Футбол. Лига Наций УЕФА 2018-2019. Лига A. Группа 4. 1-й тур. Англия — Испания (08.09.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Paul Maddox - Live In Moscow (2006) [FLAC|Lossless|image + .cue] <Hard Trance, Psy-Trance, Hard House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Maddox Presents Olive Grooves - Organ Grinder (4:53)
+02. Tim Clewz - Surprise (5:25)
+03. Paul Maddox Presents Olive Grooves - I Can't Let Go (5:45)
+04. Tim Clewz - Detonator (5:18)(   Читать дальше...   )Жанр: Hard Trance, Psy-Trance, Hard HouseПродолжительность: 01:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3128596AD2D9C38AE4936779DFA26683CBCFE55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058537   (464281) от 03.10.2016
+
+Футбол. Лига Европы 2016-2017. Группа I. 2-й тур. Шальке 04 (Германия) – Ред Булл Зальцбург (Австрия) (29.09.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464281.jpg" />
 </div>
 
 
 ###  Подробнее
 
-08 сентября 2018 года, суббота. 21:45 МСК
-Лига Наций УЕФА 2018-2019. Групповой турнир
-Лига A. Группа 4. 1-й тур. Англия — Испания
-Стадион: Уэмбли (Лондон, Англия), вместимость: 90000(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:38
+29 сентября 2016, четверг. 20:00 МСК
+Лига Европы 2016-2017. Групповой этап
+Группа I. 2-й тур
+(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: Русский (Мельников)Продолжительность: 01:50:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B402090D81ED43263F49E71A25986432BB95B1AD
+magnet:?xt=urn:btih:ADE26D7EB593F802967A0C1A9E2F8C8A131FE40E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,322 +163,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161948   (463581) от 30.08.2017
+###  Публикация: 1059249   (464279) от 03.10.2016
 
-Яндекс.Браузер 17.7.1.791 Final [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F54B45B83A5B00C7B262F9C1CC5E980C20D27D53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 388129   (463578) от 15.09.2011
-
-Sexy Girls v.24
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463578.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Sexy Girls v.24
-Название: Sexy Girls v.24
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E4FD5DDF11325D44E5DBE647358EA6941886C9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 388134   (463576) от 15.09.2011
-
-Sexy Girls v.26
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463576.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Sexy Girls v.26
-Название: Sexy Girls v.26
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1440
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A68DCAFE4F58AB2BCC14CC2EF77FFCF54F751C57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 387871   (463567) от 15.09.2011
-
-Sexy Girls v.17
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463567.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Sexy Girls v.17
-Название: Sexy Girls v.17
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43461596357CC922DEDDEAEAA58DBA5DF023E498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161949   (463566) от 30.08.2017
-
-Антти Туомайнен | Шахта (2017) [MP3]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Амбициозный журналист Янне Вуори получает анонимное письмо с призывом расследовать деятельность одной крупной компании. Это его шанс сделать себе имя, и он решает во что бы то ни стало докопаться до правды. Дело принимает новый оборот, когда руководители компании один за другим начинают гибнуть в результате подозрительных несчастных случаев. Похоже, что это работа (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:05:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4EE3220A8676BED7591F1D3AA1757F5E80C95EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 388132   (463565) от 15.09.2011
-
-Sexy Girls v.25
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463565.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Sexy Girls v.25
-Название: Sexy Girls v.25
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D999FADBCD2FDC3676685D4B9D9549CF40769D98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 388111   (463561) от 15.09.2011
-
-Sexy Girls v.23
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463561.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Sexy Girls v.23
-Название: Sexy Girls v.23
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BA04FE4C70DA13BAF3AAF0316E620290960AC9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 387893   (463559) от 15.09.2011
-
-Sexy Girls v.20
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463559.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Sexy Girls v.20
-Название: Sexy Girls v.20
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:847B0238C198D7761C8B13E0E118EEF7E2B53A28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 387883   (463557) от 15.09.2011
-
-Sexy Girls v.19
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463557.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Sexy Girls v.19
-Название: Sexy Girls v.19
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1440
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3B261882BD456931A59F8DF7DEF7C3FE897DFA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058888   (463513) от 03.10.2016
-
-Autodesk AutoCAD Mechanical 2017 SP1 x86-x64 RUS-ENG
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463513.jpg" />
-</div>
-
-
-###  Подробнее
-
-AutoCAD Mechanical – это AutoCAD для машиностроительного проектирования. AutoCAD Mechanical является частью технологии цифровых прототипов Autodesk. Продукт объединяет в себе функциональность AutoCAD – мирового лидера среди 2D САПР – с преимуществами обширных библиотек стандартизированных компонентов и средств автоматизации, ускоряющих выполнение задач проектирования. (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83590EAD6F9D8E057D22F0873BA823F99BD6356D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548679   (463495) от 20.09.2012
-
-VA - Waves of Sound (2012) [MP3|320 кб/с]<Psytrance>
+VA - Bad Karma Stage One (2016) [MP3|320 Kbps] <Drum & Bass>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464279.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fuzzonaut - Astral Travelers
-02. Silly Twit - Dark Dork
-03. Uranus Titania - Sat Ura Neptun
-04. Raja - Voices of the Amazon
-05. Wizax - Morning Space
-06. Distortion Trip - Psycodelic Shop
-07. Axid vs. XSlash vs. Gitelss - Hey
-08. Erofex - Psy Invader
-09. Defib - Boingonium
-10. Wizax - In the RainЖанр: PsytranceПродолжительность: 01:13:55
+01. Bad Signal - Shot (Original Mix) (4:30)
+02. Keri Beats - Magic (Original Mix) (5:17)
+03. Fireblade - Epoch (Original Mix) (3:01)
+04. Ditor Loki - Destroy Dancefloor (Original Mix) (5:10)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:42:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4342937C5DFC8D227CBAD866E4A1F06561B268A9
+magnet:?xt=urn:btih:65822FB56841AEC603F278FA771F7C69FE056953
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -431,25 +192,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161870   (463480) от 30.08.2017
+###  Публикация: 941101   (464272) от 26.09.2015
 
-MediaHuman YouTube Downloader 3.9.8.15 (2908) RePack by вовава [Ru/En]
+ICQ 8.4 build 7786 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464272.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.Язык интерфейса: Русский, Английский
+ICQ — одна из самых популярных программ для мгновенного обмена сообщениями в режиме реального времени. С помощью ICQ пользователь может найти себе друзей по своим интересам или же связаться с коллегами, членами семьи независимо от того где они находятся. В ICQ можно не только обмениваться мгновенными сообщениями, а и общаться с помощью видеокамеры, в режиме чата, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5B430283F27DF1B86C5A04D839DD9C496937BE7
+magnet:?xt=urn:btih:CFBAA39C01BB82F59176623960C2CAC1E97B0E82
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -457,55 +218,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 388189   (463472) от 15.09.2011
+###  Публикация: 941060   (464270) от 26.09.2015
 
-Sexy Girls v.28
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463472.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Sexy Girls v.28
-Название: Sexy Girls v.28
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:748F00E7D795D1D7EE7122103AD2B5BB76D50806
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161966   (463471) от 30.08.2017
-
-XYplorer 18.30 RePack (& Portable) by TryRooM  [Multi/Ru]
+R-Studio 7.7 Build 159747 Network Edition RePack (& Portable) by elchupacabra [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464270.jpg" />
 </div>
 
 
 ###  Подробнее
 
-XYplorer - удобный мультивкладочный файловый менеджер, ориентированный на пользователей, которые хотят найти достойную замену стандартному проводнику Windows. Внешне напоминает стандартный проводник, но обладает большей функциональностью и множеством дополнительных возможностей для удобной работы с файлами. Особенностью XYPlorer является возможность открытия каждого (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+R-Studio - лучшее на сегодняшний день программное обеспечение для восстановления данных. Поддерживает файловые системы FAT12/16/32, NTFS, NTFS5, Ext2FS (Linux). Позволяет восстанавливать файлы, как на локальных логических и физических жестких дисках, так и на дисках, расположенных на удаленных компьютерах через компьютерную сеть.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD747E81523D346E4ABB6894B5314ED9F15A6DAD
+magnet:?xt=urn:btih:155643538AA2484C81CB142405590E377B6FE095
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -513,29 +244,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 387859   (463466) от 15.09.2011
+###  Публикация: 1407594   (464260) от 08.09.2020
 
-Sexy Girls v.15
+Glary Disk Cleaner 5.0.1.220 RePack (& Portable) by Dodakaedr [Ru/En]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Sexy Girls v.15
-Название: Sexy Girls v.15
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1440х900
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+Glary Disk Cleaner - бесплатный инструмент от компании Glarysoft для очистки операционной системы от различного мусора. При помощи Glary Disk Cleaner можно существенно освободить место на жестком диске посредством удаления временных файлов системы, кэша различных приложений и утилит, кэша web-браузеров, файлов дампа памяти, очистки корзины и многое другое.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:51272D2983FAA8B14C646F42B0C5EA0614091A56
+magnet:?xt=urn:btih:A1343A0A14EC5EEF5C2AA55752CC818B090DA360
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -543,28 +270,139 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161904   (463465) от 30.08.2017
+###  Публикация: 1407592   (464256) от 08.09.2020
 
-VA - Anjunabeats Worldwide 07 (Mixed by Grum) (2017) [FLAC|Lossless|tracks + .cue] <Trance, Progressive Trance, Progressive House>
+Glary Utilities Pro 5.150.0.176 Repack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83DAE41FA67776EFF635A4F0D74D421CC6EEBDB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407601   (464255) от 08.09.2020
+
+Glary Utilities Pro 5.150.0.176 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB047BCF3E93372A038BE01AC4EA290D76AD4C11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407586   (464254) от 08.09.2020
+
+MediaHuman YouTube Downloader 3.9.9.45 (0609) RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464254.jpg" />
+</div>
+
+
+###  Подробнее
+
+MediaHuman YouTube Downloader - удобное приложение с помощью которого можно быстро и легко загрузить понравившийся видеоклип или трейлер с YouTube, и сохранить его на ПК в любом доступном формате. Достаточно добавить ссылку на ролик, выбрать качество скачиваемого видео, указать необходимый формат и начать загрузку. Кроме того программа может отслеживать буфер обмена, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A53BBCF3220FD49EC907E6169D88662F5AE850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407580   (464247) от 08.09.2020
+
+Athentech Perfectly Clear Complete 3.10.0.1828 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Athentech Perfectly Clear Complete может работать отдельно или как плагин для Photoshop и Lightroom. Позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5025497B43EFF15325648AA1F899E80FA6B5461D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548860   (464211) от 19.09.2012
+
+VA - Ciao Italia: The ultimate Italian collection (2012) 4CD[FLAC|Lossless]<Pop, Oldes>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464211.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Grum – Worldwide Intro
-02. Naden – Rivers
-03. Lane 8 – Aba (Yotto Remix) (with Kidnap Kid)
-04. Grum – Inflight(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 01:18:45
+01. Nada - Il re di denari [02:36]
+02. Nico Fidenco - A casa di Irene [03:10]
+03. Nicola Di Bari - La prima cosa bella [03:10]
+04. Patty Pravo - La spada nel cuore [04:30]
+05. Tony Renis - Quando quando quando [02:48]
+06. Luigi Tenco - Ciao amore [03:03]
+07. Riccardo Cocciante - Io canto [04:29]
+08. The Rokes - Eccola di nuovo [03:29]
+09. Bruno Lauzi - Amore caro, amore bello [03:11]
+10. Franco Califano - Tutto il resto e' noia [04:40](   Читать дальше...   )Жанр: Pop, OldesПродолжительность: 01:01:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D18B16E3D238EF0797BFE7C70F3254E7419C518
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -572,34 +410,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 388058   (463462) от 15.09.2011
+###  Публикация: 549397   (464210) от 19.09.2012
 
-Tiesto - Club Life 232 (11.09.2011) [MP3|192 kbps]<Trance>
+Borderlands 2 [En] (RePack/1.0) 2012 | {AVG}
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464210.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Hour 1
+В команде с тремя соратниками по сети или же вдвоем с другом в старом добром режиме разделенного экрана отправляйтесь в рейд по неизведанным еще территориям Пандоры искать приключения на свою… голову.
 
-01. Ellie Goulding - Lights (Adrien Mezsi Reboot)
-02. Matteo DiMarr - Creep (Original Mix)
-03. Paul Kalkbrenner - Sky & Sand (Koen Groeneveld Bootleg)
-04. AN21 & Max Vangeli vs. Tiesto feat. Kate Elsworth - People Of The Night (Original Mix)
-05. Paul Thomas - La Bombo (Nathan C vs. Lay & Brown Remix)
-06. Funkagenda, Sultan & Ned Shepard - Past Dreaming (Original Mix)
-07. Sia – Drink to get Drunk (Sander Van Doorn Remix)
-08. Delerium feat. Sarah McLachlan - Silence (W&W vs. Jonas Stenberg Remix)(   Читать дальше...   )11.09.2011Жанр: TranceПродолжительность: 01:56:37
+Выберите героя и как следует снарядите его — по традиции в вашем распоряжении гигантский арсенал оружия, боеприпасов и экипировки, — причем чем дальше, тем больше. Предметы на Пандоре генерируются автоматически, и вы никогда не можете знать заранее, что за пушка окажется в ближайшем ящике! Открывайте новые тайны Пандоры, прокачивайте персонажа по мере выполнения заданий, заводите друзей и наживайте врагов — станьте героем собственной истории в полном неожиданностей мире Borderlands!(   Читать дальше...   )Тип издания: RepackРазработчик: Gearbox SoftwareЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:387359A7F850AC97F3C7C947E10DE47501961125
+magnet:?xt=urn:btih:6C120548360D709364065CDA6494CC8B0C185E6D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,34 +438,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 549180   (463443) от 20.09.2012
+###  Публикация: 234796   (464208) от 19.09.2012
 
-VA - Drum & Bass Essentials Vol 4 (2011) [MP3|320 кб/с]<Drum and Bass>
+Scorpions - 2 Albums (1984, 2010) [FLAC|Lossless]<Hard Rock>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464208.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Tidal - Where's The Life? (original mix)  (06:23)
-2. Tidal - Swing Out (Aquasion remix)  (05:59)
-3. Static - Bright Light (Aquasion remix)  (07:11)
-4. Johnny Beverton - Tonedab (original mix)  (05:46)
-5. Mad Rabbit - Same Old (original mix)  (06:40)
-6. Radicall - After Dark (DJ Ike remix)  (05:24)
-7. Joe Syntax - Believe In You (original mix)  (06:13)
-8. Jekyll - Insect Flex (original mix)  (05:46)
-9. B4ssTee - Tell Me (original mix)  (05:36)
-10.Audios3x - Ennek A Notanak Egyszer Vege Lesz (original mix)  (05:26)(   Читать дальше...   )Жанр: Продолжительность: 01:31:05
+Альбомы:
+2010 - Sting in the Tail
+1984/2012 - Love At First StingЖанр: Hard Rock
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4B9A9A350DFAF621FEF6DBA452C58B66507DD38C
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -642,34 +466,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 549185   (463441) от 20.09.2012
+###  Публикация: 940517   (464174) от 26.09.2015
 
-VA - Drum & Bass Essentials Vol 5 (2011) [MP3|320 кб/с]<Drum and Bsss>
+HitmanPro 3.7.9 Build 246 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464174.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Dakosa - Blood Moon  (05:46)
-2. BassHazard - Eve  (05:20)
-3. mSdoS & Steez - Brass Ensemble  (05:55)
-4. A2C - Warforce (Firefly remix)  (05:25)
-5. BrokenDrum - The Other Side  (06:26)
-6. Nata'Malamata - Toy's Games  (03:39)
-7. Lucas - Hillbilly Hideout (LJ High Dnb remix)  (06:59)
-8. Tidal - Queen Eyes Hazel Green  (06:01)
-9. Operon & LM1 - Crazy Nights  (06:21)
-10.Johnny Beverton - Polymol  (05:26)(   Читать дальше...   )Жанр: Продолжительность: 01:27:04
+HitmanPro – мощный cканер для выявления различных вредоносных программ. Особенность HitmanPro в том, что он использует при проверке базы данных других приложений для обнаружения и удаления шпионских модулей (Ad-Aware SE Personal, Spy Sweeper, Spybot Search & Destroy, CWShredder, SpywareBlaste, Spyware Block List, Sysclean Package, SuperDAT VirusScan). После завершения (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:41D8C848E7F2C666416330D37F1957B7B61FB378
+magnet:?xt=urn:btih:E567746BC56E17E101DD52979FD442D82AEBF5F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -677,25 +492,133 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 549492   (463439) от 20.09.2012
+###  Публикация: 1059112   (464164) от 03.10.2016
 
-Журнал | Туризм и отдых №36 [17-23 сентября 2012] [PDF]
+Pixave 2.1.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pixave — менеджер изображений для Mac с широкими возможностями
+При работе с большим количеством изображений встает вопрос их эффективной организации и просмотра. Это важно для тех, кто связан с дизайном, оформлением, и просто людей, любящих, когда все разложено по полочкам. Именно для этого и создан менеджер изображений Pixave, в котором не только удобно хранить (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09 сентября 2016Разработчик: YoungHo KimПоддерживаемая ОС: Mac OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADE63810660C7A30C03D58A53840DFA95E05597C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940522   (464153) от 26.09.2015
+
+AOMEI Partition Assistant Technician Edition 5.8 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aomei Partition Assistant – мощная программа для работы с жёстким диском, администрирования разделов для ПК и рабочих станций. Программа ответит на такие вопросы, как: “Как изменить размер раздела или объединить разделы без потери данных? Как увеличить производительность компьютера?” Кроме того, PA включает AOMEI Dynamic Disk Manager Pro (DDM), что означает наличие (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90A3A6968AEEA027120071180CE66E52388F00D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940821   (464151) от 26.09.2015
+
+Гиблые земли / Land of Doom (1986) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земля была опустошенной ядерной войной, солдат удачи помогает женщине воину в ее путешествии в поисках места под названием «Рай». По пути они вынуждены вступать в битву с бандитами и преодолевать другие опасности.Производство: США, MatterhornЖанр: Фантастика, Боевик, ПриключенияРежиссер: Питер МарисАктеры: Дебора Реннард, Гаррик Довен, Daniel Radell, Фрэнк Гаррет, Ричард Аллен, Акут Дуз, Бруно Шамбон, Фатош Селик, Hulta Palanci, Ellen CabornПеревод: Двуголосый закадровый (НТВ+)Продолжительность: 01:23:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26EB5A32F0BE92F824E9054350E2B2DC180271F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 783477   (464149) от 26.09.2015
+
+Prelude of the Chambered (2011) [En] (1.0) License
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prelude of the Chambered - экшен от первого лица в подземелье.
+В игре Вас ожидает несколько уровней, битвы с боссам и предметы, которые помогут в прохождении игры.Тип издания: ЛицензияРазработчик: Markus Alexej "Notch" PerssonЖанр: Action (FPS)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48D4B89BC9AD5DFEF97A85B8438E225AB3EC0ADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058654   (464148) от 03.10.2016
+
+Ларисса Айон | Обреченные любить (2012) [FB2]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464148.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рассказы о популярных туристических направлениях, полезные рекомендации, интересные обзоры, фоторепортажи. Своеобразное зеркало, отражающее состояние дел в российской туристической индустрии, настоящий навигатор в мире туристических услуг и бизнеса.Формат: PDF
+Первый роман в цикле «Демоника»
+
+Тайла Манкузо - охотница. Многие годы она видела в своих врагах только представителей враждебной Тьмы, - но однажды все изменилось. Врач, спасший ей жизнь, - изначально должен был погибнуть. Ведь он тоже воплощение Зла. Тогда почему он вытащил ее из когтей смерти? Разве не знал, что Тайла представляет для него угрозу? Или она не права? (   Читать дальше...   )Жанр: Любовно-фантастические романы, ЭротикаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F39387CB1E79BFDAFA0E3FA699E277807CB085C6
+magnet:?xt=urn:btih:350731B4906C068F07A9E84390E9AAE1FA1F2D38
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -703,34 +626,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 549171   (463438) от 20.09.2012
+###  Публикация: 940456   (464139) от 26.09.2015
 
-VA - Phuture Funk Vol 4 (2011) [MP3|320 кб/с]<Drum and Bass>
+Novicorp WinToFlash Professional 1.3.0000 Final Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464139.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Nookie - I Love The Way (12" mix)  (07:28)
-2. J Laze - Summertime (feat Ladee Berry)  (05:55)
-3. Well Being - When You're Not Around  (06:41)
-4. Nookie - I Say Yeah (12" mix)  (05:55)
-5. Qumulus - Music Keeps Me  (06:46)
-6. Human Factor - Free Your Heart  (06:34)
-7. Physics - Invisible Spaces  (05:58)
-8. Human Factor - Cloning Science  (05:34)
-9. Pete Rann & Qumulus - Move On  (07:12)
-10.J Laze - 6 Months  (06:29)Жанр: Продолжительность: 01:04:32
+WinToFlash — это приложение, позволяющее полностью перенести программу установки Windows XP, Windows 2003, Windows Vista, Windows 2008, Windows 7, Windows 8, Windows 10 на USB накопитель за несколько кликов мышки. Это означает, что вы можете установить Windows с флэш карты, HDD или другого накопителя на ваш компьютер или нэтбук. И это не все, что она может делать. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B3A72A08D4C0D30BB2ECE125D83EEA56EE8222C
+magnet:?xt=urn:btih:FE360A025EDA279CDDF33160A9D688E2C0FB2B87
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -738,25 +652,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 549512   (463436) от 20.09.2012
+###  Публикация: 1059107   (464136) от 03.10.2016
 
-Журнал | Premiumcar №№12-14 [весна-осень 2012] [PDF]
+ExpanDrive 5.4.1 [En]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464136.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это издание - «настольная книга» для истинных автогурманов. XXL-размер материалов рассчитан на неспешное и серьезное чтение. Каждый автомобиль, удостоившийся чести попасть на страницы журнала, преподнесен в соответствии с высочайшими стандартами коллекционного альманаха.Формат: PDF
+ExpanDrive - удаленный сервер, как локальный диск
+Работа с удалёнными данными всё чаще встречается в нашей жизни. Домашняя локальная сеть, Dropbox. Все эти вещи для многих давно стали привычны. Разработчики софта рады предложить нам множество программ, которые должны помочь привести к общему виду все эти носители и облачные сервисы.
+
+Эта программа позволяет монтировать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 28 сентября  2016Разработчик: ExpanDrive, Inc.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2478F61CED15C7403446F073DF9504441F4F5847
+magnet:?xt=urn:btih:526E67B418CABE0D99FABACDA7975E8979398CC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407491   (464132) от 08.09.2020
+
+Q-Dir 8.88 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Файловый менеджер с оригинальным четырехпанельным интерфейсом и широкими возможностями по работе с файлами. Работает с любого съемного устройства. Многоязычный интерфейс.
+Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок "Quick-Link's", поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1BCC83F9D44BC7FB7637D6C86341925CC6998D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

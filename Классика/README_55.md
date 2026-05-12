@@ -1,3 +1,60 @@
+###  Публикация: 1785745   (24161) от 19.03.2025
+
+Ильин Роман - Бетховен. К Элизе (2025) [MP3|320 Kbps] <Classic, chamber>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24161.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Бетховен. К Элизе (1)
+2. Бетховен. К Элизе (2)
+3. Грациоли. Соната. Часть перваяЖанр: Classic, chamberПродолжительность: 00:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF7DD7D7F5502DC8340C68A2B8CD1A2A3A5953C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788412   (23004) от 30.03.2025
+
+André Rieu, Johann Strauss Orchestra - Jewels Of Romance (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indian Love Call (4:39)
+02. The Ludlows (From Legends Of The Fall) (3:51)
+03. Nitsch Jaka (Ukrainian Folksong)(Anna Reker, Mastreechter Staar) (3:56)
+04. Morning Has Broken (4:57)(   Читать дальше...   )Жанр: Classical, InstrumentalПродолжительность: 01:10:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F63A22452A1FDBB8B7F8EEE1D709592DCB72184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791011   (21759) от 11.04.2025
 
 Andre Rieu - Power of Love (Live in Maastricht 2024) (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>

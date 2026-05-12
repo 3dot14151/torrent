@@ -1,3 +1,145 @@
+###  Публикация: 1317027   (503286) от 29.07.2019
+
+VA - Modern Sound Orchestras - Ave Maria (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orchestra Charles Monet - Ave Maria (2:21)
+02. Wave's Computer Orchestra - Amadeus Sky-Blue Dreams (3:49)
+03. Philharmonics Of London - Romantic Waltz (2:38)
+04. Philharmonic Orchestra London - Yesterday (2:45)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53A308FED9265DCFDCDA4E44B34F1E245DD69BC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316920   (503284) от 29.07.2019
+
+Valefim Planet - India (2015) [MP3|192 Kbps] <New age, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening
+02. I Miss You India
+03. Temple Of The Sun
+04. Undergraund Source(   Читать дальше...   )Жанр: New age, ChilloutПродолжительность: 00:34:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1460CDE8A281209113D1AA3353F5C13019D687DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317163   (502503) от 30.07.2019
+
+David Osborne - What the World Needs Now (2019) [MP3|320 Kbps] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Look of Love
+02 What the World Needs Now
+03 (They Long to Be) Close to You
+04 Arthur's Theme (Best That You Can Do)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62381C0CD012CC88C0D4926E942AC7ED63B8414D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 379841   (502072) от 25.08.2011
+
+Gheorghe Zamfir - 2 альбома (1986, 1991) [MP3|320 kbps] <Instrumental, Pan Flute>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гео́рге Замфи́р (рум. Gheorghe Zamfir,01. Only Love 			(05:04)
+02. Elvira Madigan 		(05:15)
+03. Themanuel 			(04:31)
+04. Cent Mille Chansons 	(04:50)(   Читать дальше...   )Жанр: Instrumental, Pan FluteПродолжительность: 02:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12DB00697B861CC9C72BCB9C2F7C6220FE7E91DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 379933   (501945) от 25.08.2011
+
+Pakarina - Melodies of the heart (2011) [FLAC|Lossless]<Instrumental | Pan Flute>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Instrumental | Pan FluteПродолжительность: 01:13:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317259   (501384) от 31.07.2019
 
 David Osborne - What the World Needs Now: A Piano Tribute to Burt Bacharach (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
@@ -645,157 +787,6 @@ WESTERN S - Хорошо там, где мы есть! (2007) [MP3|256 кб/с]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F8569ADEDC68BFEDF6A751FFA9BCBA47D36B12D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 381868   (495301) от 31.08.2011
-
-Anthony Ventura And His Orchestra - 5 альбомов (1979-1993) [MP3|320 kbps]<Instrunental, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495301.jpg" />
-</div>
-
-
-###  Подробнее
-
-1979 - Music For Making Love
-01. I Can't Stop Loving You 	(04:21)
-02. I'd Love You To Want Me 	(03:38)
-03. Don't Cry For Me, Argentina (02:20)(   Читать дальше...   )Жанр: Instrunental, Easy ListeningПродолжительность: 03:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2CD5416FD3FB3D17EA01094EB4E84BA4EC7B06A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936736   (494267) от 12.09.2015
-
-Myriam Cannas - Imana. Chants Arameens (2015) [MP3|320 кб/с]<New Age, World Music, Vocal>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imana Piano
-02. Nafsha
-03. Manau Gavra
-04. Alma(   Читать дальше...   )Жанр: New Age, World Music, VocalПродолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F95216BDC3CFF190A85EF39B8DDDFBB58EC3387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242911   (493966) от 26.08.2018
-
-VA - Ska Anthems - The Ultimate Collection (5CD) (2018) [MP3|320 Kbps] <Jamaican Mento, Calypso, Reggae>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493966.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Madness - The Prince
-02. The Maytals - Monkey Man(   Читать дальше...   )Жанр: Jamaican Mento, Calypso, ReggaeПродолжительность: 00:54:35
-
-01. Bob & Marcia - (To Be) Young, Gifted & Black
-02. Nicky Thomas - Love Of The Common People(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D90D5A55B7FB94F55590B60CC11D367B6445EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543785   (493898) от 06.09.2012
-
-Karin Nobbs & Philip N'bess - Avel & Roc'h (2006) [MP3|320 кб/с]<New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493898.jpg" />
-</div>
-
-
-###  Подробнее
-
-(7:22) 1. L'ordre Du Depart
-(9:02) 2. Les Heritiers Du Courage
-(7:44) 3. La Mer Et L'amant
-(7:27) 4. La Tempete Du Diable
-(4:31) 5. Le Pacte
-(7:30) 7. Les Bienfaits De La Terre
-(8:09) 8. Les Sanglots De Roc'hЖанр: New age, RelaxПродолжительность: 00:56:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0306A8AF78300E8348A2AA2589316C296E64F501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157696   (493694) от 15.08.2017
-
-VA - New Age Sensation (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magnific Senses – Spirit 02:11
-02. Xavier Boscher – A New Child Is Coming 05:11
-03. Mlle Julie – Petite chanson pour un ange 03:19
-04. Deborah Hofer – Pour l’eternite 03:14(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:219F903BFDA40974EFFC906AE11A699A2512D860
 ```
 
 https://mybot314.ru/tekegram_catalog/

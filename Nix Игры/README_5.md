@@ -1,29 +1,3 @@
-###  Публикация: 1054164   (655517) от 06.06.2017
-
-(Linux) Victor Vran (2015) [Ru/Multi] (2.07.DCU/dlc) License GOG
-
->>*Nix Игры
->>Native *Nix Games
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Victor Vran - это изометрический ролевой экшен с огромным выбором оружия, предметов, брони, демонических способностей и карт судьбы. Окунитесь в водоворот напряженных сражений с десятками опасных врагов, используйте могущественные таланты и умения!Тип издания: LicenseРазработчик: Haemimont GamesЖанр: RPG (Rogue, Action), 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3ED730835EE19BBC4AA73252305A4EE269C8A20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997051   (646186) от 12.06.2017
 
 (Linux) Hand of Fate (2015) [Ru/Multi] (1.3.18) License GOG
@@ -668,6 +642,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28E87B19488F53D6E55EFAF1A36D1C81121C06B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152732   (557697) от 27.07.2017
+
+(Linux) Dreamfall Chapters (2017) [Multi] (5.7.2.1) License GOG [The Final Cut]
+
+>>*Nix Игры
+>>Native *Nix Games
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dreamfall Chapters – профинансированное через Kickstarter и горячо ожидаемое продолжение знаменитых приключенческих игр The Longest Journey и Dreamfall: The Longest Journey. Dreamfall Chapters – приключенческая игра с захватывающим сюжетом, состоящая из эпизодов и посвященная теме выбора и его последствийТип издания: LicenseРазработчик: Red Thread GamesЖанр: Экшн, Приключение, ФэнтезиЯзык озвучки: Английский и НемецкийЯзык субтитров: Английский, Французский, НемецкийЯзык интерфейса: Английский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:408990B7B03EA69186B34F5F31CED76BFAB6B8BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

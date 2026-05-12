@@ -1,3 +1,57 @@
+###  Публикация: 1806895   (11415) от 15.07.2025
+
+Промты - SevenUnited LLC - 711 Ai Art Prompts for Style References: Vol 4 - 4819870 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11415.jpg" />
+</div>
+
+
+###  Подробнее
+
+711 промтов по стилю для AI-искусства: том 4. Каждый промт содержит 4 примера изображений.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58ECEC4B7EB96A8F1CAFC027425FC1ABF5D9B8F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806940   (11410) от 15.07.2025
+
+Иконки - UI8 - Stockholm Premium Icons [PNG, AI, FIGMA, SVG, XD]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stockholm — это набор иконок, состоящий из 640 высококачественных векторных двухцветных иконок в 4 цветовых шаблонах (черный, белый, синий, красно-синий). Он построен на сетке 24 x 24 пикселя для точного соответствия пикселям на экранах. Идеально подходит для iOS, Android, веб-сайтов и графического дизайна.
+
+Категории: Общие, Дом и предметы, Одежда, Еда, Кулинария, (   Читать дальше...   )Формат: PNG, AI, FIGMA, SVG, XD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30BD80BC461050F61130958901DEF2F7BAB9B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806587   (11387) от 15.07.2025
 
 Иконки - Gumroad - Email Spam Threats 3D Icon Set [PNG]
@@ -621,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9B4B3F6113C970720D73630F1F2E8AD1FA2B3AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810595   (9259) от 05.08.2025
-
-Промты - SevenUnited LLC - 432 Midjourney Prompts for Aliens - 8015415 [TXT, JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из 432 настраиваемых промтов Midjourney для инопланетян.Формат: TXT, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A0A3E339C4EFCBB6EC23F13AF57BBFA414279DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810762   (9130) от 06.08.2025
-
-Промты - SevenUnited LLC - 377 Midjourney Prompts for the 90’s - 6490687 [TXT, JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет из 377 настраиваемых промтов Midjourney для 90-х.Формат: TXT, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC823C5943B9DDC8B4CEA0628B9CEE7FEA7954F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

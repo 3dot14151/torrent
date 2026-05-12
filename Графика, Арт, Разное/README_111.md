@@ -1,3 +1,55 @@
+###  Публикация: 953097   (351424) от 03.11.2015
+
+Обои - Fantastic pictures part 60 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои на фантастическую тему.Формат: JPGРазрешение файлов: 1920x1080 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21BC01E57DF470664644EAB43A42ED54B4871A72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953105   (351420) от 03.11.2015
+
+Обои - Best Wallpapers Mixed 163 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои на различные темы для рабочего стола.Формат: JPGРазрешение файлов: 2560x1440
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7644622571C52EC98FC9D213686A24F337B2C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418085   (350786) от 23.10.2020
 
 Иллюстрации - Забавные картинки [JPG]
@@ -616,58 +668,6 @@ Fantastic Wallpapers (23.11.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DE43C545F2C1BFD94376FFEE122FF59677366FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580209   (345440) от 24.11.2012
-
-Подборка маразмов (23.11.12) [Графика]
-
->>Графика, Арт, Разное
->>Интернет-творчество
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка маразмов
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:698E9A58847A2FFC909FEE5C0A410D644735D28B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580071   (345430) от 24.11.2012
-
-Artworks by Henri Gervex [Графика]
-
->>Графика, Арт, Разное
->>Классическое искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Artworks by Henri Gervex
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:632FF5294C88DC585EE9D20BAA3A597281915509
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1869530   (1068331) от 07.05.2026
+
+Frontmusic - Relaxing Piano (2026) [MP3|320 Kbps] <Chillout, Piano, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ambience (2:29)
+02. Drifting (2:22)
+03. Gentle (3:04)
+04. Gravity (2:24)(   Читать дальше...   )Жанр: Chillout, Piano, InstrumentalПродолжительность: 01:12:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD04C4A394EF26DEF31B083B5F1FFEE52205B50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865282   (1065269) от 15.04.2026
 
 Gabriella Quevedo - Collection (2026) [MP3|320 Kbps] <Acoustic, Pop>
@@ -745,35 +774,6 @@ Blonker - Шедевры Инструментальной музыки (2001) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9906E919FFCE8844EFA6CFE13804A6FE12E700B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974902   (974535) от 13.01.2016
-
-VA - Love Classics Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ash King - Neele Neele Ambar Par - The Unwind Mix
-02. Mohammad Irfan - Chhukar Mere Man Ko - The Unwind Mix
-03. Jonita Gandhi - Tu Tu Hai Wohi - The Unwind Mix
-04. Rahul Vaidya - Dilbar Mere - The Unwind Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:165D1A8EEEA9E253111D0FB3677EA19231257F31
 ```
 
 https://mybot314.ru/tekegram_catalog/

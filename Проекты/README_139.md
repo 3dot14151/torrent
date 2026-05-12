@@ -1,3 +1,55 @@
+###  Публикация: 1129408   (722037) от 28.04.2017
+
+Проекты - Motion Elements - 10 Burn Paper Transition - 10389603 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722037.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 экстравагантных переходов с горящей бумагой для вашего творчества.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934064E3FD51E4C580528CB40E036E7A7119265D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129388   (722033) от 28.04.2017
+
+Проекты - VideoHive - Flat And Fun Promo - 19712577 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flat And Fun Promo - проект АЕ для рекламы, презентаций, модного показа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D1E1B09BDD0E1250C495CFFBB605DD2D86C66B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 790478   (721948) от 27.05.2014
 
 VideoHive – Logistics Company Delivery Promo - 6372794 [AEP]
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:312034BC2C8C6D7067C6BED79B4AA29157EB64A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 668960   (721089) от 16.06.2013
-
-Проекты - VideoHive - Ancient World [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Древний мир - это песочная анимация для открытия сцен фильма или слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:753C9CEE7A97C1AD39791DD7B4D7C2005B5828EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 892007   (721002) от 25.04.2015
-
-Проекты - VideoHive - Dynamic Cartoon FX pack - 10964336 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dynamic Cartoon FX pack - After Effects CS5,5 - CC 2014 проект. Легко настроить. Разрешение проекта: FullHD 1920X1080. Для AE-проекта вам нужен плагин Trapcode Particular. Видео инструкция включена. Dynamic Cartoon FX - инструментарий для motion дизайнеров и 2D аниматоров. Пакет содержит After Effects проект с более чем 100 настраиваемых FX-анимаций. Вы можете изменить (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1875F9EE1DC8AA4E9A61291493693341910E89D
 ```
 
 https://mybot314.ru/tekegram_catalog/

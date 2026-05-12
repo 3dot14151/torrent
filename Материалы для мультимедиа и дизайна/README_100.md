@@ -1,3 +1,115 @@
+###  Публикация: 1511728   (788334) от 22.11.2021
+
+Векторный клипарт - New year 2022 year of the tiger red and gold flower in vector [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+7 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:175D08E930D4D5C8431B07268C3CD89ECAD30CBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511781   (788330) от 22.11.2021
+
+Векторный клипарт - Set of cute animals for the new year and for christmas in vector [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+14 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1151C628388FDC3697F07486C091B7B2AB2865A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511780   (788329) от 22.11.2021
+
+Векторный клипарт - Cute vector animals for the new year and christmas [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+8 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D1C2063977A2A39D0D1332D4AEBFCCB550F2E5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511731   (788318) от 22.11.2021
+
+Векторный клипарт - Cute cartoon tiger, christmas, new year card 2022 vector illustration [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+22 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B9CFFAF7D460394A7AE8477455249AB837754AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511720   (788311) от 22.11.2021
 
 Векторный клипарт - Happy chinese new year 2022, vector tiger zodiac sign [EPS]
@@ -582,115 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21A5F6ADA0AD4068E402137DEC01D2CEDA1322FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277081   (786912) от 19.01.2019
-
-Футажи - VideoHive - Rain - 19558912 [MOV, AEP]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rain - уникальный и реалистичный пакет. Который содержит в себе разные эффекты дождя, такие как капли на стекле, сильный дождь и многие другие.Формат: MOV, AEPРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:342062FFD832B998CCC03AA56770B5333703AABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388512   (786695) от 06.06.2020
-
-Звуковые библиотеки - Rigid Audio - Acoustic Isolation - RePack Андрей650071 [Kontakt, WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786695.jpg" />
-</div>
-
-
-###  Подробнее
-
-ACOUSTIC ISOLATION представляет 200 готовых к использованию комплектов, охватывающих потрясающе звучащие барабанные грувы и перкуссионные петли, а также огромный ассортимент фортепиано, струнных, гитар и синтезаторных петель. Это современный модуль лупов для KONTAKT, содержащий 800 различных петель, которые можно воспроизводить в тандеме в трех категориях (Groove, (   Читать дальше...   )Формат: Kontakt: NICNT, NKSN, NKC, NKR, NKA, NKI; WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE85AFA812EE8D81F394E9A5CEB6AC5F0D5DC4AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615825   (785521) от 12.04.2017
-
-Шаблоны - Расписание уроков, Трансформеры - Бамбелби [PSD,TIF]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Расписание уроков на тему Трансформеров
-Полностью редактируется, слои сохранены
-Исходный файл предоставлен bazooka_76
-За что ему, огромное спасибо.Формат: PSD,TIFFРазрешение файлов: 3508x2480
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:906E5B833702E8C03F0519B3A97C0F605A6CAEAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204017   (785383) от 04.02.2018
-
-Векторный клипарт - Vector Flowers Collection #32 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Цветы
-25 Ai +Jpg PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB9938443E68E7CDABBB7B07F95ABC61056AF213
 ```
 
 https://mybot314.ru/tekegram_catalog/

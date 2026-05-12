@@ -1,3 +1,29 @@
+###  Публикация: 1446174   (1033060) от 08.02.2021
+
+Tim Schaufert - Once Moved Too Slow (feat. Yosie) (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once Moved Too Slow (feat. Yosie) (03:34)Жанр: AmbientПродолжительность: 00:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD1EDCCC289E9C41F7C87B353D2D8D77BF312B35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446179   (1033059) от 08.02.2021
 
 Tim Schaufert - Under You (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
@@ -698,34 +724,6 @@ Jean-Michel Jarre - Amazonia (2021) Columbia [FLAC|Lossless|tracks+.cue] <Ambien
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F74CADFB0053AA0582B645E015AE4872EAB58606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108211   (1021683) от 10.04.2021
-
-How To Disappear Completely (HTDC, FOG & HTDC) - Discography 33 Releases (2012-2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Post Rock, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Path To Perdition (Remixed By Sequences) (08:56)
- 02. Fractured (Wolf Maps Edit) (04:24)
- 03. Undone (Unearthed) (07:04)Тип издания: WEBЖанр: Ambient, Drone, Post Rock, Experimental •Продолжительность: 22:47:28 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EC91A72D92890AF1A5366358905AC1816A7EB13
 ```
 
 https://mybot314.ru/tekegram_catalog/

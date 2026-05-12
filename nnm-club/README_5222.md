@@ -1,25 +1,23 @@
-###  Публикация: 1109664   (857489) от 28.02.2017
+###  Публикация: 1000356   (858867) от 25.03.2016
 
-VA - Argentina Avenue #01 (2017) [MP3|320 Kbps] <Progressive House,House>
+Сезар Идальго | Как информация управляет миром (2016) [FB2]
 
->>Electronic
->>House
+>>Научная и техническая литература
+>>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858867.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cristian R & Kasall - Solar Eclipse (Original Mix) (08:00)
-02. LOM (AR) - Lonely Time (Paul Deep & Martin Gardoqui Remix) (08:00)
-03. Pablo Cetrini - For You (Original Mix) (09:04)
-04. Sound Process - Simple Chords (Martin Garcia Remix) (07:48)(   Читать дальше...   )Жанр: Progressive House,HouseПродолжительность: 06:39:02
+Наша Вселенная состоит из материи и энергии, но по-настоящему осязаемой и понятной ее делает наличие информации. Она скрывается в каждой форме и закономерности, упорядочивая наш мир и придавая ему смысл.
+Большая часть книги посвящена Земле и живущим на ней существам, потому что нигде во Вселенной не найти большего количества информации. Но почему она находится на (   Читать дальше...   )Жанр: Зарубежная образовательная литература, Законы мироздания, Развитие обществаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A788CD425F57EBF33DBCE0CB09B21E89B281A51C
+magnet:?xt=urn:btih:3FD97A975A379CD6467A39CC7C52446146D8E48F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +25,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109669   (857488) от 28.02.2017
+###  Публикация: 1000076   (858866) от 25.03.2016
 
-VA - Clinique Mixed XI (2017)(by zweitausendeins Traum) [MP3|320 Kbps] <Progressive House,House>
+Книжная серия | Библиотека юного конструктора [23 книги] (1949-1964) [PDF, DJVU]
 
->>Electronic
->>House
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858866.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Christian Monique - Steam Train (Greenage Remix) 08:08
-02. Imran Khan - Buenos Aires (Original Mix) 08:42
-03. Ghoeyash - My Heart Beat (LoQuai Remix) 08:41
-04. Andrea Bertolini & Valerio Vaudano - Improvvisazione #24 08:34(   Читать дальше...   )Жанр: Progressive House,HouseПродолжительность: 05:29:39
+В книгах серии Библиотека юного конструктора рассказывается, как построить модели различных морских судов и кораблей, самолетов и планеров, как смонтировать радиоприемник, помочь радиофицировать село или колхоз, как самому сделать лодку, буер, яхту и многое-многое другое.Жанр: Сделай сам, самоделкиФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:88C769B3CE1CDDDEDBEF8E0C6724EEE155CD7AEE
+magnet:?xt=urn:btih:B0CEEDE484720B8B7E662033F4B6955F09818C2C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +51,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109684   (857487) от 28.02.2017
+###  Публикация: 1000377   (858865) от 25.03.2016
 
-VA - Let's Get Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Floex (Tomas Dvorak) - Samorost 3 (2016) [FLAC|Lossless|WEB-DL] <Soundtrack, Downtempo, Jazz, Ambient>
 
->>Electronic
->>Easy listening
+>>Other Styles
+>>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858865.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Don Gorda Project - Mild And Quiet  6:47
-02.  Enrico Donner - Sensual Education  5:57
-03.  Cane Garden Quartet - Flying With No Wings  5:54
-04.  Baghira - A Thrill Of Anticipation  5:36(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:36
+1.Samorost 3 Main Theme 07:56
+2.Going On An Adventure 04:02
+3.Mushroom Picker Dance 01:49
+4.Behind The Cosmic Curtain 02:28(   Читать дальше...   )Жанр: Soundtrack, Downtempo, Jazz, AmbientПродолжительность: 01:32:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7636730A87BFBB592D0A79A52EE4697AC780D949
+magnet:?xt=urn:btih:8AE444844DFEBB9618F245EA089E2FA3545A4F73
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +80,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109552   (857486) от 28.02.2017
+###  Публикация: 1000325   (858864) от 25.03.2016
 
-VA - All Good In The Hood Vol.2: 20 Groove Monsters (2017) [MP3|320 Kbps] <House>
+Александр Скрябин/Alexander Scriabin - Vers la Flamme (Владимир Ашкенази/Vladimir Ashkenazy) (2015) [FLAC 2.0|96/24|Lossless|tracks] <Classical, Piano>
 
->>Electronic
->>House
+>>Классика
+>>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858864.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Frank Richmond - Mirror Of Truth 3:09
-002. Gee Lovers - Cops And Robbers 3:24
-003. Jonathan Goldman - Outside The Lines 3:13
-004. 6th Floor Groove Ensemble - Party Girls 2:55(   Читать дальше...   )Жанр: HouseПродолжительность: 01:04:02
+Alexander Scriabin (1872-1915)
+3 Pieces for piano, Op.2
+01. Etude No.1 in C sharp minor - Andante (2:46)
+10 Mazurkas, Op.3 (1889)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:18:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43C9C8CC27E49B8CEB8E4F36FFC33F067DA0C7BF
+magnet:?xt=urn:btih:875D1C738493E833655BB31D8B18CF5B7F635925
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +109,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109674   (857485) от 28.02.2017
+###  Публикация: 612565   (858863) от 25.03.2016
 
-VA - Eivissa Chill Vol.1 (Balearic Island Chill) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Екатерина Мурашова | Лечить или любить? (2012) [PDF]
 
->>Electronic
->>Easy listening
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_858863.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  E-Motive - Street Waves  4:11
-02.  Roberto Sol - Te Amo (feat. Ines Prados)  4:40
-03.  Rinat KaaS - Inside Emotions  4:36
-04.  Sunyata Project - Mystic Adventures (Oriental Chill Mix)  3:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:40:20
+Екатерина Мурашова работает семейным психологом в обычной детской поликлинике. К ней обращаются с самыми разными проблемами: детской зависти и ревности, агрессивности и застенчивости, гиперактивности и неумения за себя постоять.
+Книга "Лечить или любить?" составлена из эссе, публиковавшихся в популярном электронном журнале "Сноб" и вызвавших живой (   Читать дальше...   )Жанр: Психология, ВоспитаниеФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A9E964ABA76E5811576EB78ACB6A16FC8F24565
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +136,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109677   (857484) от 28.02.2017
+###  Публикация: 258653   (858862) от 25.03.2016
 
-VA - Natural Born Chillas, Vol. 7 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+А.Г. Шемарин | Страны мира. Детская энциклопедия (1998) [DJVU]
 
->>Electronic
->>Easy listening
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858862.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. York - Interlude 0:59
-002. 351 Lake Shore Drive - Day Of Light 2:19
-003. Simon Le Grec - Forbidden Love 3 (radio mix) 4:25
-004. Project Blue Sun - Ad Astra Per Aspera 5:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:24:06
+В боrато иллюстрированной книге собраны краткие сведения обо всех гocyдарствах cовременного мира: природные условия, характеристика хозяйства, обзор исторических событий, данные о численности населения, политическом устройстве, крупнейших городах, приведены карты-схемы и цветные изображения флагов.
+Издание будет полезно школьникам в качестве дополнительного материала (   Читать дальше...   )Жанр: Энциклопедии для детейФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B308646340322B9662864DBD9CE7B38EC9FB85E
+magnet:?xt=urn:btih:924B8BC092F81ABF52E2C522E26B2B589AF38CAB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +163,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109556   (857483) от 28.02.2017
+###  Публикация: 1000404   (858861) от 25.03.2016
 
-VA - Boutique Lounge Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Android Studio 1.5.1 Build #AI-141.2456560 [En]
 
->>Electronic
->>Easy listening
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858861.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Omaya - Fanatically - Original Mix 3:26
-002. Mowree - Expanse - Original Mix 5:33
-003. Felipe Gonzalez - No Hablas Espagnol - Original Mix 4:56
-004. Mathieu & Florzinho - Eternal Now - Original Mix 5:34(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:44:30
+Android Studio — это интегрированная среда разработки (IDE) для работы с платформой Android, анонсированная 16 мая 2013 года на конференции Google I/O. IDE находилась в свободном доступе начиная с версии 0.1, опубликованной в мае 2013, а затем перешла в стадию бета-тестирования, начиная с версии 0.8, которая была выпущена в июне 2014 года. Первая стабильная версия (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2DB4E82DDA758AF7961359F71ABE1626F342BEAE
+magnet:?xt=urn:btih:9CB4FC8820D5255CED124C795D4773921DDF9557
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +189,184 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 875278   (857474) от 06.03.2015
+###  Публикация: 1000266   (858860) от 25.03.2016
 
-Маргарита Блинова | Тяжело быть студентом (2015) [FB2]
+Журнал | Радио №3 (март 2016) [DJVU]
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858860.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первый роман цикла «Тяжелые будни!».
+В журнале представлены новости науки и техники, устройство и ремонт отдельных образцов видио и аудиотехники, конкретные устройства в технике измерений и источников питания. Показаны разработки радиолюбителей-конструкторов, большой объем устройств из прикладной электроники. В каждом журнале имеется специальный раздел для начинающих радиолюбителей.Жанр: Научно-популярный журналФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:599A6E311A104A3DA13A743213DD9C4BDEF7E7BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000222   (858859) от 25.03.2016
+
+Звёздные войны: Пробуждение силы /  Star Wars: Episode VII - The Force Awakens (2015) HDRip [Line]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через тридцать лет после гибели Дарта Вейдера и Императора галактика по-прежнему в опасности. Государственное образование Новый Порядок во главе с их таинственным верховным лидером Сноуком и его правой рукой Кайло Реном идёт по стопам Империи, пытаясь захватить всю власть. В это нелёгкое время судьба сводит юную девушку Рей и бывшего штурмовика Нового Порядка Финна (   Читать дальше...   )Производство: СШАЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Джей Джей АбрамсАктеры: Харрисон Форд, Энди Серкис, Кэрри Фишер, Донал Глисон, Гвендолин Кристи, Марк Хэмилл, Оскар Айзек, Лупита Нионго, Адам Драйвер, Уорвик ДэвисПеревод: Дублированный (чистый звук)Субтитры: ОтсутствуютПродолжительность: 02:18:30Реклама: Присутствуют вставки голосовой и текстовой рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A976010B0C861445EDF10BC66AA9A806175E381B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000386   (858858) от 25.03.2016
+
+Отступление / Backtrack  (2015) BDRemux [H.264/1080p] [EN / EN, Fr Sub]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь психолога Питера Бауэрса меняется не в лучшую сторону, когда он понимает, что его пациенты - призраки людей, умерших в результате несчастного случая 20 лет назад. Боясь сойти с ума, Питер возвращается в свой родной город, где раскрывает ужасающую правду, которую может исправить только он.Производство: Австралия, Head Gear Films, Metrol Technology, Screen Australia, See PicturesЖанр: триллер, детективРежиссер: Майкл ПетрониАктеры: Эдриан Броуди, Сэм Нил, Робин МакЛиви, Брюс Спенс, Дженни Бейрд, Хлоя Бэйлисс, Анна Лизе Филлипс, Малкольм Кеннард, Ольга Миллер, Джордж Шевцов, Сьюзи Стин, Майкл УоллиПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, французскийПродолжительность: 01:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD740959F5615713C09F5B280FC49DB7B916E18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000403   (858857) от 25.03.2016
+
+Девушка из Дании / The Danish Girl (2015) BDRip [H.264/1080p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в 1920-х годах в Копенгагене. Иллюстратор и художник Герда Вегенер просит своего мужа Эйнара Вегенера попозировать в качестве женской модели. Портреты приобретают популярность и Герда продолжает писать картины со своим мужем в качестве женщины. Эйнару нравится собственная женская внешность и он начинает жить под именем Лили Эльбе. Впоследствии (   Читать дальше...   )Производство: Великобритания, США, Бельгия, Дания, Германия / Artémis Productions, Copenhagen Film Fund, Kvinde FilmsЖанр: драма, мелодрама, биографияРежиссер: Том ХуперАктеры: Эдди Редмэйн, Алисия Викандер, Туссе Сильберг, Адриан Шиллер, Эмбер Хёрд Депп, Эмиральд Феннел, Генри Петтигрю, Клаус Буе, Питер Крэг, Анджела КарренПеревод: Дублированный (iTunes)Язык субтитров: Русский, АнглийскийПродолжительность: 01:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1DBC12895EF3823EAB1C1F940EA11E1746920E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000372   (858856) от 25.03.2016
+
+Проекты - Проект ProShow Producer - Greenfields [PSH]
+
+>>Проекты
+>>Свадебные и романтические (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект создан в PSP-6. Презентация в романтическом жанре.
+Проект может быть использован в оригинальном исполнении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов. Превью и саундтрек - в раздаче.Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E36B669578534AA13EF4D2C42A22B728533AA6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000330   (858855) от 25.03.2016
+
+SolveigMM Video Splitter 5.2.1603.25 Business Edition + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858855.jpg" />
+</div>
+
+
+###  Подробнее
+
+SolveigMM Video Splitter - редактор для MPEG-2, AVI, WMV, ASF, MP4, MKV, MOV, AVCHD, WEBM, FLV, MP3, WMA файлов. Основные функции программы - возможность быстро сохранить или вырезать произвольное количество медиа фрагментов из видео / аудио файла,  а также объеденение медиа файлов. Все операции выполняются с сохранением исходного качества и без потери видео/аудио (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D916520575FD514AC8B6D43C6EF2ED8FEA86DF85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000418   (858854) от 25.03.2016
+
+Villagers (2016) [Ru/Multi] (1.004) License RELOADED
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Villagers - это прекрасно иллюстрированная и детализированная игра, где вы должны строить и развивать сельское сообщество, используя людей и ресурсы вокруг вас. Успех или неудача полностью зависит от вашей личных способностей, благодаря которым можно создать процветающую деревню, и преодолеть суровые реалии средневековой жизни!
 
-Ангелина – самая обычная на вид девушка, которая учится на последнем курсе Университета Магии и Ворожбы. Причем магии в ней ни грамульки, поэтому приходится грызть гранит теоретической науки, особо ни на что в будущем не надеясь. Скучная однообразная жизнь среднестатистической зубрилки?
-Да, именно такой Линка и старается казаться, (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
+Сбор и рациональное использование (   Читать дальше...   )Тип издания: LicenseРазработчик: BumblebeeЖанр: Strategy, Simulator, IndieЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B60F0D3366A29735A32FAE5FA0A72E7A9DCAF80
+magnet:?xt=urn:btih:8E9E32DE9D704E65BCBA34A6E5F67EFE84B8CF32
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,255 +374,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 874354   (857464) от 06.03.2015
+###  Публикация: 1000317   (858853) от 25.03.2016
 
-Вертикаль (1967) DVDRip [H.264] [hand made colored]
-
->>След.
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группе альпинистов, идущих на штурм непокоренной кавказской вершины, пика Ор-Тау, послан сигнал о немедленном возвращении: надвигается грозовой циклон. Связист скрывает от товарищей это предупреждение, и они оказываются в критической ситуации. Трагедии удается избежать только благодаря мужеству спасателей и опыту самих спортсменов…Производство: СССР, Одесская к/стЖанр: Драма, приключенияРежиссер: Борис Дуров, Станислав ГоворухинАктеры: Владимир Высоцкий, Маргарита Кошелева, Геннадий Воропаев, Александр Фадеев, Георгий Кулбуш, Лариса Лужина, Бухути Закариадзе, М. Анучринов, Л. Глисеев, Л. КахилинПродолжительность: 01:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD935E56AFBB8B73696ABBF2B753C7070220598B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109594   (857462) от 28.02.2017
-
-VA - Energy 15 Trance Best (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Omniks - Looking For You (Original Mix)  6:48
-02.  Tycoos & First Sight - Wonderland (Original Mix)  6:12
-03.  Raz Nitzan & Kate Louise Smith - This Time (Steve Allen Remix)  4:44
-04.  Delta IV - Forever Home (Betsy's Heart Pt. 2) (Original Mix)  9:38(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Energy, ProgressiveПродолжительность: 01:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08BF7922C416C79FA16739239B4B4EC40E9DB45E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109652   (857461) от 28.02.2017
-
-Les McCann Ltd. - In San Francisco (1960) 2012, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Oh, Them Golden Gates [04:10]
- 02.Red Sails In The Sunset [08:32]
- 03.Big Jim [07:06]
- 04.I Am In Love [05:02](   Читать дальше...   )Жанр: Hard Bop, Soul-Jazz, Piano JazzПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70490E3D300C7A0486905E759245E141C8695C95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109597   (857460) от 28.02.2017
-
-VA - Re Confirmed: Deep House Selection Vol.2 (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857460.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bunched - Ame?lie's Symphony - Fabian Schumann Remix 6:32
-002. Joe Pycasso - Feel Love - Original Mix 8:21
-003. James Rod - Lipstick 78 - Schwarz 100 Remix 5:40
-004. Q Narongwate - Local Talk - Original Mix 5:42(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB91B2645C9C1677390A2A9F4F27077F6ABF0C23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109883   (857459) от 28.02.2017
-
-Dave Brubeck - Live With the LSO (2001) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857459.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Summer Music
-2. In Your Own Sweet Way
-3. A Salute To The Count (The Basie Band Is Back In Town)
-4. Chorale(   Читать дальше...   )Жанр: JazzПродолжительность: 01:14:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A77B328B4443AB5C1AD95C7FAF1B408E0860974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109598   (857458) от 28.02.2017
-
-VA - Universal Language (Lounge Anthems) Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Anthony Spears - Lady  4:53
-02.  Jazz Lounge - Bass In System  4:59
-03.  Frank Tornell - Antologia  4:06
-04.  Steven Summers - Virgin Grooves  3:56(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE950619AF4B0583DF162F0D621295436F26B74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109514   (857457) от 28.02.2017
-
-VA - Музыкальное зимнее настроение выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857457.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Monisha - Брюлли Диванны Автомобилли 3:32
-002. Герр Антон (Herr Anton) - Так Тому И Быть 3:33
-003. Катя Ростовцева - Целуй 3:55
-004. Блокбастер - Лето 3:47(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA0D0595C01578B9AE96F3C386B5EE2ABEEAB461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109702   (857456) от 28.02.2017
-
-VA - Only Tech House Tracks Vol.6 (Weekend Weapons) (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Max Sabatini - Keep The Beat (Tony Puccio Remix)  5:38
-02.  Jens Mueller - Freshness (Original Mix)  7:18
-03.  Joseph Matera - Boca (Giulio Lnt Remix)  6:39
-04.  Alex Raimondi - White Lake (Max Sabatini & Alex B Remix)  6:07(   Читать дальше...   )Жанр: HouseПродолжительность: 01:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:794E668A980684AE45FAA72B522B957065E88B4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109559   (857455) от 28.02.2017
-
-Permute 2.4.1 [Multi/Ru]
+AdminPE10 1.3 [Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858853.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Permute: Универсальный конвертер видео, аудио и изображений
-Проблема конвертации видео и аудио для iPhone/iPad все еще не утратила своей актуальности.  Permute это самый простой в использовании, обладающий Drag & Drop интерфейсом, конвертер медиа файлов, не требующий настроек для преобразования контента.  Возможности по кодированию довольно неплохие, но не стоит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27 февраля 2017Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский, Итальянский и др.
+AdminPE - загрузочный диск/флешка системного администратора AdminPE (WinPE10 - Win10). Предназначен для работы с автономной Windows 10.Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:566BE7B74B578411035A8BD6C8F885799BE3DEAC
+magnet:?xt=urn:btih:1484BE9702D85E2F622C5629F74D362151D845FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -486,28 +400,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109620   (857454) от 28.02.2017
+###  Публикация: 1000453   (858852) от 25.03.2016
 
-Blind The Huntsmen - White Eyes (2017) [MP3|320 Kbps] <Progressive Metal>
+Alternativa / Альтернатива: Нечего терять (2011) [Ru] (1.7.5.808) Repack R.G. Catalyst
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Win Игры
+>>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858852.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chapter 1 - Khomorrah's Box 06:52
-02. Chapter 2 - Emanations Of Light And Shadow 07:52
-03. Chapter 3 - Trial Of The Descendants 06:08
-04. Chapter 4 - The Hidden Puppeteer 07:54(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:03:06
+2045 год. Мир изменился. И, как обычно, не в лучшую сторону. Транснациональные корпорации жестко контролируют все сферы жизни общества. Простой человек для них – не более чем пылинка на ветру. Он теряет родителей в детстве, он надрывается за копейки на стройке очередного офиса, и даже оттуда его увольняют. Он пытается протестовать — у него отбирают персональную карту (   Читать дальше...   )Тип издания: RepackРазработчик: Centauri ProductionЖанр: AdventureЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87A04287C245AA269907A90E84657783936D8270
+magnet:?xt=urn:btih:1C00609196C5BC6950F41F0828D2B647882CDB00
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -515,28 +426,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109803   (857453) от 28.02.2017
+###  Публикация: 170732   (858851) от 25.03.2016
 
-VA - Nothing But... Trance Anthems Vol.7 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+Филипп Керр | Дети лампы [3 книги] (2009) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_858851.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эпопее британского писателя Ф.Б.Керра "Дети лампы" чудеса случаются на каждом шагу: их творят представители добрых и злых джинн-кланов, постоянно борющихся друг с другом.Жанр: ФэнтезиПродолжительность: 32:30:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000413   (858850) от 25.03.2016
+
+Девушка из Дании / The Danish Girl (2015) Blu-ray [H.264/1080p]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858850.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Skylex - Wonder Sky (Original Mix)  6:52
-02.  Emanuele Braveri - Game Over (Original Mix)  6:50
-03.  Moonsouls - Broken (Extended Mix)  6:38
-04.  LTN - The Last Ride (Extended Mix)  5:54(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:43:09
+Действие происходит в 1920-х годах в Копенгагене. Иллюстратор и художник Герда Вегенер просит своего мужа Эйнара Вегенера попозировать в качестве женской модели. Портреты приобретают популярность и Герда продолжает писать картины со своим мужем в качестве женщины. Эйнару нравится собственная женская внешность и он начинает жить под именем Лили Эльбе. Впоследствии (   Читать дальше...   )Производство: Великобритания, США, Бельгия, Дания, Германия / Artémis Productions, Copenhagen Film Fund, Kvinde FilmsЖанр: драма, мелодрама, биографияРежиссер: Том ХуперАктеры: Эдди Редмэйн, Алисия Викандер, Туссе Сильберг, Адриан Шиллер, Эмбер Хёрд Депп, Эмиральд Феннел, Генри Петтигрю, Клаус Буе, Питер Крэг, Анджела КарренПеревод: Дублированный (iTunes)Язык субтитров: Английский, Французский, Испанский, Русский (форсированные)Продолжительность: 01:59:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C855A31026A4CD3FD351E375D4CBE0E5A65CFDC
+magnet:?xt=urn:btih:867A8D80E1B40C50E92856ECF9E5E09F9F29EAFC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,25 +478,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000616   (857452) от 26.03.2016
+###  Публикация: 1000399   (858849) от 25.03.2016
 
-Журнал | Идеальный дом №3 (Март 2016) [PDF]
+Девушка из Дании / The Danish Girl (2015) BDRip [H.264/720p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в 1920-х годах в Копенгагене. Иллюстратор и художник Герда Вегенер просит своего мужа Эйнара Вегенера попозировать в качестве женской модели. Портреты приобретают популярность и Герда продолжает писать картины со своим мужем в качестве женщины. Эйнару нравится собственная женская внешность и он начинает жить под именем Лили Эльбе. Впоследствии (   Читать дальше...   )Производство: Великобритания, США, Бельгия, Дания, Германия / Artémis Productions, Copenhagen Film Fund, Kvinde FilmsЖанр: драма, мелодрама, биографияРежиссер: Том ХуперАктеры: Эдди Редмэйн, Алисия Викандер, Туссе Сильберг, Адриан Шиллер, Эмбер Хёрд Депп, Эмиральд Феннел, Генри Петтигрю, Клаус Буе, Питер Крэг, Анджела КарренПеревод: Дублированный (iTunes)Язык субтитров: Русский, АнглийскийПродолжительность: 01:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABF664C3F4135202D7AFF9635CD3AB77141CE05E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 769142   (858844) от 21.03.2014
+
+Газета | Сезон у дачи №5 (155) (Март 2014) [PDF]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858844.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Идеальный дом - журнал для влюблённых в свой дом. Журнал посвящен вопросам недвижимости, архитектуры, дизайна интерьеров, а также затрагивающий темы, касающиеся защиты прав домовладельцев и землепользователей, модернизации жилого пространства в соответствии с новыми технологиями, стилями и канонами. Издание, предлагающее креативные идеи и пути их осуществления...Жанр: Интерьер, дизайнФормат: PDF
+Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D7BF7EED8F249E5FAE199E84EDE0DD43F85A5B1
+magnet:?xt=urn:btih:DE18895DB2ABE0F31F34F69DFB222A9D3B9AE4E3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -570,28 +530,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109587   (857451) от 28.02.2017
+###  Публикация: 769075   (858829) от 21.03.2014
 
-VA - Moments Of Freedom Vol.2 (Selection Of Finest Chill Out & Ambient Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Сельма Лагерлеф | Перстень Лёвеншёльдов (1989) [FB2]
 
->>Electronic
->>Easy listening
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858829.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Florito - Shirabyoshi Love  4:22
-02.  Dembora - Sunderland  3:01
-03.  Chin Chiller - Moussique Au Chocolat (feat. Conny)  4:27
-04.  Roberto Sol - My Soul  4:52(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:16:00
+В саге о пяти поколениях семьи Левеншельдов параллельно развиваются три истории, охватывающие события с 1730 по 1860 год. Представителей этого рода связывает тема преступления и наказания, тайные предсказания и довлеющие над членами семьи проклятия. И противостоять этому может лишь любовь и добрая воля человека, способные победить лицемерие, корысть и зло.
+Действие (   Читать дальше...   )Жанр: Зарубежная литература для детейФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72356B48A8AA50F73F6B423431780DDE0C062584
+magnet:?xt=urn:btih:238E4BC93ED61158D6EB74DEE9856F976E29DC83
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -599,28 +557,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109554   (857449) от 28.02.2017
+###  Публикация: 647286   (858823) от 22.04.2013
 
-VA - Deep House Warm Up (2017) [MP3|320 Kbps] <Deep House>
+Журнал | Открытые системы. СУБД №3 (189) (2013) [PDF]
 
->>Electronic
->>House
+>>Журналы
+>>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858823.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Mighty Real - Little by Little 5:59
-002. Performative Mode - Pixelated 6:46
-003. Circuito Zeta - Step Down 7:18
-004. Self Explanatory - Game Changer 6:54(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:14:31
+Открытые системы - ведущий отечественный журнал (издается с 1993 года), посвященный обсуждению вопросов, связанных с высокими технологиями: построение гетерогенных информационных систем; ИТ-архитектуры; микропроцессоры; операционные системы; хранилища данных; Web-технологии; управление ИТ-сервисами; информационная безопасность; отраслевые решения; программная инженерия; (   Читать дальше...   )Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8115033D5EC49D6EAAB8BB3C58C2636E06467F0B
+magnet:?xt=urn:btih:1F929ACA19EF0C3828A22E7718F689FEBBD620F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -628,112 +583,106 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000564   (857448) от 26.03.2016
+###  Публикация: 647011   (858809) от 22.04.2013
 
-VA - Давай, наливай. Сборник радио Шансон 4 (2016) [MP3|256 кб/с] <Shanson>
+Детали / The Details (2011) BDRip  [720p] [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858809.jpg" />
+</div>
+
+
+###  Подробнее
+
+История семейной пары, совместная жизнь которых находится в весьма плачевном состоянии по причине измены. Отношения персонажей еще и обостряются после того, как на их заднем дворе происходит нашествие енотов. Разногласия по поводу того, как избавиться от вредителей рождают цепочку недоразумений, оканчивающихся убийством с применением лука и стрел.Жанр: Драма, КомедияРежиссер: Джейкоб Аарон ЭстесАктеры: Элизабет Бэнкс, Керри Вашингтон, Тоби Магуайр, Рэй Лиотта, Лора ЛинниПеревод: ОтсутствуетПродолжительность: 01:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD540D1CD53FF81B0F0F16E48B90A67980821BC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376716   (858808) от 18.04.2020
+
+Glary Utilities Pro 5.140.0.166 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glary Utilities – комплект системных твикеров и утилит для тонкой настройки, повышения производительности и защиты ПК. Позволяет избавиться от мусорных файлов, устаревших записей регистра и истории интернет-истории. При помощи Glary Utilities пользователь может управлять (в том числе и удалять) различными модулями, используемыми для расширения функциональных возможностей (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2815B72E47DA7157783284CB8F38C4553ED2BB19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376498   (858807) от 18.04.2020
+
+Adguard 2.4.6.766 nightly [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adguard — это лучший способ избавиться от раздражающей рекламы, защититься от онлайн-слежки и мошеннических сайтов. Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.04.2020Разработчик: AdguardПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:918454B09AFB83FE85AC1FFF4FF0804AC8309505
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376722   (858806) от 18.04.2020
+
+VA - Beatport Trance: Electro Sound Pack #60 (2020) [MP3|320 Kbps] <Trance, Uplifting, Progressive, Vocal>
 
 >>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858806.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Виктор Барабанщиков - Сравнение
-02. Александр Дюмин - Братушка
-03. Виталий Волк - Русалочка
-04. Валерий Курас - Есть Еще Порох(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:06:32
+001. Zumbo - Information Psy
+002. Aquarius Orb - F.P.N.S.
+003. Lange - Nearly Home
+004. Estiva - Perpetual (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting, Progressive, VocalПродолжительность: 12:27:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04B39C8A9321EEEF4BA396ED9791112C7A442DF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109645   (857447) от 28.02.2017
-
-VA - Chillout Ladies Vol 5 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Elements - Young Rebel (Sunrise Mix) [00:03:33]
-02. Soul Frequency - On The Job (Vocal Mix) [00:03:33]
-03. Gt 55 - Red Color (Gray Clouds Mix) [00:03:12]
-04. Moon System - Make The Pitch [00:03:01](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56DB225075DF7DDA6CDCBD3E3320CFC13FE3EEF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000760   (857446) от 26.03.2016
-
-Spirits of Mystery 6: Family Lies (2016) [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Королевство захвачено неизвестным врагом и это зловредные растения. Принцесса попадает в заключение и ей предстоит освободиться самой, спасти свою семью, узнать правду и обезвредить придворного мага Ису с его помощницей пантерой. Хватит ли на все это сил у принцессы и выиграть бой с колючими лианами?Тип издания: UnofficialРазработчик: ERS Game StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB2108DCC074014406553C3B2A65C27645FA3CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109502   (857445) от 28.02.2017
-
-VA - New York Deep Vibes: 2017 Deep House Selection (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857445.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. J-Key - Octopus 4:09
-002. Tabula Rasa - Hashtag Stop - Code Remix 5:19
-003. Minimal Duo - Low Profile 5:00
-004. Tabula Rasa - Cocktail Party 4:55(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:11:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:504A12372CC1D0ED7AC1AA3BAF840CFC5C52ED57
+magnet:?xt=urn:btih:88077E53657D22850FDE326FACCF2442241E2125
 ```
 
 https://mybot314.ru/tekegram_catalog/

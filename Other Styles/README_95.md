@@ -1,3 +1,148 @@
+###  Публикация: 1046289   (551851) от 27.08.2016
+
+Nick Murray & Roger Shah - Singularity (2016) [MP3|320 Kbps] <Soundtrack, Classic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Murray, Juliet Lyons & Roger Shah – Miracle of Life
+02. Nick Murray, Roger Shah & Tori Letzler – Future Fighter
+03. Nick Murray & Roger Shah – Enter the Heroes
+04. Nick Murray & Roger Shah – Singularity(   Читать дальше...   )Жанр: Soundtrack, ClassicПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04205CA385B145EEAA41109D6F36ED973A08B33C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046461   (551850) от 27.08.2016
+
+Florida Georgia Line - Dig Your Roots (2016)[MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551850.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Smooth
+2. Dig Your Roots
+3. Life Is a Honeymoon (Feat. Ziggy Marley)
+4. H.O.L.Y.(   Читать дальше...   )Жанр: CountryПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD88A5BD4398DEF34FDB254AF247FBAA3F6A54DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046163   (551799) от 27.08.2016
+
+VA - Rock of Ages (2012) [FLAC|Lossless|tracks + .cue] <Rock, Stage & Screen>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Cruise - Paradise City (3:43)
+02. Julianne Hough, Diego Boneta, Russell Brand & Alec Baldwin - Sister Christian/Just Like Paradise/Nothin' But A Good Time (5:42)
+03. Diego Boneta, Alec Baldwin, Russell Brand & Julianne Hough - Juke Box Hero/I Love Rock 'N' Roll (2:23)
+04. Catherine Zeta-Jones - Hit Me With Your Best Shot (2:29)(   Читать дальше...   )Жанр: Rock, Stage & ScreenПродолжительность: 01:02:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9AFC552A96D280503DA512518BC180CD5E7B781
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046390   (551663) от 27.08.2016
+
+Kyle Dixon & Michael Stein - Stranger Things / Очень странные дела, Vol. 1 (A Netflix Original Series Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stranger Things (01:08)
+02. Kids (02:39)
+03. Nancy and Barb (01:06)
+04. This Isn’t You (02:24)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58F930AA31953797CE0AA5DB6D20B282BA17FCDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237572   (551481) от 24.07.2018
+
+Malin Andersson - Follow (2018) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Deep Water (3:52)
+02 - Follow (3:26)
+03 - Giving It Away (3:37)
+04 - Those Eyes (3:38)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7DBAD90D421B489B683CB3D775304A1B5D1E8E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237519   (551478) от 24.07.2018
 
 Andre Gagnon - Les Jours Tranquilles (1993) [FLAC|Lossless|tracks + .cue] <Instrumental, Piano, New Age>
@@ -600,148 +745,6 @@ Medwyn Goodall - Kissed by the Sun (2016) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4016CF4ABDB4B1A8A92795F341E7C662002B99A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238784   (544605) от 01.08.2018
-
-7and5 - The Lost Voice (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Closer to Heaven (4:41)
-02. Life at Once (3:46)
-03. Father (4:37)
-04. Mi Deh Yah (3:46)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDEC78E89A467A0CF269761A806EC609E9FCE4DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238815   (544603) от 01.08.2018
-
-Simon Daum - Of One Heart (2018) [MP3|320 Kbps] <Instrumental, Piano, New age>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Matter What (3:21)
-02. A New Life (5:08)
-03. Set Free (2:48)
-04. Distant Call (2:27)(   Читать дальше...   )Жанр: Instrumental, Piano, New ageПродолжительность: 01:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B74938CD824FC976A810920DA7AEBF13A1D1EB66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049027   (544542) от 04.09.2016
-
-Zack Hemsey - (Discography) (2006-2014) [FLAC|Lossless|WEB-DL|tracks]<Instrumental, Hip Hop>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Instrumental, Hip Hop •Продолжительность: 10:12:29 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F001C7445840BA01DED9BFB9035CFBD1B8FD59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049323   (543810) от 05.09.2016
-
-As Ganhadeiras de Itapua - As Ganhadeiras de Itapua (2014) [MP3|196-213 Kbps] <Latin Music>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Canto Da Lavadeira [2:57]
-02. Bando Das Ganhadeiras [4:15]
-03. As Ganhadeiras [3:37]
-04. Conto De Areia [4:00](   Читать дальше...   )Жанр: Latin MusicПродолжительность: 01:05:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E010B87F961B75A93CA2667DC6AA2C4F437E487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049410   (543764) от 05.09.2016
-
-Hong Kong Virtuosi Folk Ensemble - Four Virtuosi Plays Chinese Traditional Music Vol.2 (1989) [WavPack|Lossless|image + .cue] <Ethno, Chinese Traditional Music>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543764.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Plum Blossom Melody (7:52)
-2. Sound Of The Nature (6:05)
-3. Song Of The Lotus (7:38)
-4. Phoenix Spreading His Tail (3:39)(   Читать дальше...   )Жанр: Ethno, Chinese Traditional MusicПродолжительность: 01:05:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7850F5F526B73F14B6AF36341C9537C6E32E6C2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1038787   (599286) от 30.07.2016
+
+Chicane - Twenty (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance, House, Ambient>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Offshore (Thomas Datt Remix) (7:31)
+02. Saltwater (feat. Maire Brennan) (Jody Wisternoff Remix) (8:40)
+03. Poppiholla (Anniversary remix) (6:40)
+04. Dont Give Up (feat. Bryan Adams) (Philip George Remix) (5:50)(   Читать дальше...   )Жанр: Trance, House, AmbientПродолжительность: 03:25:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C70471E136BA2E552FB636FAB81C56E310560876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550871   (591212) от 13.05.2022
+
+Alternate High - Emotional Music on VERSE (2022) [FLAC|Lossless|WEB|tracks] <Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alternate High - Strings of Destiny (Emotional Mix) (8:52)
+02. Alternate High - Far Away (Original Mix) (7:49)
+03. Alternate High - On My Mind (Original Mix) (8:50)
+04. Alternate High - Strings of Destiny (Original Mix) (8:33)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F783682AE8CE818DB324DC57B1C2C0C226084146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916796   (590385) от 09.07.2015
+
+VA - Magic Island - Music For Balearic People Vol. 6 (Mixed by Roger Shah) (2015) [FLAC|Lossless|WEB-DL]<Trance, Progressive Trance, Balearic Trance >
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roger Shah & Aisling Jarvis - Call Me Home (Magic Island Mix) (6:20)
+02. Brian Laruso & John James Renfrow - We Used to Know (Original Mix) (5:06)
+03. Rogier Dulac - On the Beach (MI6 Edit) (4:25)
+04. Othon - Japan Suite (Brian Laruso's MI6 Edit) (5:18)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Balearic TranceПродолжительность: 05:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:570D4613DD9A37329B2F27D29FDB979CEFBC3181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301273   (585269) от 11.05.2019
 
 Professor Trance & The Energisers - Shaman's Breath (2002) [FLAC|Lossless|image + .cue] <Tribal, Trance, House>
@@ -650,93 +737,6 @@ Delerium feat Phildel - Ritual (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance, Dar
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B6A7A398B4F63A70ED73503709DC549ED36AC26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405751   (481260) от 31.08.2020
-
-VA - Pure Trance Frequencies 2 (2020) [FLAC|Lossless|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul van Dyk & KINETICA - First Contact (Extended Mix)
-02. Talla 2XLC - Acideria (Original Mix)
-03. Tiësto feat. JES - Everything (STANDERWICK Extended Remix)
-04. Andrew Rayel & Robbie Seed feat. That Girl - Stars Collide (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47ED1C242B0BC48DD0C45EB014277258774E865A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245080   (476087) от 04.09.2018
-
-VA - Molar Hard Trance (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phoenix - Electricity (Original Mix)
-02. H-Blast - Back To Rave (Original Mix)
-03. H-Blast - Back To Rave (100Mg Remix)
-04. Dean R - Chunky Soup (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:149E25849551D36671995F540AE06450833F1F1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245454   (472008) от 06.09.2018
-
-VA - Afterdark 001 - Buenos Aires (Mixed & Compiled by Sneijder) (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dogzilla – Dogzilla (Alex Di Stefano Remix)
-02. Alex Di Stefano – The Sin (Original Mix)
-03. Iain M – Psychoactivity (Original Mix)
-04. Project 8 – Submerge (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E59D6BED48AF3A992790EEE9675CC1B56D84D00F
 ```
 
 https://mybot314.ru/tekegram_catalog/

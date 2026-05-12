@@ -1,3 +1,116 @@
+###  Публикация: 1112341   (843110) от 08.03.2017
+
+Dan Gibson's & Donald Quan - Asian Spa (2004) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The True Path
+02. Watery Illumination
+03. Infinite Journey
+04. Euphoric Balance(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A37D755F917F4A4F8FE6599C5D3BB65F373A8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 309349   (842302) от 15.03.2011
+
+Реальные пацаны (2011) [MP3|320 kbps]<Pop/Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842302.jpg" />
+</div>
+
+
+###  Подробнее
+
+2011Жанр: Pop/SoundtrackПродолжительность: 02:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:013FBE6FE7A6618C1AF0F26C11B1F2D1921A86D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 771895   (842009) от 30.03.2014
+
+VA - Simply Anti Stress /4CD/ (2010) [FLAC|Lossless]<New age, Chillout, Nature sounds>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842009.jpg" />
+</div>
+
+
+###  Подробнее
+
+(7:26) 1. Akash Asher - Far From The City
+(7:46) 2. Saffron Sounds - Warm Embrace
+(7:23) 3. Perry Wood - Crown - Oneness
+(8:01) 4. Karma Soundz - Inner Depth(   Читать дальше...   )Жанр: New age, Chillout, Nature soundsПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CCC2C8F08AE717AB31829302D8FE3BE80E67D07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002793   (841702) от 04.04.2016
+
+Sacred Earth - Breathing Space (2014) [FLAC|Lossless|tracks] <New Age, Relax, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grounded    09:31
+02. Bliss    07:25
+03. Breathing Space    08:06
+04. Jai    08:55(   Читать дальше...   )Жанр: New Age, Relax, MeditativeПродолжительность: 00:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAD34DB1ABE4D0B35AB9EBF89332220F680015F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003651   (841687) от 04.04.2016
 
 Alice Gomez - Sleep Cycles of the Native American Flute (Over an Hour of Soothing Native Flute Melodies) (1998) [MP3|320 кб/с] <Native American, Ethnic Fusion, Meditation, New Age>
@@ -633,119 +746,6 @@ Luca Stricagnoli - Change Of Rules (2020) [FLAC|Lossless|WEB-DL|tracks] <Instrum
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81C5DE0FC8D45A7FE0D1456CE3D2E1DABFFE2E1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378985   (835890) от 01.05.2020
-
-Peter Kater - Hawai'i: A Tribute to Aloha Aina (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835890.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. In Their Footsteps 02:49
-2. A Solomn Journey 03:15
-3. Spirit of Kaloko 02:45
-4. Loko 'ia 01:55(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14B7CAC0AB47500844CE769296109C4AD4589294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113899   (835239) от 13.03.2017
-
-Joe Bongiorno - Love's Light (Solo Piano) (2016) [FLAC|Lossless|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love's Light [00:04:24]
-02. Call of the Canyon [00:04:37]
-03. Fly for Her [00:04:54]
-04. Surreal [00:04:20](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:58:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3181758F5D77CDFFCD074EAD25CE2A0B211FBCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380409   (834906) от 02.05.2020
-
-Евгений Крылатов - Крылатые Качели (1994) APEX Records [FLAC|Lossless|tracks] <Vocal, Soundtrack, Theme>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хор п/у В. Попова - Крылатые Качели (03:17)
- 02. Хор п/у В. Попова - Прекрасное Далеко (03:18)
- 03. А. Миронов - Песенка О Шпаге (02:48)
- 04. Хор п/у В. Попова - Колыбельная Медведицы (03:27)(   Читать дальше...   )Жанр: Vocal, Soundtrack, ThemeПродолжительность: 01:05:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:882B9D7758E8AA2810C076E64546A7A3E09726CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509845   (834402) от 02.05.2020
-
-Птицы - Курские Соловьи (2004) [FLAC|Lossless|image + .cue] <Звуки Природы>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Курские соловьи (01:19:56)Жанр: Звуки ПриродыПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA9C53976CFE6CF5979C0454E02EAEE0B8AA5EC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 610335   (990343) от 29.01.2013
+
+Tom Boxer feat. Antonia - Shake It Mama (2011) HDRemux [h.264,1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:380F156AF6B948AAA28F3860CCDADAA9DEB5CBC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610096   (990253) от 29.01.2013
+
+Avril Lavigne - What The Hell (2011) BDRip [h.264,1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A33350E750631491706C09F88B90D6E6398A9DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610082   (990225) от 29.01.2013
+
+Avril Lavigne - Alice (2010) BDRip [h.264,1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78642697EB3FDDEC279B1E2C2CC19DE951DD2B8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 610263   (990073) от 29.01.2013
 
 Rihanna - Diamonds (2012) HDRemux [H.264/1080p-LQ]
@@ -617,85 +695,6 @@ Vol.1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D31F8F0128B780423D3482ABA4B25A37BC593166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612926   (981023) от 05.02.2013
-
-Овечка Долли / Holly Dolly clips (2009) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличных два весёленьких клипа смешной и озорной овечки Долли, улыбнитесь!01. Dolly Song
-02. Don't Worry Be HappyЖанр: Музыка, Pop, DanceПродолжительность: 00:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14D91C971994C314023F9A7BDD45FA71EC459857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 436699   (980082) от 15.01.2012
-
-Сборник клипов - VA - Various Music part. 2 (2011) WEBRip [H.264/720p-LQ/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rap, Dance, Pop, Trance, House, RockПродолжительность: ~02:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C950FE1CAD8C428959E5D060B1726F4FC1B6F306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 436676   (980079) от 15.01.2012
-
-Сборник клипов - VA - Various Music (2010-2011) WEBRip [H.264/720p-LQ/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: VariousПродолжительность: ~03:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:376BD0C777FC17330754DAB97A03895ECB047F42
 ```
 
 https://mybot314.ru/tekegram_catalog/

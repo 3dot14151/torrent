@@ -1,3 +1,68 @@
+###  Публикация: 527313   (576744) от 26.07.2012
+
+Italian Concertos For Four Violins - Reinhard Goebel & Cologne Musica Antiqua: Torelli, Mossi, Valentini, Locatelli, Leo (1992) [FLAC|Lossless]<Classical, baroque period>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Guiseppe Torelli, Concerto a 4 violini (E minor)
+01. I Largo (01:35)
+02. II Allegro (02:01)
+03. III Largo (01:19)
+04. IV Allegro (02:06)Жанр: classical, baroque periodПродолжительность: 01:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE39F322FEC4D9DAE4B45FEEBA5185BCC4FE90DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526885   (576516) от 26.07.2012
+
+Sergei Prokofiev - The complete piano sonatas 2 (1991) [FLAC|Lossless]<classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576516.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Sonata No. 4 in D minor, Op. 29: Allegro molto sostenuto
+2.	Sonata No. 4 in D minor, Op. 29: Andante assai
+3.	Sonata No. 4 in D minor, Op. 29: Allegro con brio, ma non leggiere
+4.	Sonata No. 5 in C major, Op. 38: Allegro tranquillo
+5.	Sonata No. 5 in C major, Op. 38: Andantino
+6.	Sonata No. 5 in C major, Op. 38: Un poco allegretto
+7.	Sonata No. 6 in A major, Op. 82: Allegro moderato
+8.	Sonata No. 6 in A major, Op. 82: Allegretto
+9.	Sonata No. 6 in A major, Op. 82: Tempo de valzer lentissimo
+10.	Sonata No. 6 in A major, Op. 82: Vivace(   Читать дальше...   )Жанр: classicalПродолжительность: 01:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:952D5EB7136597EAB767A914D10C386CE73F700A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303031   (575984) от 19.05.2019
 
 Ludovico Einaudi - Seven Days Walking (Day 3) (2019) Decca Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
@@ -704,64 +769,6 @@ The Beatles Symphonic Orchestra - 3 CD (1999) [MP3|320 кб/с]<Classical, Symph
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F6AB2A1802B936C18344BDEAEF7D5436150773C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153420   (557970) от 27.07.2017
-
-The Royal Philharmonic Orchestra - Plays Hits Of Phil Collins (1990) [FLAC|Lossless|image + .cue] <Classical Crossover, Instrumental>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Air Tonight (5:06)
-02. Groovy Kind Of Love (3:30)
-03. Easy Lover (4:40)
-04. Do You Remember (3:42)(   Читать дальше...   )Жанр: Classical Crossover, InstrumentalПродолжительность: 00:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4FF666CAF70B3F5F640BA47CD69AB86B94673E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305739   (555886) от 02.06.2019
-
-VA - Шедевры классической музыки в рок-обработке (Unknown) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hooked On America (4:07)
-02. Hooked On A Song (5:11)
-03. Hooked On Romance (6:42)
-04. Also Sprach Zarathustra (1:13)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 02:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66AE1C1CDCD4F3180BDDBD77422BD757B7571B80
 ```
 
 https://mybot314.ru/tekegram_catalog/

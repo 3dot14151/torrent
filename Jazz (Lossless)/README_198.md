@@ -1,3 +1,61 @@
+###  Публикация: 1174118   (387643) от 14.10.2017
+
+Mal Waldron - Meditations: Live at Dug (1972) 2016, Somethin' Cool [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Alone [05:09]
+02. The Blues Suite [17:06]
+03. Chairo no Hitomi [04:59]
+04. The Stone Garden of Ryoanji [08:17](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A4571C6BED754BADFDC2FEC903A248496DA6425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174123   (387642) от 14.10.2017
+
+Jessica Williams - Higher Standards (1997) Candid [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Out of Town [06:48]
+02. When Your Lover Has Gone [05:55]
+03. Mack the Knife [05:06]
+04. A Night in Tunisia [07:48](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:116FA051A3E0DD2DD5AA7C19087BFA3CEF6B7C4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414051   (387592) от 07.10.2020
 
 Rob Barron - From This Moment On (2020) [FLAC|Lossless|tracks] <Jazz>
@@ -688,64 +746,6 @@ The Kenny Burrell Quartet - The Tender Gender (1966) 2012, Passion Jazz [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8B7A9B35C27AA77C761086507970E49AAE9887A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414437   (383635) от 09.10.2020
-
-The Kenny Burrell Trio - A Night At The Vanguard (1959) 1990, MCA Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Night Long [5:17]
-02. Will You Still Be Mine [4:27]
-03. I'm a Fool to Want You [4:39]
-04. Trio [4:20](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21E8557C5F5CECF242AD27B75D3520DD6E8827A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326632   (383592) от 21.09.2019
-
-Joe Locke & 4 Walls of Freedom - Dear Life (2004) Sirocco Jazz Limited [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wind in Your Willow [11:07]
-02. Dear Life [7:38]
-03. Cut and Paste [5:16]
-04. Eva [5:48](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:57:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42A967F50C6A458869989062ADC755BCCF35AE95
 ```
 
 https://mybot314.ru/tekegram_catalog/

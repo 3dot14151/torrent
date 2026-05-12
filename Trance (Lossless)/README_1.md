@@ -1,3 +1,90 @@
+###  Публикация: 804412   (808734) от 27.03.2017
+
+VA - Magic Island: Music For Balearic People Vol.1-7 (Mixed by Roger Shah) (2008-2016) [FLAC|Lossless|WEB-DL]<Trance, Balearic Trance,Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brian Laruso & John James Renfrow - Holding Closer (Intro Mix) [05:22]
+02. Rogier Dulac & Miss Autumn Leaves - Endless Dream (Original Mix) [05:08]
+03. Brian Laruso - The Way (Original Mix) [05:38]
+04. Raul Pablo Sanchez - Day Out (Original Mix) [06:53](   Читать дальше...   )Жанр: Trance, Balearic Trance,Progressive TranceПродолжительность: 30:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13AEEF7E3CC1FEFCAAE176316A66737E57CE66D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009734   (807969) от 22.04.2016
+
+Triplex - Катапульта (2003) [FLAC|Lossless|tracks + .cue] <House, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Triplex - Катапульта (Ivanov Club Mix) (6:00)
+02. Miguel - Бумеранг (Original Mix) (6:39)
+03. Motor - Written To John (Remix) (4:52)
+04. Triplex - Погружение (Ivanov Club Mix) (5:41)(   Читать дальше...   )Жанр: House, TranceПродолжительность: 01:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B34209664F5546223530F09C777703C5E132EA75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384364   (802313) от 20.05.2020
+
+Armin van Buuren - A State Of Trance 2020 (2020) 2CD, DJ Mix [FLAC|Lossless|tracks + .cue] <Electronic, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren & Fatum – Punisher (03:00)
+02. OTIOT – The Beginning (03:00)
+03. Protoculture – Inu (03:45)
+04. Assaf – Lost Souls (feat Nathan Nicholson - AVIRA remix) (03:32)(   Читать дальше...   )Жанр: Electronic, Trance, DJ MixПродолжительность: 02:26:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2563360452771E7E55CA913598E1F1541AF2D3D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199670   (800296) от 17.01.2018
 
 Sound Apparel - Magnum Opus Vol. 2 (Greatest Hits-Remastered) (2017)<Trance,Uplifting Trance>
@@ -656,93 +743,6 @@ Yaroslav Kulikov - Once In A Dream (2011) [FLAC|Lossless|WEB|tracks] <Uplifting 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB0A08D937F588EEA5F4AEB48E0DD454CF0C230E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125047   (773317) от 13.04.2017
-
-VA - Armin van Buuren - A State of Trance 800 (The Official Compilation) (2017) [FLAC|Lossless|tracks+.cue] <Trance, Psy-Trance, Progressive Trance, Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren - I Live For That Energy (ASOT 800 Anthem) (3:35)
-02. Aly & Fila meets Roger Shah & Susana - Unbreakable (3:20)
-03. MaRLo - You and Me (feat. Chloe) (3:01)
-04. Orjan Nilsen - Iconic (3:52)(   Читать дальше...   )Жанр: Trance, Psy-Trance, Progressive Trance, Uplifting TranceПродолжительность: 01:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA9A21F1C71DA9D1930645B29C855286B1A4A78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392543   (769212) от 26.06.2020
-
-VA - Sunny Lax Presents: 20 Years Of Anjunabeats (2020) 3CD, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progressive House & Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parker & Hanson – Gravity (Extended Mix) (08:13)
-02. Endre – I Kill for You (Probspot Extended Mix) (09:36)
-03. Signalrunners – Meet Me in Montauk (Extended Mix) (09:20)
-04. Sunny Lax – Isla Margarita (Extended Mix) (06:48)(   Читать дальше...   )Жанр: Electronic, Progressive House & TranceПродолжительность: 03:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6094A7D453CE087C4A12575D3E4FEB3F25A26AB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103645   (767839) от 15.04.2017
-
-Sylver - Turn The Tide (2000) Maxi Single [FLAC|Lossless|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn The Tide (Radio Edit) (04:05)
-02. Turn The Tide (CJ-Stone Radio Edit) (03:29)
-03. Turn The Tide (The Original Mix) (08:00)
-04. Turn The Tide (Airscape Remix) (07:24)(   Читать дальше...   )Жанр: Electronic, TranceПродолжительность: 00:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6354255CFC0F443142BC6F2FE6AB17765815B671
 ```
 
 https://mybot314.ru/tekegram_catalog/

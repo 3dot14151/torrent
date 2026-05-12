@@ -1,3 +1,29 @@
+###  Публикация: 1810293   (17478) от 03.08.2025
+
+Текстуры - Envato - Traditional Market Halftone Textures Batch No 03 - WDYZDF3 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскройте свой творческий потенциал с помощью наших полутоновых текстур «Traditional Market Halftone». Их можно использовать в качестве декора и дополнительной графики в таких дизайнах, как фирменные накладки, подушки, плакаты, флаеры, брошюры, визитки, обои для телефона, обои для рабочего стола и т.д.Формат: JPGРазрешение файлов: 6000x4500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFFFC35E5B8C0763A7162C278BE44CD1BE7B3CD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810340   (17418) от 03.08.2025
 
 Текстуры - Creative Market - BLASTER Retro Gradient Textures - 5003913 [PSD]
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:889EA1E1E0AA520582A77C7A46CBAAF45A9E96CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802524   (14308) от 17.06.2025
-
-Текстуры - Chroma Supply - Transcend: Glimmering Paint Textures [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из 11 текстур мерцающей краски ручной работы на черном фоне.Формат: PNGРазрешение файлов: 3864x6400 - 6000x6000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8A226339D8144DEF7953A1026C2D32DC286D28C
 ```
 
 https://mybot314.ru/tekegram_catalog/

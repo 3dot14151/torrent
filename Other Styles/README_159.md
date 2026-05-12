@@ -1,3 +1,148 @@
+###  Публикация: 549080   (163946) от 02.11.2023
+
+Владимир Мулявин - Голос души. (Часть 1. Нерастиражированное) (2006) [FLAC|Lossless]<Folk / Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Христос Воскрес!
+02. Разлад
+03. Монолог собаки
+04. Появились молодые...(   Читать дальше...   )Жанр: Folk / RockПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:169626627403A2AD4A35793A9BC5DFF450D627E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531612   (163888) от 02.11.2023
+
+Марина Капуро - Золотые хиты (2002) [FLAC|Lossless]<Folk, Pop>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Поле, поле
+02. Летела гагара
+03. В горнице
+04. Деревня(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 01:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7C50AD9AFEE71E26E93FF6BD60E1FDFA4F52E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346577   (163563) от 19.12.2019
+
+John Towner Williams - Звёздные войны: Скайуокер. Восход / Star Wars: The Rise of Skywalker (2019) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163563.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fanfare and Prologue
+2. Journey to Exegol
+3. The Rise of Skywalker
+4. The Old Death Star(   Читать дальше...   )Жанр: OSTПродолжительность: 01:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9025BA742BB5201FE4DC27F30FC474746D4A3449
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597936   (163021) от 18.12.2022
+
+Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (2022) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163021.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nothing Is Lost (You Give Me Strength) – The Weeknd
+2. Hometree – Simon Franglen
+3. Happiness Is Simple – Simon Franglen
+4. A New Star – Simon Franglen(   Читать дальше...   )Жанр: OSTПродолжительность: 01:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104BFB51007CA1B9946ED1846256EBA1950DC93C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598414   (162541) от 19.12.2022
+
+Bee Celtic - Star Of The County Down (2022) [FLAC|Lossless|image + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Es Gibt Nur Wasser (Santiano cover)
+02. Star Of The County Down
+03. Scots Wha Hae
+04. Scarborough Fair(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFB8CC9330A17FBA36FBBCABA21D033A60027953
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598039   (162279) от 19.12.2022
 
 Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (2022) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
@@ -603,152 +748,6 @@ Philippe Rombi - Frantz (2016) [FLAC|Lossless|tracks + .cue] <Score, Soundtrack,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DE8700CA2CBE872DBD470FB120C0DBAD87A6D40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433680   (156392) от 21.12.2020
-
-VA - Christmas Hits 2020 (2020) [MP3|320 Kbps] <Christmas, Pop, Rock>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bobby Helms - Jingle Bell Rock (Single Version)
-02. Brenda Lee - Rockin' Around The Christmas Tree (Single Version)
-03. Freddy Kalas - Hey Ho
-04. Jonas Brothers - Like It's Christmas(   Читать дальше...   )Жанр: Christmas, Pop, RockПродолжительность: 04:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:192E2CDF60451C5C05911C073C5C4AF5D69C2B5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968453   (155713) от 23.12.2015
-
-Rammstein - Klavier (2015) Piano Version [MP3|320 кб/с] <Acoustic, Piano>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rammstein выпустили акустический альбом «Klavier». В него вошли 13 композиций из шести ранее вышедших альбомов группы. P.S. Голоса нет (только музыка).01. Fruhling in Paris
-02. Feuer und Wasser
-03. Nebel
-04. Sonne(   Читать дальше...   )Жанр: Acoustic, PianoПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:995D7ED4BEA56D9979103373B4C5D626FC51CDE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853262   (155701) от 27.12.2014
-
-Clint Mansell Performed By Kronos Quartet And Mogwai ‎– Фонтан / The Fountain (Music From The Motion Picture) (2006) [FLAC|Lossless|tracks+.cue] <OST, Modern classical, Abstract, Ambient>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шотландская группа Mogwai может похвастаться своей недюжинной известностью в пост-рок кругах. Kronos Quartet, в свою очередь, опытные исполнители камерной классической музыки из США. Коллаборация музыкальных стилей и интересов породила сий труд ради одной цели - передать эмоции фильма "Фонтан", режисера Даррена Аронофски.
-Классические камерные мелодии заполняются (   Читать дальше...   )01. The Last Man (6:09)
-02. Holy Dread! (3:52)
-03. Tree Of Life (3:45)
-04. Stay With Me (3:36)(   Читать дальше...   )Жанр: OST, Modern classical, Abstract, AmbientПродолжительность: 00:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA4295BEA937911FD06E147A2232475D40253419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193726   (155477) от 25.12.2017
-
-Ukrainia - Shadow Era (2017) [MP3|320 Kbps] <Folk Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fragile Youth (03:37)
-02. Shadow Era (02:39)
-03. Horses (03:34)
-04. Welcome to My Show (03:35)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A1B3F641586C376D13AE3B827BC1F57C8DB8C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193618   (155299) от 25.12.2017
-
-Francis Goya - The Best World Instrumental Hits (2009) 2CD [APE|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Francis Goya - Careless Whisper (5:44)
-02 Francis Goya - La Playa (4:01)
-03 Francis Goya - Chanson Anonyme (3:57)
-04 Francis Goya - El Condor Pasa (3:19)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F04FF2A82397BD428C422F5449D3ACFE88C4A26F
 ```
 
 https://mybot314.ru/tekegram_catalog/

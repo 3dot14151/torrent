@@ -1,3 +1,65 @@
+###  Публикация: 561498   (406085) от 17.10.2012
+
+Giuseppe Verdi - Rigoletto (Tullio Serafin, Orchestra & Chorus Of La Scala)  2CD (1986) [FLAC|Lossless]<Classical, Romantic Period, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical, Romantic Period, OperaПродолжительность: 00:56:08 - CD1
+01:01:51 - CD2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CF7E9BE964A4330EEF2361D2D131DEE9232669D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561509   (406070) от 17.10.2012
+
+Anna Netrebko - 3 альбома (2006-2009) [FLAC|Lossless]<Classical, Vocal>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gianni Schicchi - O mio babbino caro [02:45]
+02. La Boheme, Act 1 - 'Quando men vo' (Musette's Waltz) [02:38]
+03. Lakme, Act 1 - Dome espais le jasmin (Blumen-Duett) [05:08]
+04. Le nozze di Figaro, Act 4 - 'Giunse alfin il momento' - 'Deh vieni non tardar' [03:29]
+05. Don Giovanni, Act 1 - 'Lа ci darem la mano' [03:23]
+06. Lucia di Lammermoor, Act 2 - 'Ardon gli incensi' (Wahnsinnsarie) [05:05]
+07. Norma, Act 1 - Casta Diva [05:48]
+08. Rusalka, Act 1 - Mesucku Na Nebi Hlubokem (Lied an den Mond) [05:03]
+09. La Traviata, Act 1 - 'Libiamo ne'lieti calici' (Brindisi) [03:08]
+10. Giuditta, Act 4 - Meine Lippen, die kussen s heis [05:38](   Читать дальше...   )Жанр: Classical, VocalПродолжительность: 01:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8E001D7E5633F381BF5BCC5E280DD861DD87DBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 561828   (405504) от 19.10.2012
 
 Antonio Lucio Vivaldi Johann Sebastian Bach-Baroque Guitar Favourites: Camerata Cassovia, guitar Gerald Garcia Peter Breiner (1990)/1994, NAXOS /[FLAC|Lossles]<Baroque>
@@ -763,76 +825,6 @@ Brandenburg Concertos 1-3 (Disc 1)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39984B6DD2C98C22860072B5B5B0F83ABC021827
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570658   (387194) от 07.11.2012
-
-Stockholm Baroque Orchestra / Maria Lindal - Dancing Bach (2006) [DST 5.0, 2.0 1bit/2822,4kHz |SACD-R]<Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Suite No. 2 In B Minor BWV 1067
-1. Ouverture
-2. Rondeau
-3. Sarabande
-4. Bourree I & II
-5. Polonaise & Double
-6. Menuet (Violin 1: Lars Warnstad)
-7. Badienerie
-Sonata In G BWV 1021 (Maria Lindal, Violin)
-8. Adagio(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F9E86B81259C46D6DBF1E102124D77EF4652B81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570741   (387068) от 07.11.2012
-
-Brecon Baroque, Rachel Podger - J.S. Bach - Violin Concertos (2010) [DST 5.0, 2.0 1bit/2822,4kHz |SACD-R]<Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto In A Minor, BWV 1041
-1. Allegro
-2. Andante
-3. Allegro Assai
-Concerto In E Major, BWV 1042
-4. Allegro
-5. Adagio
-6. Allegro Assai
-Concerto In G Minor After BWV 1056
-7. Allegro(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B6BEA72D0DE5DD61826292459678E7FC3CBB91
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1126967   (764088) от 19.04.2017
+
+Scanitto Pro 3.17 RePack by KpoJIuK [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scanitto Pro - это легкое, быстрое и не перегруженное массой ненужных функций программное обеспечение для сканирования. Точная настройка параметров сканирования, копирование документов в один клик и сохранение документов в многостраничные PDF и TIFF файлы - это именно то, что постоянно нужно под руками пользователям сканера!Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:523F8B283FBBF242C908CCF57C88E8C59FB1930D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017928   (757330) от 19.05.2016
+
+PDF Converter Elite 4.0.6.0 [En]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757330.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Converter Elite – это мощная программа конвертирования PDF, которая будет отличной бизнес-альтернативой программе Acrobat. Полноценный PDF инструмент для создания PDF, редактирования PDF, функций OCR и конвертирования. Создавайте на 100% безопасные, совместимые с Acrobat PDF документы с любых Windows приложений, которые позволяют печатать информацию. Конвертируйте (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2AC19790FE15DD04F765E86FA330E99B390033A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 321718   (755544) от 10.04.2011
+
+Средство просмотра Word, Excel, Power Point [RU] + Visio Viewer [EN] + Пакет обеспечения совместимости Microsoft Office для форматов файлов Word, Excel и PowerPoint [x86][2007-2010]
+
+>>След.
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Язык интерфейса: только русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018072   (755517) от 20.05.2016
 
 PDF Converter Elite 4.0.6 Portable by SaNet [En]
@@ -590,84 +668,6 @@ PDF-XChange Viewer - отличная программа для чтения и 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:489636B2F1DB2A717C106C9E4680FF3E8D0B783A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402508   (699122) от 15.08.2020
-
-ICE Book Reader Professional 9.6.5 + Lang Pack + Skin Pack [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699122.jpg" />
-</div>
-
-
-###  Подробнее
-
-ICE Book Reader - мощная читалка электронных текстов (книг). Также можно использовать ICE Book Reader Professional как телепромптер. ICE Book Reader Professional - это первая альтернативная читалка для .LIT и .CHM файлов не использующая компоненты Microsoft Reader или Microsoft HELP. Также возможно использовать ICE Book Reader Professional как конвертер файлов: TXT-HTML, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:453A24AD3F02A3222738A75024F60D5BC23734EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028017   (692482) от 21.06.2016
-
-CoolUtils Total Excel Converter 5.1.215 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта утилита несомненно пригодится тем, кто часто конвертирует файлы Excel и Excel 2007 в Word (Doc и DocX), PDF, HTML, Access, TXT, ODT, ODS, XML, SQL, CSV, Lotus, DBF, TEX, DIFF, SYLK, LaTeX. Total Excel Converter поддерживает практически любые таблицы, включая документы OpenOffice (.odt, .ods).Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB9B40B4EE4B5EA5F0A46F47581E029CB9A5A258
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028016   (692240) от 21.06.2016
-
-CoolUtils Total Outlook Converter 4.1.256 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Outlook Converter - удобный в применении инструмент, производит пакетную конвертацию форматов писем Outlook в файлы DOC, PDF, HTML, TXT, TIFF. Программа поможет быстро конвертировать десятки писем в удобный формат, с которым легко можно работать уже без помощи Outlook. Предоставляются возможности выбора экспортируемых полей.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54333DF425D1450FD51C3CC990BF43E2EEDC8AD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

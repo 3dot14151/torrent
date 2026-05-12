@@ -1,3 +1,148 @@
+###  Публикация: 1854870   (1057670) от 20.02.2026
+
+VA - Ori Uplift - Uplifting Only Episode 680 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. illitheas – Frozen Souls (Intro Mix) (Pre-Release Pick)
+02. Tensteps & Natalie Major – End Of The Earth
+03. Deme3us – You
+04. Mark Versluis feat. Emy Smith – Where Are You Now(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D894EFCA655120E38F1A6A1AE6CCEF148CD5BF65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854864   (1057669) от 20.02.2026
+
+VA - Armin van Buuren - A State Of Trance 1265 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonman & Ferry Corsten & Joris Voorn – Don’t Be Afraid
+02. Layton Giordani ft. Camden Cox – Destiny
+03. Maëlle Ø – Atlas (Meru Nova Remix)
+04. Cubicore – My Way(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AEFE925C23FF6B4FC80412F627925169DC46EAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853439   (1056836) от 13.02.2026
+
+VA - Ori Uplift - Uplifting Only Episode 679 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TOTY #22: LR Uplift, Julia Violin - Atlantis
+02. TOTY #22: Ruslan Khatmullin - Fortune
+03. TOTY #22: Ruslan Khatmullin - Romantic Wave
+04. TOTY #22: Phil Dinner - The Battle(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A99958FC12269A8D76777C93B704E5B1E599E6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853432   (1056835) от 13.02.2026
+
+VA - Armin van Buuren - A State Of Trance 1264 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Super8 & Tab ft. Anton Sonin – Black Is The New Yellow (Simon Gregory Remix)
+02. TYGR TYGR & MRPHLNDR – Save Me
+03. Ruben de Ronde & Amber Revival – River In Me
+04. OTTAGON & KhoMha – Metanoia(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1126A94DBA7B388CF23F73144310A80BAC7390D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852238   (1055875) от 06.02.2026
+
+Lost Frequencies - Tomorrowland Friendship Mix (2026-02-05) [MP3|320 Kbps] <Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Frequencies & CIEL. & Radio Cargo - Listen To Me
+02. Lost Frequencies & Argy ft. rhys from the sticks - Summer Skies (Lost Frequencies Deluxe Mix)
+03. MEDUZA - No Sleep
+04. Delta Vaults & Jordan Arts - Drowning(   Читать дальше...   )Жанр: Melodic House, TechnoПродолжительность: 01:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B23DD34D49AFFFFC8EA067F15605AFAFB4D0A5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852225   (1055870) от 06.02.2026
 
 Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, In Search Of Sunrise, HERE at Outernet London (2026-02-05) [MP3|320 Kbps] <Trance, Techno>
@@ -599,151 +744,6 @@ Symphony Of Unity - Tomorrowland Belgium (2025) [MP3|320 Kbps] <Progressive Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E1BB9D055839883C754E8FB8BC1586732E63AC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845960   (1051063) от 04.01.2026
-
-Oliver Heldens - Heldeep Radio 600 (2026-01-02) [MP3|320 Kbps] <Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loofy vs. HI-LO - Last Night vs. Kronos (HI-LO Mashup)
-02. Sam WOLFE - The Party
-03. HI-LO & Eli Brown - Feel The Energy
-04. HI-LO & Green Velvet & Dajae - LIFT ME UP(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:154BE52961AC4FB0B7E1C1B82FD7EA8FAF4004E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845648   (1050763) от 02.01.2026
-
-VA - Ori Uplift - Uplifting Only Episode 673 (Ori's Top 52 Vocal Uplifters of 2025 - Part 2) (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BluSkay & Esmee Bor Stotijn – Winter Took Over 2025
-02. Roman Messer & Anton Pallmer & Jennifer Rene – When I Hear Your Voice
-03. Suncatcher & Exolight & Susanne Teutenberg – Ride The Rain
-04. William Silva & Cathy Burton – Tears I Never Shed(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A6F8BA12D9FA36554673C202BCC5C3F46BE7FD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845644   (1050762) от 02.01.2026
-
-VA - Armin van Buuren - A State Of Trance 1258 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TELYKAST & Sam Gray – Hold On (Brooks Remix)
-02. Kudus – Feel The Light (Progressive Pick)
-03. Akille & Juna Rose – Through The Smoke
-04. TH;EN & Glowal – In My Blood(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7349712F31BE645ECBA5523148BD93D965547270
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844753   (1050419) от 28.12.2025
-
-Tiesto - Live @ PRISMATIC, The Great Pyramids of Giza, Egypt (2025-12-19) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto & FORS – Bring Me To Life
-02. Age Of Love vs. Jam & Spoon vs. Moby - Age Of Love vs. Stella vs. Go (Tiësto Mashup)
-03. Sonique - I Put A Spell On You (ID Remix)
-04. Tiësto - ID(   Читать дальше...   )Жанр: TranceПродолжительность: 02:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B69060C770170EEF896633AF95479FD0DD9573D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844415   (1050111) от 26.12.2025
-
-VA - Ori Uplift - Uplifting Only Episode 672 (Ori's Top 52 Vocal Uplifters of 2025 - Part 1) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evebe feat. Danny Claire - Everything (Timo Pralle Remix)
-02. Roman Messer & Cari - Serenity (Alex M.O.R.P.H. Remix)
-03. Bodgan Vix and Adara - Weightless
-04. Xijaro & Pitch with Susana - Beauty In My Scars(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A11B0C76C02DB683C5CBD4DD432348CBD6F80CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

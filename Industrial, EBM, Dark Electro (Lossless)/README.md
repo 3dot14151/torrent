@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1868531   (1067848) от 03.05.2026
+
+VA - Moonraker - Volume 2 (1995) 2 CD, Compilation [FLAC|Lossless|image + .cue] <Industrial, Synth-pop, EBM>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067848.jpg" />
+</div>
+
+
+###  Подробнее
+
+1-1	Spahn Ranch–	Heretics Fork 4:43
+1-2	Front Line Assembly–	Millenium 6:12
+1-3	Cubanate–	Hatesong 4:45
+1-4	Suicide Commando–	Revenge 4:54(   Читать дальше...   )Жанр: Industrial, Synth-pop, EBMПродолжительность: 02:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AB0119C62A81AA9D906BC6A2ABC9DCE37B6E06E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853818   (1056975) от 15.02.2026
 
 Kmfdm - Enemy (2026) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
@@ -711,35 +740,6 @@ Eggvn - La Era de la Bestia (2021) [MP3|320 Kbps] <Industrial Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:509997B06D239B0585EB7402A3C03839CF87C6DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086474   (1015388) от 18.05.2021
-
-ESA (Electronic Substance Abuse) - Discography 16 Releases (2006-2021) [FLAC|Lossless|tracks+.cue, tracks] <Rhythmic Noise, Industrial, Tribal, Ambient>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Detach (05:15)
- 02. I Detach (Mechanical Vein Remix) (04:35)
- 03. I Detach (Moris Blak Remix) (04:32)
- 04. I Detach (Mr.Kitty Remix) (03:05)Тип издания: CD, WebЖанр: Industrial/Rhythmic Noise/ElectroПродолжительность: 14:20:36 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA0000B78F5EB03934EE9E145C3D235542F4424
 ```
 
 https://mybot314.ru/tekegram_catalog/

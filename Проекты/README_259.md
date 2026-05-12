@@ -1,3 +1,61 @@
+###  Публикация: 833914   (382328) от 23.10.2014
+
+VideoHive - Particle Impacts - 87589 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для презентации. Более 20 мест для видео и текста.
+Требуются плагины. Превью и видеоурок - в раздаче.
+
+От автора проекта: Trapcode Particular v2 required. (Optical Flares is prerendered but additional file is included for those who have the plug ins and want to modify it.)(   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5839E5AAE4BEE4D0408917F62403F8E879B6B660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 833880   (382323) от 23.10.2014
+
+VideoHive - Fashion Promo - 95063 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для презентации. 7 мест для видео и более 10 для текста.
+Легко настроить. Пререндеренная версия включена, для неё плагины не требуются. Футажи от Digital Juice.
+Превью и видеоурок - в раздаче.
+(   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56F5E1F4CD586CA84CD29F4F896FDD5BF9BBBA0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068233   (382218) от 31.10.2016
 
 Проекты - VideoHive - Minimal Titles Pack - 18237383 [AEP]
@@ -636,60 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEFF760460D8CC4FAA852B8BDD52E2250488B0E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949058   (379151) от 22.10.2015
-
-Проекты - VideoHive - Winter Logo Pack [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект, содержащий 3 варианта эффектного представления логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D3F23138CDF1D64FF22188E46185DB54F4E713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949054   (379004) от 22.10.2015
-
-Проекты - VideoHive - Big Typo Parallax Presentation [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд-шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C36617133CFDCDE1F5E0015B66D392F782958496
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 575977   (355976) от 20.11.2012
+
+Interior Wallpapers (15.11.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0891963B30EEA41E6CC20A491912915FB61B3F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952634   (355726) от 01.11.2015
 
 Обои - Creative Art HD Wallpapers Mix 8 [JPG]
@@ -641,32 +667,6 @@ Wallpapers Кошачьи #65 [JPG]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38FAD3B22A20A8E1AF637777472C4A3790ACD696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330321   (343518) от 09.10.2019
-
-Desktop Wallpapers Full HD. Part (511) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:724C530506272AC7662B8E557C79FF3A5990C93A
 ```
 
 https://mybot314.ru/tekegram_catalog/

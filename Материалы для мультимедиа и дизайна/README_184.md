@@ -1,3 +1,108 @@
+###  Публикация: 1233917   (575900) от 02.07.2018
+
+Экшены - Watercolor Ink Art Photoshop Action [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Watercolor Ink Art - этот экшен фотошоп без особых усилий, поможет создать из ваших фотографий  красочный арт-этюд. После того, как действие закончит работу, вы получите хорошо организованный и структурированный файл со множеством слоёв, папок с настройками, для улучшения конечного результата.
+Чтобы получить наилучший результат, вам следует использовать изображения (   Читать дальше...   )Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8680A2A0DCC5753E04230BEA99DB3C08B8E79641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150549   (575610) от 17.07.2017
+
+Экшены - GraphicRiver - Another Days Photoshop Action [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Another Days Photoshop Action - позволяет создать картину заброшенных городов.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54870676E52DD2BFED9C435BA4A1EA62F2D1C332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234014   (574620) от 03.07.2018
+
+Растровый клипарт - Ripe strawberry in wicker basket [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спелая клубника в плетеной корзине для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3888x2592-6052x4276
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18046BF67DBC1F0FBA1CC59FEE6AE427E31155B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234013   (574603) от 03.07.2018
+
+Растровый клипарт - Backgrounds with assorted fruits and berries [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоны с различными фруктами и ягодами для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2510x1673-6000x4004
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A64B3FD6F72DBCF8B0BE80EBF8B4CB1C52249A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043329   (574426) от 15.08.2016
 
 Экшены - GraphicRiver - Rock N Rolla Photoshop Action [ATN, ABR]
@@ -564,110 +669,6 @@ Vintater - Amazing Vintage And Watercolor - экшен для Вашего тв�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E71A04B177FCC0F436C139CC6D7A53989DEBC086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043600   (571982) от 16.08.2016
-
-Шаблоны - Photography & Photo Studio Flyer Bundle [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photography & Photo Studio Flyer Bundle - шаблон флаера фотостудии.Формат: PSDРазрешение файлов: 2551x3579 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:984F9145849B355C4E046B5ABA3347ED0134536F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151670   (571937) от 19.07.2017
-
-Футажи - VideoHive - Digital Growth 03 [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571937.jpg" />
-</div>
-
-
-###  Подробнее
-
-В качестве наложений для вашей графики можно использовать 6 файлов с цифровыми разрастаниями на черном фоне. Камера для каждого видео включена в файл проекта AE CC2015. Используйте режимы наложения «screen» или «add» для слоя ,чтобы наложить его на вашу графику.Формат: MOVРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3389CCA6954267F114DD58611CBF5C7AA7C4F46D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043838   (570799) от 17.08.2016
-
-Экшены - GraphicRiver - Painting Popup Folding Card [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Painting Popup Folding Card - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8D1B5894C1BEA2F5A7AF6D7F35B5BD151BBBEBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043845   (570793) от 17.08.2016
-
-Экшены - GraphicRiver - Light Painting [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Light Painting - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3A2AF42267DE03FA2B1225E163D6A27370ED2F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

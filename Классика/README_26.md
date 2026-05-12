@@ -1,3 +1,67 @@
+###  Публикация: 526126   (599136) от 23.07.2012
+
+Antonio Lucio Vivaldi - Mandolin concertos RV 532, 425, 558 Violin concertos RV 583, 522, 581: I Solisti Veneti conductor Claudio Scimone (1970-1976)/1996, Erato Disques/[FLAC|Lossless]<Baroque>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto for 2 Mandolins, Strings & Continuo G-Dur RV 532
+1. Allegro 4:27
+2. Andante 2:50
+3. Allegro 4:06Жанр: BaroqueПродолжительность: 01:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E816B7486487B45BAE981E287B93072EF3FA155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525336   (598971) от 23.07.2012
+
+Sergei Prokofiev - The complete piano sonatas 1 (1991) [FLAC|Lossless]<classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598971.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Piano Sonata No.1 in F minor, op.1 (in one movement)
+2.	Piano Sonata No.2 in D minor, op.14 - I. Allegro ma non troppo
+3.	Piano Sonata No.2 in D minor, op.14 - II. Scherzo
+4.	Piano Sonata No.2 in D minor, op.14 - III. Andante
+5.	Piano Sonata No.2 in D minor, op.14 - IV. Vivace
+6.	Piano Sonata No.3 in A minor, op.28, ''d' apres des vieux cahiers''
+7.	Piano Sonatina in E minor, op.54 No.1 - I. Allegro moderato
+8.	Piano Sonatina in E minor, op.54 No.1 - II.Adagietto
+9.	Piano Sonatina in E minor, op.54 No.1 - III. Allegretto
+10.	Piano Sonatina in G, op.54 No.2 - I. Allegro sostenuto(   Читать дальше...   )Жанр: classicalПродолжительность: 01:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:408CA19469D93A4B6B395471AE57A4C6F16F7111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914300   (598167) от 02.07.2015
 
 Brahms - Piano works (Claudio Arrau) (3CDs) (1991) [FLAC|image+.cue]<Classical, Romantic Period, Chamber Music, Recitals, Sonata, Ballades>
@@ -681,71 +745,6 @@ Concerti musicali (12), for strings & continuo, Op. 6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C7ACE765E2F5E9E39451301B266829098911F1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527313   (576744) от 26.07.2012
-
-Italian Concertos For Four Violins - Reinhard Goebel & Cologne Musica Antiqua: Torelli, Mossi, Valentini, Locatelli, Leo (1992) [FLAC|Lossless]<Classical, baroque period>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Guiseppe Torelli, Concerto a 4 violini (E minor)
-01. I Largo (01:35)
-02. II Allegro (02:01)
-03. III Largo (01:19)
-04. IV Allegro (02:06)Жанр: classical, baroque periodПродолжительность: 01:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE39F322FEC4D9DAE4B45FEEBA5185BCC4FE90DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526885   (576516) от 26.07.2012
-
-Sergei Prokofiev - The complete piano sonatas 2 (1991) [FLAC|Lossless]<classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576516.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Sonata No. 4 in D minor, Op. 29: Allegro molto sostenuto
-2.	Sonata No. 4 in D minor, Op. 29: Andante assai
-3.	Sonata No. 4 in D minor, Op. 29: Allegro con brio, ma non leggiere
-4.	Sonata No. 5 in C major, Op. 38: Allegro tranquillo
-5.	Sonata No. 5 in C major, Op. 38: Andantino
-6.	Sonata No. 5 in C major, Op. 38: Un poco allegretto
-7.	Sonata No. 6 in A major, Op. 82: Allegro moderato
-8.	Sonata No. 6 in A major, Op. 82: Allegretto
-9.	Sonata No. 6 in A major, Op. 82: Tempo de valzer lentissimo
-10.	Sonata No. 6 in A major, Op. 82: Vivace(   Читать дальше...   )Жанр: classicalПродолжительность: 01:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952D5EB7136597EAB767A914D10C386CE73F700A
 ```
 
 https://mybot314.ru/tekegram_catalog/

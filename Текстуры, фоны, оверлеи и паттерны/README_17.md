@@ -1,3 +1,30 @@
+###  Публикация: 1226390   (654551) от 21.05.2018
+
+Текстуры - Creative Market - Foil Texture Pack - 1793010 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Текстуры под фольгу с официальной документацией.
+Автор: Heather Noll DesignФормат: PNGРазрешение файлов: 2500 x 3500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2181F71821E7F34E9D6DF0DC403F6E884D68C86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226327   (654545) от 21.05.2018
 
 Текстуры - Creative Market - Real Paper Textures Bundle - 1464807 [JPG]
@@ -656,33 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B62ED19B95AB84216BDC8E247CD3C1687FABB679
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597715   (609931) от 18.04.2019
-
-Фоны и наложения - Зеленые листья [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшая подборка из 5 высококачественных фонов "Зеленые листья".
-Автор: mir8Формат: JPEGРазрешение файлов: от 5728x4000 до 6000x6000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FABC7A30CEB83CF0368B092C0F565F3E6B0538B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

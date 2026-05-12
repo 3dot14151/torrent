@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1868152   (1067348) от 
+###  Публикация: 1868152   (1067348) от 29.04.2026
 
 VA - Techno Bunker 6 (2026) [MP3|320 Kbps] <Techno>
 
@@ -340,6 +340,35 @@ VA - Deep Night Deep House 8 (2026) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A860011E2FD190C90610DB83DA3BC6CF488D8D9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857896   (1060043) от 07.03.2026
+
+VA - Узоры (mixed by Dj V) (2026) [MP3|320 Kbps] <Organic House, Melodic House, Folk Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1060043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Белолуна - Русалки (Extended Mix)
+02-Amonita - Улетай (Alexey Union & ETNE Remix)
+03-Ranta, Katya Olszewska - Сказка (Original Mix)
+04-Krasa Rosa & M.O.S. - Соловей (Extended Mix)(   Читать дальше...   )Жанр: Organic House, Melodic House, Folk DanceПродолжительность: 01:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CDBBC0F4D400346A3CF97D9665B2A5A9D5FB1BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -717,35 +746,6 @@ VA - Record Super Chart 31.01.2026 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C7A79FA5A73D2A4C835EF7279EB66C0F8BE3F53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850772   (1054622) от 30.01.2026
-
-VA - Yello & Dieter Meier & Boris Blank best (1980-2024) [MP3|320 Kbps] <electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054622.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:53] . 001-Night Flanger
-[4:17] . 002-Eternal Legs
-[2:12] . 003-Bostich
-[5:25] . 004-Blue Green(   Читать дальше...   )Жанр: electronicПродолжительность: 07:46:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15EB4C14D706289674F648F28EC92C09C223F0FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

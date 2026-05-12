@@ -1,3 +1,109 @@
+###  Публикация: 1413927   (406775) от 06.10.2020
+
+Растровый клипарт - Dreamstime - Collection Columbia nature landscape sea beach old night city [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Колумбийские пейзажи с Dreamstime, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4195x2859-6016x4016
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D9246681930DF314194AFEDFD4BF08F4EF5EF31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413942   (406772) от 06.10.2020
+
+Растровый клипарт - Dreamstime - Collection various types of lettuce Greek seafood shrimp vegetable fruit [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Салаты с Dreamstime, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4055x2958-6252x4256
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B74E4BCE3C3F24977F3BF7DD3801B91592C4115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413939   (406736) от 06.10.2020
+
+Векторный клипарт - Christmas and New Year's Eve banner with Santa Claus and friends [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Рождественские и новогодние баннеры
+8 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524CB4751C054B9205C24CE2298653DFA0826CC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413936   (406658) от 06.10.2020
+
+Стили - GraphicRiver - 18 Cartoon Photoshop Text Effects - Comic Styles - 28704785 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это набор мультяшных текстовых эффектов. Состоит из 18 различных стилей. Его действительно легко использовать, просто отредактируйте смарт-объект.Формат: PSDРазрешение файлов: 3818x2100
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A507982A780887C1C42E90582FAE97FAF66B7C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413951   (406656) от 06.10.2020
 
 Стили - GraphicRiver - Cyberpunk Photoshop Effects Bundle - 28590685 [ATN, ASL, PAT, GRD, PSD]
@@ -565,110 +671,6 @@ Digital Juice Jump Backs - коллекция высококачественны
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6FD5319EC36CC989CE1D12C4A4161D773E037D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562595   (405537) от 19.10.2012
-
-Digital Juice - Jump Backs SD 27: International Flags (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice Jump Backs - коллекция высококачественных бесшовных анимированных фонов посвященных разным тематикам продолжительностью 10-30 секунд.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD7D85D0FF8C389D0B7680C70D53D766411DCFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562554   (405535) от 19.10.2012
-
-Digital Juice - Jump Backs SD 55: Drift Away I (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice Jump Backs - коллекция высококачественных бесшовных анимированных фонов посвященных разным тематикам продолжительностью 10-30 секунд.Разрешение файлов: 720х576
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CCB070691ACB7E8325555F98E7F18FDBF0F42D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562581   (405530) от 19.10.2012
-
-Digital Juice - Jump Backs SD 39: Base Camp II (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice Jump Backs - это сборник включающий анимированные фоны различных тематик, которые являются идеальными для выделения текста и графики и могут быть использованы в любой программе видеомонтажа. Все клипы бесшовные, каждый примерно 15-30 секунд.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:175F09063FA3D459FF4E712B510D6315C1A4326B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562560   (405505) от 19.10.2012
-
-Digital Juice - Jump Backs SD 50: Fresh Crawl (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice Jump Backs - коллекция высококачественных бесшовных анимированных фонов посвященных разным тематикам продолжительностью 10-30 секунд.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F865AD28E744AAAF256AB2BAD1D5303C1A1F17B
 ```
 
 https://mybot314.ru/tekegram_catalog/

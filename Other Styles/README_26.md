@@ -1,3 +1,119 @@
+###  Публикация: 1100007   (901397) от 03.02.2017
+
+Wychazel - In Search of Lemuria (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Hidden World [00:11:48]
+02. Sands of Time [00:10:56]
+03. The Crystal Path [00:08:52]
+04. Lemuria [00:10:40](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE8171BB1499E16E71F98C9893DCF7533EAF63CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 867186   (901369) от 09.02.2015
+
+VA - Ешь богатых / Eat the Rich (1987) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Motorhead - Eat The Rich
+02. Simon Brint - Terrorists
+03. Motorhead - Built For Speed
+04. Danny Eccleston - Nosher In The Bar(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D04A1F19936D29B538B65D58510C7BADA9230B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099996   (901314) от 03.02.2017
+
+Vicente Amigo - Apasionadas Cuerdas del Alma (2015) [FLAC|Lossless|image + .cue] <Flamenco, Acoustic, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bolero A Los Padres (4:23)
+02 - Campos De San Gregorio (4:23)
+03 - Bolero a Marcos (5:40)
+04 - Rio De La Seda (9:43)(   Читать дальше...   )Жанр: Flamenco, Acoustic, GuitarПродолжительность: 01:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C881B6FD91BF013D89073CC49B0F9C24407DA2A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 867779   (901039) от 09.02.2015
+
+John Carpenter - Lost Themes (Deluxe) (2015) [FLAC|Lossless|WEB-DL]<Soundtrack, Ambient>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vortex (4:44)
+02. Obsidian (8:24)
+03. Fallen (4:44)
+04. Domain (6:33)(   Читать дальше...   )Жанр: Soundtrack, AmbientПродолжительность: 01:18:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBE02309A8ABC3A2F912C629728775DAE6445D89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992428   (900906) от 02.03.2016
 
 Ryuichi Sakamoto, Alva Noto & Bryce Dessner - The Revenant / Выживший (2015) [MP3|128-256 кб/с] <ost, score>
@@ -620,122 +736,6 @@ Cris Velasco & Sascha Dikiciyan - The Long Dark Soundtrack (2017) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F2F6B62D08BDFC6C5DCB79A5380F80504174240
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370936   (893415) от 29.03.2020
-
-Richard Clayderman & James Last - Together At Last (1991) [FLAC|Lossless|tracks + .cue]<Instrumental, Piano, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From A Distance
-02. ( Everything I Do ) I Do It For You
-03. Sacrifice
-04. Moonfire(   Читать дальше...   )Жанр: Instrumental, Piano, Easy ListeningПродолжительность: 00:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC58E2699462652A3241498D32FD2EC4E4E4EAC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370935   (893406) от 29.03.2020
-
-VA - Ethnic Music The Indians' Collection (2013) [MP3|320 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sioux Company - Brandishing the Tomahawk
-02. Nazca - Ly-O-Lay Ale Loya (The Counterclockwise Circle Dance)
-03. Nazca; Wayra Rodriguez - Ancient Spirit
-04. Nazca; Wayra Rodriguez - Ceremony(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 04:20:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A36A54AB0989C9256FE9A754CE3D99DFED47652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370945   (893353) от 29.03.2020
-
-VA - Super Instrumental Vol.1 (2001) Величайшие хиты XX века [FLAC|Lossless|tracks + .cue]<Instrumental, Pop>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. G. Last - The Lonely Shepherd
-02. P. Mauriat - Love Is Blue
-03. F. Pourcel - A Paris
-04. P. Weekers - El Condor Pasa(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 01:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AA3881FA977DD2FB1D2AD79E0F3A54520B23BE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101863   (892929) от 08.02.2017
-
-Greg Maroney - Quiet Piano Improvisations, Vol. 2 (2017) [MP3|320 Kbps] <New Age. Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  My Everything [00:04:51]
-02 -  Melting Heart [00:05:02]
-03 -  Meditation [00:07:06]
-04 -  Daydream [00:06:37](   Читать дальше...   )Жанр: New Age. InstrumentalПродолжительность: 01:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E69C6D0BF856CB53F48CA4F29B293DDEE19BDAE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

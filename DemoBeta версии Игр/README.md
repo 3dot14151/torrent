@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1868400   (1067665) от 
+###  Публикация: 1868400   (1067665) от 04.05.2026
 
 Heroes of Might and Magic Olden Era (2026) [Ru/Multi] (0.80.07) Repack Let'sРlay [Early Access]
 

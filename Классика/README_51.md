@@ -1,3 +1,73 @@
+###  Публикация: 484136   (89017) от 17.04.2012
+
+Jascha Heifetz - The Heifetz Collection (1994) Vol.16 Beethoven Violin Sonatas /RCA Victor Gold Seal/ [FLAC|Lossless]<Classical, Romantic>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonata No.1 in D, Op.12, No.1 - Alegro con brio [05:41]
+02. Theme with Variations: Andante con moto [01:04]
+03. Variation I [01:04]
+04. Variation II [01:05]
+05. Variation III [01:06]
+06. Variation IV [01:44]
+07. Rondo: Allegro [04:27]
+08. Sonata No.2 in A, Op.12, No.2 - Allegro vivace [06:41]
+09. Andante piu tosto allegretto [04:55]
+10. Allegro piacevole [04:04](   Читать дальше...   )1994Жанр: Classical, RomanticФормат: 3xCD, CompilationsПродолжительность: 03:23:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5C202A00BE56861B651A3ADE38DF6ED3AD6F19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484194   (88986) от 17.04.2012
+
+Antonio Vivaldi, Antonio Salieri, Gioacchino Rossini, Antonio Paskulli - Works for an oboe and a chamber orchestra: Moscow Virtuosi, Alexey Utkin & Heinz Holliger, conductor Vladimir Spivakov ( ...
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88986.jpg" />
+</div>
+
+
+###  Подробнее
+
+АНТОНИО ВИВАЛЬДИ Antonio Vivaldi
+Концерт ре минор для двух гобоев, струнных и бассо континуо [9:06]
+Concerto for 2 Oboes, Strings and Basso Continuo in d minor [9:06]
+1.	Allegro molto [2:42]
+2.	Largo.Allegro [3:43]
+3.	Largo [2:41]
+Концерт ля минор для гобоя, струнных и бассо континуо [10:06]
+Concerto for Oboe, Strings and Basso Continuo in a minor [10:06]
+4.	Allegro non molto [3:30]
+5.	Larghetto [3:34](   Читать дальше...   )1998Жанр: OboeПродолжительность: 00:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C723C52BA03CBD37A35AF029727EA4E541A5F5AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483708   (88811) от 16.04.2012
 
 Antonio Vivaldi - 12 Concertos Op. 8 incl. Le quattro stagioni: VA, Musici di San Marco, conductor Alberto Lizzio (1723) /2000, Tring International/[FLAC|Lossless]<Baroque>
@@ -772,67 +842,6 @@ Symphony in F major, K.Anh. 223 (19a)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BEA4B3BE3855E94034D81390A5693B987A5696E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469181   (82749) от 17.03.2012
-
-Roberto Cacciapaglia - 3 альбома (2007-2010) [FLAC|Lossless]<New Age, Relax, Neoclassical, Instrumental, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicalПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468244   (82259) от 15.03.2012
-
-David Garrett - Virtuoso (2007) [FLAC|Lossless]<Classical Crossover, Instrumental>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Califfa (2:47)
-02. Carmen Fantaisie with Paco Pena (4:16)
-03. Nothing Else Matters (3:33)
-04. Csárdás - Gypsy Dance (3:27)
-05. Duelling Banjos (Duelling Strings) (2:11)
-06. Paganini Rhapsody (on Caprice 24) (4:08)
-07. Serenade (3:39)
-08. The Flight of the Bumble Bee (1:20)
-09. Toccata (3:50)
-10. Somewhere (3:01)(   Читать дальше...   )2007Жанр: Classical Crossover, InstrumentalПродолжительность: 00:35:12
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 953775   (346485) от 05.11.2015
+
+Andrea Bocelli - Cinema (Deluxe Edition) (2015) [FLAC|Image+cue]<Pop, Classical Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria (From "West Side Story")
+02. La Chanson de Lara (From "Dr. Zhivago")
+03. Moon River (From "Breakfast at Tiffany's")
+04. E piu ti penso (From "Once Upon a Time in America")(   Читать дальше...   )Жанр: Pop, Classical CrossoverПродолжительность: 01:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:490C31D4B970AE68A51CBBD322F45E3C79ADBB91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257397   (345358) от 26.10.2018
+
+Chiharu Naruse - Kenneth A. Kuhn: Piano Works (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude No. 3 in G Minor
+02. An Alpine Song (Arr. for Piano)
+03. Fantasia on a Folk Theme
+04. Prelude on a Hymn Tune(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 00:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B34335270D9ABDC64D78A372D0E8E4EA6FBB55D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073545   (345217) от 16.11.2016
 
 Gustav Mahler - Symphony No. 10, completion by Rudolf Barshai - Vladimir Ashkenazy, Sydney Symphony 2012 (2012)[FLAC|Lossless|tracks + .cue]<Classical>
@@ -683,64 +741,6 @@ Anna Netrebko - Opera Arias (2003)/Wiener Philarmoniker Noseda, Deutshce Grammop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:699A68F994AC34EE4E6912677ED59532969CBE1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420354   (332433) от 01.11.2020
-
-VA - Baby's First Classics (1999) 2 СD [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332433.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 Baby's First Classics
-01. Ludwig van Beethoven - Moonlight Sonata (7:47)
-02. Claude Debussy - Clair De Lune (4:32)
-03. Ludwig van Beethoven - Canon In D Major (4:27)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D6888CE52EAA2BCC3971C73DC2E932C9D35BBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955907   (331131) от 13.11.2015
-
-Anna Netrebko & Rolando Villazon - Duets (2007),Deluxe Limited-Edition, Deutsche Grammophon, [FLAC|image+cue]<Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Bohуme: Act I: Duet "O soave fanciulla" (Mimi, Rodolfo)    [0:04:10.00]
-02. Lucia di Lammermoor, Part I: No. 4. Scene and Duet "Lucia perdona...Sulla tomba" (Lucia, Edgardo)    [0:12:40.00]
-03. Rigoletto: Act I: No. 5. Scene and Duet "Giovanna, ho dei rimorsi...E il sol dell'anima" (Gilda, Duca)    [0:08:19.00]
-04. Romeo et Juliette: Act (   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35FDE6A42643EDAC38FB2C25E7B7A097D2111553
 ```
 
 https://mybot314.ru/tekegram_catalog/

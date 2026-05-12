@@ -1,4 +1,32 @@
 https://t.me/izofen
+###  Публикация: 1869345   (1068302) от 
+
+Tangerine Dream - Pergamon (1981) 1992, Relativity Records [FLAC|Lossless|image + .cue] <Electronic, Ambient, Berlin School>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Также известен как Quichotte. Альбом, основанный на материалах двух выступлений 31 января 1980 года в Восточном Берлине. Одна из ключевых работ классического периода группы. «Pergamon» демонстрирует фирменный стиль Tangerine Dream: гипнотические секвенции, холодную космическую атмосферу и постепенное, почти кинематографическое развитие тем.
+Является важной работой (   Читать дальше...   )1. Quichotte Part 1 – 23:17
+2. Quichotte Part 2 – 22:50Жанр: Electronic, Ambient, Berlin SchoolПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10E7B77D621C345B9C8728A20FD4C83DB06A7BD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860219   (1062216) от 23.03.2026
 
 Martin Sturtzer - Discography 51 Releases (2017-2026) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno>
@@ -699,32 +727,6 @@ Tim Schaufert - Footprints (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:989F0E78693EC2E54C8A5D3E230972E52654F499
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446174   (1033060) от 08.02.2021
-
-Tim Schaufert - Once Moved Too Slow (feat. Yosie) (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Moved Too Slow (feat. Yosie) (03:34)Жанр: AmbientПродолжительность: 00:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD1EDCCC289E9C41F7C87B353D2D8D77BF312B35
 ```
 
 https://mybot314.ru/tekegram_catalog/

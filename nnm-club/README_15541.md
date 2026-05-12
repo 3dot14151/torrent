@@ -1,22 +1,22 @@
-###  Публикация: 557744   (418410) от 08.10.2012
+###  Публикация: 1412210   (420217) от 28.09.2020
 
-Книжная серия | Зарубежный детектив (Молодая гвардия) (8 книг) [1965-1993] [FB2]
+SunsetsI ePixEditions - Wallpaper Calendar 6.6.9.701 [En]
 
->>Художественная литература
->>Многоавторские серии и сборники
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420217.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Зарубежный детектив — серия издательстваЖанр: ДетективФормат: FB2
+Календарь обоев ArtPlus ePix - это БЕСПЛАТНАЯ программа, которая добавляет новое изображение на ваш рабочий стол каждый месяц или чаще, в зависимости от ваших предпочтений. В программе также есть встроенный личный дневник и простой планировщик календаря, который вы можете просматривать на своем рабочем столе или распечатывать настенные календари для офиса и семьи. (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1386386E990F814346C23F400C992C0602A269EF
+magnet:?xt=urn:btih:778FF0BAC4FEDB378676D7EC207612FD635E4890
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,27 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 557751   (418408) от 08.10.2012
+###  Публикация: 1411538   (420216) от 28.09.2020
 
-The Misadventures of P.B. Winterbottom [Ru/Multi6] (RePack) 2010 | NSIS
+Гарик Кричевский - Поехали (2020) [FLAC|Lossless|WEB-DL|tracks] <Шансон>
 
->>Win Игры
->>Action/Arcade/Platformer (Casual)
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420216.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Misadventures of P.B. Winterbottom - это приключенческая игра с путешествиями во времени,возможности использования собственных клонов и многими другими оригинальными идеями.
-
-Игра отличается инновационным геймплеем, завязанным на временных парадоксах. Главный герой игры - известный похититель пирогов. Однако пирогам, которые он ворует, не нравится, что их воруют, и они регулярно пытаются смыться. Протагонист съел свору собак на их (пирогов) ловле, в чем ему помогает способность творить всякие трюки со временем.(   Читать дальше...   )Тип издания: RePackРазработчик: The Odd GentlemenЖанр: Аркада / Platformer / 3DЯзык озвучки: -/-Язык интерфейса: Русский, Английский, Французский, Испанский, Итальянский, Немецкий
+01. Поехали... (4:05)
+ 02. Есть только ты! (3:55)
+ 03. Сердце как камень (4:07)
+ 04. За Одессу маму! (3:54)(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:58:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1774B71B38D1141EB1C75C6EDE40320C21162FE
+magnet:?xt=urn:btih:A1D58B6BC900916684F032D078AF9731B0DBC3BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,25 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 947758   (418400) от 17.10.2015
+###  Публикация: 1412189   (420215) от 28.09.2020
 
-Футбол. Чемпионат России 2015-2016. 12 тур. РФПЛ. ЦСКА - Урал (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Иуда / Judas (2019) WEBRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Зарубежные сериалы
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420215.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чемпионат России 2015-2016. 12 тур. РФПЛ. ЦСКА - Урал.Телекомпания: НТВ+ Наш Футбол HDЖанр: Спорт, ТелепередачаПродолжительность: 02:20:02
+«Иуда» - это триллер из жизни. Сериал основан на книге, написанной совсем недавно голландкой Астрид Холледер. Это история ее семьи, выходцев из бедного района Амстердама. У Астрид и ее братьев-сестер было непростое детство, жестокий отец-психопат. Тем не менее ей удалось выбиться в люди и стать адвокатом. Но ее брат, Виллем Холледер, пошел по кривой дорожке. Он стал (   Читать дальше...   )Производство: НидерландыЖанр: триллер, драма, криминал, биографияРежиссер: Йорам ЛюрсенАктеры: Рифка Лодейзен, Гийс Нейбр, Марит ван Бохемен, Роза Рютен, Carry Tefsen, Рональд Топ, Бьянка Кригсман, Сандра Мэтти, Roos Wiltink, Кес Бот и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: Русские (отдельно)Продолжительность: ~00:50:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF6D144533255DADF4E5A969332E4246FEFEC7DE
+magnet:?xt=urn:btih:71CFCACA1A772EE4E6EB0F33F0B283719DBFE53B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -78,413 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 947329   (418399) от 17.10.2015
+###  Публикация: 1412150   (420214) от 28.09.2020
 
-Мир Английской Премьер Лиги. Эфир от 15.10.2015 (2015) IPTV HD [H.264/1080p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418399.jpg" />
-</div>
-
-
-###  Подробнее
-
-“Мир Премьер Лиги” – это информационно-документальная программа, которая познакомит вас с последними новостями на Туманном Альбионе, поможет вспомнить основные интересные события, которые случились в прошлом АПЛ и познакомит с некоторыми футбольными личностями, которые не заставят вас скучать.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:25:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D084621CDB44A9DEECF0CDC606164C8595F32DC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947649   (418398) от 17.10.2015
-
-Футбол. Чемпионат Германии 2015-16. Bundes Liga. 9 тур. Майнц – Боруссия Д (2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Германии 2015-16 Bundes Liga, 9 тур. Майнц – Боруссия Д.Телекомпания: Eurosport 2 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:51:15 + 00:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:176450BFE1BC6F7D3A707350B2B81EFE586E4300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947417   (418397) от 17.10.2015
-
-Bobby Bradford & John Carter Quintet - NoUTurn (1975) /2015, Dark Tree Records/[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Love's Dream [21:14]
- 02.She [11:12]
- 03.Comin' On [19:35]
- 04.Come Softly [06:20](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B55D8325180A070231B349BEEA70B0560D09A93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947675   (418396) от 17.10.2015
-
-Футбол. Чемпионат Франции 2015-2016. Ligue 1. 10 тур. Монако - Ренн (2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Франции 2015-2016. Ligue 1. 10 тур. Монако - Лион.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:48:45 + 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0536F0EE413E5A6824D96EA9EF6A6E995F557758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947643   (418395) от 17.10.2015
-
-Attila Zoller - Common Cause (1979) /2005, Enja/[FLAC|tracks+.cue]<Jazz Fusion, Contemporary Jazz, Jazz Guitar>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Kaybee [06:31]
- 02.Csardanova [04:03]
- 03.Common Cause [05:18]
- 04.Tshitar [07:52](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary Jazz, Jazz GuitarПродолжительность: 00:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE62C1BAB50CD1289E6E88756A1506DC1D423893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947349   (418394) от 17.10.2015
-
-Тереза Оболевич (ред.) | Вера и знание: взгляд с Востока (2014) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отношение веры и знания как богословская и философская проблема обсуждается с тех пор, как христианство пришло в античный мир. Эта тема относится к числу «вечных» и, по крайней мере, к нашему времени она отнюдь не исчерпана. Каждый новый сдвиг в научном познании обнаруживает здесь новые трудности и новые перспективы. В данной книге выявляются именно те проблемы и (   Читать дальше...   )Жанр: БогословиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D26BC6ADCF3F3C34DDDDA6E7D14D08F9CF101F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947415   (418393) от 17.10.2015
-
-Feyza - I Wish I Knew (2015) [FLAC|image+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wish I Knew
-02. Look Of Love
-03. Bye Blackbird
-04. Never Let Me Go(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:227BA328A50F84875C03FFD22B328139EE51B134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947439   (418392) от 17.10.2015
-
-Rocio Guitard & Moises P. Monk - Marriage & Other Novellas (2015) [FLAC|image+.cue]<Vocal Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Napoleon's Groove (Here Comes The Tiger)
-02. Play Me Like A Cello (What She Wants)
-03. Tango De Museo (They Meet)
-04. El Tigre (Same Story Another Bed)(   Читать дальше...   )Жанр: Vocal Jazz, Latin JazzПродолжительность: 00:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D56C5042BE4FAC2BB271FF372EF90E653A053E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947748   (418391) от 17.10.2015
-
-Футбол. Чемпионат Англии 2015-16. 9 тур. EPL. Тоттенхэм Хотспур – Ливерпуль (2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Англии 2015-16,9 тур. EPL. Тоттенхэм Хотспур – Ливерпуль.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:52:42 + 01:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A235B403440EEACEE70E463ABCEC2B05F3E94C9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947703   (418390) от 17.10.2015
-
-Chet Baker - Mr. B (1983) /2015, Solid Records/[FLAC|tracks+.cue]<Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Dolphin Dance [06:25]
- 02.Ellen And David [06:18]
- 03.Strollin' [07:25]
- 04.In Your Own Sweet Way [07:18](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3012CA0BAD09AB5666E93C0C66F557802452D62C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947736   (418389) от 17.10.2015
-
-VA - Lazy Nights Finest Chillout and Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sura Quintet - 2Night
-02. Arrojas - Occidente
-03. Rey Salinero - Nada Mas
-04. Logophilia - Tongues of Wind(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD32862B125C2F6FA52D7ED3F8D0CC11DCE17D31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947363   (418388) от 17.10.2015
-
-Bobby Hutcherson - Color Schemes (1986) /Landmark Records/[FLAC|tracks+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Recorda-me [05:53]
- 02.Bemsha Swing [04:52]
- 03.Rosemary, Rosemary [05:09]
- 04.Second-Hand Brown [05:27](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:049DB9010C6AB2397DBF141F1744C16F4FEFEF12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 710304   (418376) от 13.10.2013
-
-Векторный клипарт - Новый Год 2014-3 / New Year 2014-3 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый Год 2014Формат: EPS и превью в JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C87C8D88FB9D357844E42C8FB2AC9AF96D0ACA49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 710070   (418371) от 13.10.2013
-
-VA - Pure... Rock Ballads (2013) Box Set, 4 CD [FLAC|Lossless|tracks + .cue]<Rock, Ballad>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Asylum - Runaway Train (04:25)
- 02. Hooters - Satellite (04:15)
- 03. Starship - Sara (04:52)
- 04. Bonnie Tyler - Holding Out For A Hero (04:21)(   Читать дальше...   )Жанр: Rock, BalladПродолжительность: 01:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65126162FFF25F85B690706F112703BF5A4F8272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 710125   (418370) от 13.10.2013
-
-З/Л/О 2 / V/H/S/2 (2013) HDRip
+Семь жизней / Seven Pounds (2008) WEB-DLRip [H.264] [Open Matte]
 
 >>Зарубежное кино
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420214.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Молодой студент исчезает при загадочных обстоятельствах. Его мать бьет тревогу, однако полиция не торопится с поисками, полагая, что тот просто загулял. Тогда она нанимает частного детектива, который вместе с помощницей начинает поиски. Первое же место, куда они направляются — дом, где он жил. Снаружи детективы не обнаруживают ничего подозрительного, но забравшись (   Читать дальше...   )Производство: США, Канада, Индонезия / Bloody DisgustingЖанр: Ужасы, ТриллерРежиссер: Саймон Баррет, Джейсон Айзенер, Гарет ЭвансАктеры: Лоуренс Майкл Ливайн, Келси Эбботт, Коллинз Холт, Саймон Баррет, Минди Робинсон, Моника Санчез Наварро, Адам Вингард, Ханна Хьюз, Джон Т. Вудс, Корри Линн ФицпатрикПеревод: Одноголосый закадровый, ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:35:41
+Инженер Бен отправляется в необычное путешествие. В ходе своей поездки он встречает семерых незнакомцев, включая смертельно больную Эмили, которая называет себя девушкой с подбитыми крыльями. Бен неожиданно влюбляется в нее, что сильно усложняет его первоначальный план. Сможет ли он разгадать послание судьбы?Производство: США / Columbia Pictures, Relativity Media, Overbrook Entertainmen, Escape ArtistsЖанр: ДрамаРежиссер: Габриэле МуччиноАктеры: Уилл Смит, Розарио Доусон, Вуди Харрельсон, Майкл Или, Барри Пеппер, Эльпидия Каррильо, Робин Ли, Джо Нуньес, Билл Смитрович, Тим КеллехерПеревод: Дублированный (Невафильм)Субтитры: Русские, английскиеПродолжительность: 02:03:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5842290A9ADBBCA327013FCE65187FD6DD242BCE
+magnet:?xt=urn:btih:DD2C459D39F5E28D80996E2915016A9D52B3561D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -492,25 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412433   (418367) от 29.09.2020
+###  Публикация: 1412217   (420213) от 28.09.2020
 
-A Better Finder Attributes 7 v7.01 [En]
+Юлия Щербинина | Злоречие. Иллюстрированная история (2019) [EPUB]
 
->>Программы для macOS
->>Утилиты для macOS
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420213.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A Better Finder Attributes позволить изменить дату создания фотографии или дату последнего изменения файла. С ее помощью можно манипулировать информацией о дате и времени создания/редактирования JPEG, CR2, NEF, ARF CRW и CIFF EXIF файлов, устанавливая нужное время или удаляя его вовсе. Помимо этого A Better Finder Attributes может синхронизировать дату модификации (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.09.2020Разработчик: PublicspaceПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+Доступный и увлекательный рассказ о негативных явлениях речи и формах словесной вражды от древности до современности. Интереснейшие исторические факты и яркие литературные примеры, синтез научного подхода и популярного изложения заинтересуют как специалистов-гуманитариев, так и всех неравнодушных к актуальным проблемам языка и коммуникации. В книге более 400 тематических (   Читать дальше...   )Жанр: История, Культурология, Языкознание, ЛексикологияФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0142F6B78A07D213A566C203445E06D1E0CAC2DB
+magnet:?xt=urn:btih:E0306717868ED5EED7F283C1FF01884C2583910A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,28 +131,135 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412503   (418366) от 29.09.2020
+###  Публикация: 1412256   (420212) от 28.09.2020
 
-IconJar 2.6.0 [En]
+Тесс Герритсен | Призрак ночи (2020) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совершив жестокую, непростительную ошибку, Эйва покидает Бостон в попытке убежать от мучительных воспоминаний. Надеясь, что уединенная жизнь поможет ей прийти в себя, она арендует старинный капитанский дом на побережье, чтобы закончить свою книгу. Но покоя нет и здесь: по ночам ей слышатся странные звуки и странные видения посещают ее. Когда на свет всплывает история (   Читать дальше...   )Жанр: Зарубежные детективы, Современные детективы, ТриллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F2CFA2ACE2C24BFE384244F09D8ADEA6F8FEA50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406708   (420211) от 28.09.2020
+
+Три жестоких человека / Three Violent People (1956) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывшая танцовщица из салуна Лорна, притворяясь леди, выходит замуж за офицера армии южан Кольта Сандерса, который возвращался с войны на свое огромное ранчо в Техасе. Он привозит её в свой дом. И все было бы хорошо, если бы временное правительство Техаса не решило наложить лапу на ранчо, а кое-кто не знал бы тайну Лорны...Производство: США / Paramount Pictures CorporationЖанр: ВестернРежиссер: Рудольф МатеАктеры: Чарлтон Хестон, Энн Бакстер, Гилберт Роланд, Том Трайон, Форрест Такер, Брюс Беннетт, Элейн Стритч, Бартон МакЛэйн, Питер Хансен, Джон ХэрмонПеревод: Многоголосый профессиональный, Paramount channelСубтитры: Русские, английские (Full, SDH)Продолжительность: 01:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85ED9682556FBC8EA28BC12BDE0C654BC3C9109B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250988   (420210) от 30.09.2018
+
+USBclean 3.3 [Multi]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая мощная утилита для очистки USB, когда-либо сделанная. Быстро и легко удалять надоедливые файлы мусора и призраков с внешних USB-накопителей. .DS_Store, Thumbs.db, .Spotlight и файлы trashes занимают драгоценное пространство и могут вызывать проблемы на некоторых устройствах. Удалите любое количество предварительно настроенных типов файлов или добавьте собственные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.09.2018Разработчик: SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Португальский, Французский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250966   (420209) от 30.09.2018
+
+Tales Of Evening - Szilánkok (2015) [FLAC|Lossless|image + .cue] <Symphonic Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Hagyj repulni
+03. Van a pillanat
+04. A szel feltamad(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251109   (420208) от 30.09.2018
+
+Теннис. Кубок Дэвиса 2018. Группа 1. Зона Европа/Африка. Плей-аут. 1-й раунд. Россия — Беларусь. День 1 (14.09.2018) WEB-DL
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420208.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Все ваши иконки отлично организованы в удобный интерфейс
-Разработанный, чтобы сделать жизнь разработчиков приложений и дизайнеров немного легче, IconJar представляет собой легкий и удобный органайзер иконок для вашего Mac.
-
-Если вы дизайнер или просто-напросто кто-то, чья линия работы включает в себя работу со значками (или глифы), то вы знаете, как громоздким оказывается (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.09.2020Разработчик: Davey Heuser and Curtis HardПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+14 сентября 2018 года, пятница.
+Кубок Дэвиса 2018 — 107-й по счёту розыгрыш самого престижного кубка среди мужских сборных команд по теннису.
+Группа 1. Зона Европа/Африка. Плей-аут. Первый раунд
+1. Карен Хачанов (Россия) — Егор Герасимов (Беларусь)(   Читать дальше...   )Телекомпания: Матч! Наш СпортЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:41:46 - 01:43:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5ACDD9DE04058896B1C0F57FADD5A40AC3051AA3
+magnet:?xt=urn:btih:132C7D2A4E8EC0A881D09831D93516418B29D88B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -547,28 +267,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412406   (418365) от 29.09.2020
+###  Публикация: 1250559   (420207) от 30.09.2018
 
-Big Thinkers - A New Beginning (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock>
+4ре Апреля - Х (2018) [MP3|320 Kbps] <Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420207.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Farm 03:45
-02. Everybody 04:53
-03. Life Games 07:26
-04. Madney 04:47(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:15:44
+01. Не отступай
+02. Всем напомнить (Песня дьявола)
+03. Растворись
+04. Ч/Б Кино(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:35:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43251F2F198B44969E0656B768F25EF7407C84C2
+magnet:?xt=urn:btih:1254BE4D492752F62EF01F668F1A9520713E2B8E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -576,28 +296,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411961   (418364) от 29.09.2020
+###  Публикация: 1251071   (420206) от 30.09.2018
 
-Ad Infinitum - Chapter I: Monarchy (2020) [AAC|~330 Kbps]<Power Metal>
+Формула 1. Сезон 2018. 16-й Этап. Гран-при России. Квалификация (29.09.2018) HDTV [H.264/1080i-LQ]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420206.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Infected Monarchy (5:46)
-02. Marching on Versailles (3:51)
-03. Maleficent (3:51)
-04. See You in Hell (3:50)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:42:57
+29 сентября 2018 года, суббота. 15:00 МСК
+Формула 1. 16-й Этап сезона 2018 года. Гран-при России. Сочи (Россия).
+Квалификация
+Арена: Сочи Автодром (Сочи, Россия)Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 00:59:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C24CD3E98F143323B5D5F6A94986A91CBFC59BF
+magnet:?xt=urn:btih:9696DF12A614E78BFB0EF2EA3299BF129E5F5ABE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -605,28 +325,141 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412418   (418363) от 29.09.2020
+###  Публикация: 1251013   (420205) от 30.09.2018
 
-Chet Baker - Live in Tokyo (1987) 2015, 2CD, King Records [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
+New Composers & Pete Namlook - Planetarium 2 (1999) Fax +49-69/450464 [FLAC|Lossless|tracks+.cue] <Ambient, Electro, Techno, Experimental>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moontrip (11:46)
+ 02. Start Process (10:23)
+ 03. Urgent Message (02:54)
+ 04. MIR Station - Selektor (08:36)(   Читать дальше...   )Жанр: Ambient, Electro, Techno, ExperimentalПродолжительность: 00:57:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251239   (420204) от 30.09.2018
+
+Журнал | AD / Architectural Digest [Germany] №10 (октябрь 2018) [PDF] [De]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущий международный журнал об архитектуре и дизайне. Издается в Америке с начала 20-х годов. За долгие годы завоевал репутацию законодателя интерьерной моды, сформировал вкусы нескольких поколений, источник вдохновения в искусстве создания идеального жизненного пространства.Жанр: Дизайн, архитектураФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250557   (420203) от 30.09.2018
+
+Acacia Avenue - Cold (2014) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time (5:05)
+ 02. Love Will Survive (4:46)
+ 03. It's Over (5:01)
+ 04. Out Of The Business (3:36)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:261E490D8A86EAB3E202A66617A4EEFAB74EADBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251006   (420202) от 30.09.2018
+
+Rosewater - Bloodcount (2006) Sturm [FLAC|Lossless|tracks+.cue] <Industrial, Rhythmic Noise>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. N.M.E (06:26)
+ 02. Unbroken (04:47)
+ 03. On The Move (05:29)
+ 04. Dzelzsbetons (06:27)(   Читать дальше...   )Жанр: Industrial, Rhythmic NoiseПродолжительность: 01:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B754CD1D4DEEB29113634207C5AE3B8ED5A29CB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250857   (420201) от 30.09.2018
+
+VA - Blackend - The Black Metal Compilation Vol. 1 (1995) 2CD [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420201.jpg" />
 </div>
 
 
 ###  Подробнее
 
 CD1:
-01. Stella by Starlight [10:52]
-02. For Minors Only [7:42]
-03. Almost Blue [7:54](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 01:55:31
+01. Emperor - I Am the Black Wizards (6:13)
+02. Impaled Nazarene - Hate (5:52)
+03. Mayhem - Pagan Fears (6:22)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 02:08:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:37DE35AAA9623464C6356FB2B80474C067EFD278
+magnet:?xt=urn:btih:DD6FABE6E6FC22491DF2B41745C2D519EEE0AE5C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -634,28 +467,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411565   (418362) от 29.09.2020
+###  Публикация: 1250782   (420200) от 30.09.2018
 
-Леонид Утесов - Записи 30 - 40 годов (2020) [AAC|~275 Kbps]<Retro>
+VA - Dance Religion 16 (House and Dance Tunes from Heaven) (2018) [MP3|320 Kbps] <House>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420200.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Мишка-одессит (2020 Remastered Version) (5:17)
-02. О чем ты тоскуешь, товарищ моряк (2020 Remastered Version) (2:55)
-03. Партизанская тихая (2020 Remastered Version) (3:00)
-04. На Унтер Ден Лиден (2020 Remastered Version) (2:16)(   Читать дальше...   )Жанр: RetroПродолжительность: 00:45:28
+01. Rene Gater - House Music
+02. Akiia - Flute
+03. Sebastian Schalk - Missing You (Summer Mix)
+04. Luke Parker - Riot(   Читать дальше...   )Жанр: HouseПродолжительность: 02:01:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8AD9D6C7EB47D0B1B16B87B0CD45CB8A2A6C6067
+magnet:?xt=urn:btih:8D5D5FDFE05D687F2F0F978263488D164B1D9AEB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -663,28 +496,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411752   (418361) от 29.09.2020
+###  Публикация: 1251145   (420199) от 30.09.2018
 
-VA - Best of New Generation Maxi Disco Vol. 1 (2020) [AAC|~319 Kbps]<Disco, Hi-NRG>
+VA - Der deutsche Schlager Herbst (2018) 3CD [MP3|320 Kbps] <Pop, Schlager>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420199.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Grant Miller - One Day (Italo Disco Extended Mix) (5:38)
-02. Linda Jo Rizzo - Day of the Light (Electro Potato Alternative Edit) (3:39)
-03. Energy Voice - Discolights (Extended Mdr Party Mix) (6:55)
-04. Luca Gold - A Little Love in My Life (Extended Cut) (4:27)(   Читать дальше...   )Жанр: Disco, Hi-NRGПродолжительность: 00:55:39
+CD01:
+01. Andrea Berg - Die Gefühle haben Schweigepflicht
+02. Nino de Angelo - Tattoo
+03. Andrea Jürgens - Komm mit mir in den Süden(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:42:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2375ADCB1A4A9953C18CCA5E9795C803F14DC8A4
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -692,28 +525,195 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412402   (418360) от 29.09.2020
+###  Публикация: 1250753   (420198) от 30.09.2018
 
-Built For The Future - Brave New World (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock, Crossover Prog>
+VA - Pump It Vol.15 (2018) [MP3|320 Kbps] <Euro-House, Dance>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420198.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Brave New World (11:51)
-02. Breathe (5:34)
-03. The Sheltering Sky (7:55)
-04. Zenith (7:15)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 01:14:30
+01. De Munari - Pump It Vol.15 (Continuous Mix 1)
+02. Happytech - Pump It Vol.15 (Continuous Mix 2)
+03. Basslouder - Pump It Vol.15 (Continuous Mix 3)
+04. Ste Ingham - Children (Radio Edit)(   Читать дальше...   )Жанр: Euro-House, DanceПродолжительность: 07:50:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:088CE15DE474998917FCDDFC50DC7C819922D516
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251115   (420197) от 30.09.2018
+
+CodeRunner 3.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420197.jpg" />
+</div>
+
+
+###  Подробнее
+
+CodeRunner - универсальный редактор для программиста
+CodeRunner - отличный редактор для программиста с возможностью тестирования и запуска приложений написанных на любом из 22 языков программирования: AppleScript, C, C++, С#, Objective-C/Objective-C++, Java, Javascript (Node.js), jQuery, LaTeX, Lua, Perl, PHP, Python/Python 3, Ruby, Shell script или Swif.Тип издания: macOS SoftwareРелиз состоялся: 25.09. 2018Разработчик: Nikolai KrillПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F52E8AF68D5C12D25F247F599645B131BB081140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251053   (420196) от 30.09.2018
+
+VA - Lurve Connection Vol. 1 (2018) Mystic Sound Records [FLAC|Lossless|WEB-DL|tracks] <Psychill, Dub, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. False Identity – A State Of Delighted Astonishment (08:37)
+02. Antandra – You Make Me Feel So (07:06)
+03. Shantam – Fly VS Glass (04:16)
+04. Oglob – Nur The Flur (06:06)(   Читать дальше...   )Жанр: Psychill, Dub, DowntempoПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E07BB5F95DC391EFE283276519D113AB6035A3A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250569   (420195) от 30.09.2018
+
+Acacia Avenue - Worlds Apart (2018) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stand Up And Shout (4:47)
+ 02. Worlds Apart (4:52)
+ 03. Out Of Control (4:41)
+ 04. Fly Away (4:06)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:51:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251104   (420194) от 30.09.2018
+
+Paris Casablanca - Dancing In Cairo (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing In Cairo (5:32)
+02. Mamy Blue (6:06)
+03. I Should Be Lovin' (5:30)
+04. Keep On Running (6:45)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:35:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251175   (420193) от 30.09.2018
+
+ProPresenter 6 v6.3.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420193.jpg" />
+</div>
+
+
+###  Подробнее
+
+ProPresenter – это система для презентаций, которая использует два экрана, предоставляя пользователям возможность легко и быстро показывать слайды на одном экране и контролировать презентацию – на другом.
+В программу встроен ProVideoPlayer, который позволяет воспроизводить видео. ProPresenter поддерживает любое разрешение экрана, что вместе с экранами новых Мас с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: Renewed Vision LLCПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Корейский, Испанский, Португальский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF7812FA79AFE2782713CADAD82BBADC5AA334FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251156   (420192) от 30.09.2018
+
+Формула 1. Сезон 2018. Этап 16. Гран-при России. Парад пилотов (30.09.2018) WEBRip [H.264/720p-LQ] [EN]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Парад пилотов и интервью на трассе Сочи Автодром.Телекомпания: Formula OneЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 00:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB478EED72EC192BE772AA5AD31E5EBC23F376F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

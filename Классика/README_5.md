@@ -1,3 +1,58 @@
+###  Публикация: 625310   (945651) от 04.03.2013
+
+W.A. Mozart - Missae Breves k.49, 65, 194 & 220: Nikolaus Harnoncourt, Concentus Musicus Wien & Arnold Schoenberg Chor (1998) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ClassicalПродолжительность: 01:08:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC59A871D18D728803622414B55D6B4BCA000808
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091112   (944393) от 08.01.2017
+
+Enrico Caruso - Grand Collection (2006) [FLAC|Lossless|tracks + .cue] <Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mattinata (Leoncavallo)
+02. Libiamo,libiamo (Verdi)
+03. La danza (Rossini)
+04. O sole mio (Capua)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:12:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF94C9CCC49D17AEC61C178F416A3DFB5C5F1D8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983517   (943613) от 06.02.2016
 
 Saint-Saens - Carnival of the Animals, Danse macabre, Symphony 3 (2009) (Ormandy, Entremont, Power Biggs) [FLAC|Lossless|Track+.cue] <Классическая музыка, Classical>
@@ -693,64 +748,6 @@ Fabio Biondi, Europa Galante - Vivaldi - La Stravaganza (2011) [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97374CAB3E32E3A495B37E30B0AF3C7919B0895F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990998   (905779) от 28.02.2016
-
-Святослав Рихтер, Lovro von Matacic, Orchestre Nacional de l'Opera de Monte Carlo - Grieg, Schumann: Piano Concertos (2003) [OGG|256 кб/с] <Классическая музыка, Classical>
-
->>Классика
->>Концерты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grieg - Piano Concerto in A minor, op. 16
-01 (1) Allegro molto moderato
-02 (2) Adagio
-03 (3) Adagio moderato molto e marcatoЖанр: Классическая музыка, ClassicalПродолжительность: 01:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A0A5D2AD82DD833657FD43194708D95593D2516
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000905   (904448) от 01.02.2017
-
-Franz Schubert - Fantaisie (David Fray feat. Jacques Rouvier) (2015) [FLAC 2.0|96/24|Lossless|tracks] <Classical, Piano>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Sonata No. 18 in G Major, D. 894, "Fantasie"
-01. I. Molto moderato e cantabile (19:09)
-02. II. Andante (7:57)
-03. III. Menuetto. Allegro moderato - Trio (4:07)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3E4B71D31F62FED8A7093960A3329026E7AF00A
 ```
 
 https://mybot314.ru/tekegram_catalog/

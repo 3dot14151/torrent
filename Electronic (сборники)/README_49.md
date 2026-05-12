@@ -1,3 +1,32 @@
+###  Публикация: 1504681   (810417) от 24.10.2021
+
+VA - The Stars Align: EDM October Mixtape (2021) [MP3|320 Kbps] <Electro, Dance, Clubbing, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810417.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nana K. - Old's Cool
+002. Davide Squillace - Smart Dance Stupid Floor
+003. Andaro - Sick & Tired
+004. Beatfreak - Our Dying Outcry(   Читать дальше...   )Жанр: Electro, Dance, Clubbing, HouseПродолжительность: 07:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0513745C061BFC6182143B2DB7C7BBAABF4BEF3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504826   (810351) от 24.10.2021
 
 VA - Record Super Chart 23.10.2021 [MP3|320 Kbps] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - Energy Adventure Melodies (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1544D5C68D1D5AD642B7BD5993AD7F254296E1BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119774   (805764) от 29.03.2017
-
-VA - Best of Deep-House. Volume 2. Spectral Life [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Deep-House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moviero - Intro (Original Mix) (6:36)
-02. Aaron the Baron - The Time You Gave Me Love (Original Mix) (4:45)
-03. AFSHeeN - Tunnel - Radio Edit (3:40)
-04. Jaques Le Noir - Boy (Push My Botton)Жанр: Deep-HouseПродолжительность: 04:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1D462429EA1A0A718005B31DC5C751B0DCCDED4
 ```
 
 https://mybot314.ru/tekegram_catalog/

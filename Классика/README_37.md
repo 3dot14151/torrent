@@ -1,3 +1,58 @@
+###  Публикация: 1327848   (366020) от 29.09.2019
+
+Piano Novel - Lumino Forest (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melody for a Constellation (4:19)
+ 02. Connected Colors (3:46)
+ 03. Scintillations (2:45)
+ 04. Cosmoflower (2:29)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57DF7783702E56FCDE03B1BDA8CE88706B3CF09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574204   (365595) от 16.11.2012
+
+Beethoven - Complete Piano Sonatas, Kurfursten Sonatas, Sonatinas: Peter Takacs (2011) 11 Hybrid SACD Box Set [FLAC|Lossless]<Classical/Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical/PianoПродолжительность: 01:02:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3154FE2D773054B95E04E7F8838AB90B63A6422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255649   (363264) от 18.10.2018
 
 2Cellos - Let There Be Cello (2018) [MP3|320 Kbps] <Symphonic, Neoclassical>
@@ -712,64 +767,6 @@ Wolfgang Amadeus Mozart - Piano Concerto No.13 in C Major, K.415:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96420D69048A48DE348825518394478B2DC71B22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953775   (346485) от 05.11.2015
-
-Andrea Bocelli - Cinema (Deluxe Edition) (2015) [FLAC|Image+cue]<Pop, Classical Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria (From "West Side Story")
-02. La Chanson de Lara (From "Dr. Zhivago")
-03. Moon River (From "Breakfast at Tiffany's")
-04. E piu ti penso (From "Once Upon a Time in America")(   Читать дальше...   )Жанр: Pop, Classical CrossoverПродолжительность: 01:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:490C31D4B970AE68A51CBBD322F45E3C79ADBB91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257397   (345358) от 26.10.2018
-
-Chiharu Naruse - Kenneth A. Kuhn: Piano Works (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude No. 3 in G Minor
-02. An Alpine Song (Arr. for Piano)
-03. Fantasia on a Folk Theme
-04. Prelude on a Hymn Tune(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 00:58:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B34335270D9ABDC64D78A372D0E8E4EA6FBB55D
 ```
 
 https://mybot314.ru/tekegram_catalog/

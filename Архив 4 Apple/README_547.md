@@ -1,3 +1,29 @@
+###  Публикация: 1342220   (226178) от 01.12.2019
+
+mirethMusic 4.4.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя простой способ копировать, конвертировать, записывать и воспроизводить MP3, WAV, незащищенные WMA, AAC, M4A, M4B, MP2, Ogg Vorbis, AIFF и midi на Mac OS. mirethMusic прост в использовании и включает в себя все функции, которые вам нужны, от конвертера, CD Ripper, CD Burner, Player, ID3 Tag Editor. Преобразование большинства форматов - MP3, WMA, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.06.2019Разработчик: Mireth Technology CorporationПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:450C5156B20269C95AD8B18CADD95657FEC6DEFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513320   (226175) от 28.11.2021
 
 GlueMotion 2.0.2 [Multi]
@@ -654,32 +680,6 @@ Mail Designer Pro позволяет создавать информационн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB930C914537F4539B2D7F4612BE249D9B556031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513400   (225981) от 28.11.2021
-
-BookMacster 2.12.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225981.jpg" />
-</div>
-
-
-###  Подробнее
-
-BookMacster - приложение синхронизирует закладки между браузерами: Safari, Firefox, Chrome, Camino, iCab, Opera и OmniWeb, а так же в Интернет с Delicious, Pinboard, и Google Bookmarks. BookMacster поддерживает теги, комментарии и ссылки и в любой момент времени доступны в строке меню. Все закладки можно отсортировать по алфавиту, проверить на наличие битых ссылок, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.11.2021Разработчик: © 2021 Sheep SystemsПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F2CFCCBD24516774F71124556EB5A63E3CE278
 ```
 
 https://mybot314.ru/tekegram_catalog/

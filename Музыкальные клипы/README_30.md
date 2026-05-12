@@ -1,3 +1,84 @@
+###  Публикация: 582089   (320380) от 29.11.2012
+
+Amelia Lily. Shut Up (2012) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8454E0ADBEEBEECF468C13AF3DFBE095AFF7B48A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958330   (319004) от 23.11.2015
+
+Whitesnake - The Purple Album (2015) Bonus DVD5 [EN]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бонусный диск к альбому Whitesnake - The Purple Album (2015). Представлены четыре видеоклипа на песни с альбома, а также документальный видеоматериал по созданию альбома.1. Lady Double Dealer (Music Video)
+2. Sail Away (Music Video)
+3. Stormbringer (Music Video)
+4. Soldier Of Fortune (Music Video)(   Читать дальше...   )Жанр: Hard Rock, ДокументальныйПеревод: ОтсутствуетПродолжительность: 29:10 + 26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6387333F47D8BCF58D6ABE47FEE86111883CFB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583051   (315360) от 01.12.2012
+
+Вася Обломов - УГ (2011) HDCam
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клип Васи Обломова (Гончарова) из альбома "Повести и Рассказы."Жанр: Rock / Альтернативный шансон / Стёб-ХопПродолжительность: 00:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC9AFA3C5BB1BCCB78FFC51AD2F89BCFC5928850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 582574   (314869) от 01.12.2012
 
 Сборник клипов - VA - Various Music part. 37 (2012) WEBRip 720p, 1080p
@@ -625,90 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1894C37BC9BD1DD40D623C98928BF90DC27B67C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962533   (292758) от 05.12.2015
-
-Pitbull - (Collection Video Clip) (2011 - 2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию предлагаем лучшую подборку видео клипов Armando Christian Perez III или сценическое имя Pitbull.01. Pitbull and Empire Cast ft. Jussie Smollettl - No Doubt About I (00:04:14)
-02. Pitbull - Back In Time (featured in 'Men In Black III') (00:03:32)
-03. Pitbull - Celebrate (from the Original Motion Picture Penguins of Madagascar) (00:03:11)
-04. Pitbull ft. TJR - Don't Stop The Party (00:03:33)(   Читать дальше...   )Жанр: Latino, Reggaeton, Hip House, Rap, Hip-Hop, Latin UrbanПродолжительность: 01:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:338CD52DD68AD3BE60D14C7772E6F58B5C581040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962598   (292639) от 05.12.2015
-
-Ageless rock (2015) WEBRip [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не стареющий рок!01. Cream - White Room [06:12]
-02. Queen - We Will Rock You [02:10]
-03. Mungo Jerry - Baby Jump [04:05]
-04. Alice Cooper - I Never Cry [02:26](   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Glam RockПродолжительность: 02:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:943029AE4E46748178C799B539DE5116FB4A4637
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185549   (291230) от 22.11.2017
-
-David Guetta feat. Rihanna - Who's That Chick (2010) 540p HDTV
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальный видеоклип David Guetta feat. Rihanna - Who's That Chick.Жанр: Музыкальный видеоклип.Субтитры: отсутствуютПродолжительность: 00:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F155C8F39B492685A10C0B18F91E85D6C473931
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1805829   (12017) от 09.07.2025
+
+VA - Classicworks: Best of Classical (2000) 2 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonata in C, K.545, Allegro - Mozart (2:17)
+02. The Happy Farmer - Schumann (0:40)
+03. Gymnopedie - Satie (3:48)
+04. Moonlight Sonata, 1st Movement - Beethoven (5:06)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:21:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6F0EC498934F8E2C5C401E347DF34EC24C77CDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806287   (11602) от 13.07.2025
 
 VA - 100 Classics For Relaxation - A Glorious Sunrise (2008) CD, Compilation [FLAC|Lossless|tracks + .cue] <Classical, Contemporary, Romantic>

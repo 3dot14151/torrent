@@ -1,3 +1,73 @@
+###  Публикация: 579956   (348743) от 23.11.2012
+
+VA - Dubstep 2012 vol.3 (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348743.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Roughmath - Antevorta (4:54)
+2. Vexare - Still Remaining (4:17)
+3. SKisM-Power (Eptic Remix)  (5:36)
+4. Bombs and Bottles - I will take you there - RoughMath Remix  (5:29)
+5. Xilent - Touch Sound  (3:42)
+6. Protohype, Kezwik - Vile (Original Mix) (3:15)
+7. KDrew ft. TriCosta - Young and Wreckless  (4:23)
+8. KDrew ft. Mr. Nickelz - Danger Zone  (4:21)
+9. KDrew - Circles by KDrew (4:25)
+10. SUBSCAPE - Graveyard Shift  (5:05)(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C28C25A18DE7D70B4C779150740B77F7AA61E4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 578891   (348195) от 23.11.2012
+
+VA - DeepEmotions - Car Dubstep Vol. 6 (2011) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duck Sauce - Barbara Streisand (Sensproof Remix) [3:27]
+02. Sezer Uysal, Sarah Jane - Chasing (Urban Assault Remix) [5:20]
+03. Karl Jenkins - Palladio (Luke Da Duke Remix) [5:04]
+04. Calvin Harris - Feel So Close (Nero Remix) [4:44]
+05. Fytch & Captain Crunch feat. Carmen Forbes - Raindrops (Tomba Remix)[4:02]
+06. The Qemists & Maxsta - Renegade (The Qemists VIP) [5:01]
+07. Dubba Jonny - What Have You Got [5:37]
+08. Urban Assault - Let It Go (Drumstep Remix) [4:55]
+09. Tim Healey Freqhouse feat. Loc - E Pippa Trix - Resistance (Mark Instinct Remix) [4:34]
+10. Darren Styles - Here Tonight (Christian the Lion & Glitchdick Remix) [3:47](   Читать дальше...   )Жанр: DubstepПродолжительность: 01:16:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8090D3F7220B7C93465D90109DBFCCA38A82A67C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073155   (347946) от 15.11.2016
 
 VA - Desire To Live: Soulful Mix (2016) [MP3|192~320 Kbps] <Downtempo, Chillout, Lyric>
@@ -718,64 +788,6 @@ VA - До утра vol.2 (mixed by Dj V) (2015) [MP3|320 кб/с]<Club House, Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0D426B9B9267FF2ED952F7BBA22730BCFAFFE5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179949   (344578) от 02.11.2017
-
-VA - Empire Records - Chill Clinic (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grow - Solido
-02. Daviddance - Panda Style Remastered (Original Mix)
-03. Los Surfistas Gigantes - Dos Huevos Extremos
-04. Warma - Bunny (Pow Wow Remix)(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 06:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BEE21244BEFF4F4E110D97072741E46940C732D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179924   (344570) от 02.11.2017
-
-VA - Exotic Lounge: Relax Selection (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344570.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cafe Americaine - Across The Equator
-002. Puremusic - Unsaid (State Azure Remix)
-003. The Sura Quintet - Walking On The Sand
-004. Sine - Glittering Water(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023AA5F7CF8754E77F9559F25465324CC8E6F887
 ```
 
 https://mybot314.ru/tekegram_catalog/

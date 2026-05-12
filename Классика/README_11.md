@@ -1,3 +1,61 @@
+###  Публикация: 998454   (870043) от 19.03.2016
+
+Schumann, Argerich, Kremer, Harnoncourt, Chamber Orchestra Of Europe - Piano Concerto - Violin Concerto (1994) [FLAC|Lossless|tracks] <Classical, Romantic>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Concerto In A Minor, Op. 54
+01. Allegro affettuoso  14:24
+02. Andantino grazioso  05:09
+03. Allegro vivace  10:08Жанр: Classical, RomanticПродолжительность: 01:02:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E639E6692F22C2E425ABAF8E7FA22349ACC68B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996834   (869970) от 19.03.2016
+
+Anton Bruckner - Symphony No. 4 - LSO, Bernard Haitink (2011) [FLAC 2.0|48/24|Lossless|WEB-DL|tracks] <Symphony>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony No. 4 in E flat major 'Romantic' (1874-80)
+1886 (aka 1878/80) version - ed. Leopold Nowak [1953]
+01 Beweft, nicht zu schnell 20:33
+02 Andante quasi Allegretto 15:07(   Читать дальше...   )Жанр: SymphonyПродолжительность: 01:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AE143D3B82C5213C95FD254BC03A83C277503BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997660   (869954) от 19.03.2016
 
 Maurice Ravel - The Complete Piano Works / Walter Gieseking (1954) [FLAC 2.0|96/24|Lossless|tracks] <Classical>
@@ -685,64 +743,6 @@ Wiener Philharmoniker - Highlights From Mozart's Figaro (2007) [FLAC|Lossless|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B366F078C61F24838764C2C34B3F2603FFE982C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000187   (860711) от 24.03.2016
-
-Annie Moses Band - The Art Of The Love Song (2016) [MP3|320 кб/с] <Classical Crossover, Pop>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Evergreen
-02 La vie en rose / Honeysuckle Rose
-03 And I Love Her
-04 The First Time(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 01:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D3ADF5F3B8E846013C598875D65CA4811661F67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000025   (860709) от 24.03.2016
-
-Teresa Berganza, Plácido Domingo, London Symphony Orchestra - Georges Bizet: Carmen (1978) released on CD 1987, 3CD [FLAC|Lossless|tracks + .cue] <Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude - ACTE I (3:31)
-02. N° 1 Introduction : Sur la place chacun passe (2:10)
-03. N° 1 : Regardez donc cette petite (4:10)
-04. N° 2 Marche et Choeur des gamins : Avec la garde montante (2:34)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 02:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:419D1D4C5FAB06311FE53612EEE78ECFDBE100EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

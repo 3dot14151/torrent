@@ -1,3 +1,125 @@
+###  Публикация: 742439   (979005) от 06.01.2014
+
+Briza (David Arkenstone) - Ambient Cafe (2006) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reflections on the Highway (6:22)
+02. Electric Rain (7:12)
+03. Splashdown (6:15)
+04. Boarding Pass (5:34)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D43EA98BEC65DD4C4801CDAA2906AEEA054F687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973706   (978942) от 09.01.2016
+
+Almudena Merino Mino - Dejolull, La Cepa Magica (2015) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amanecer
+02. Reina Guerrera
+03. Oscuridad
+04. Reina Guerrera - Amanecer(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D9C0E06345E2C1808B08C77871E5703E9EDCCA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 166030   (978790) от 13.01.2010
+
+Ennio Morricone - The Good, the Bad and the Ugly (1966) / Хороший, плохой, злой (Digitally Remastered) (2004) [MP3|320 kbps]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978790.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Il Buono, Il Cattivo, Il Brutto (The Good, The Bad And The Ugly) (Main Title) (2:42)
+2. Il Tramonto (The Sundown) (1:15)
+3. Sentenza (1:41)
+4. Fuga A Cavallo (1:07)
+5. Il Ponte Di Corde (1:52)
+6. Il Forte (The Strong) (2:22)
+7. Inseguimento (2:25)
+8. Il Deserto (The Desert) (5:17)
+9. La Carrozzo Dei Fantasmi (The Carriage Of The Spirits) (2:09)
+10. La Missione San Antonio (2:15)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:54:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356230   (978728) от 30.01.2020
+
+Lorne Balfe, VA - Bad Boys for Life / Плохие парни навсегда (Original Score + The Soundtrack) (2020) [FLAC|Lossless|tracks] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meek Mill & Farruko - Uptown II (02:54)
+02. City Girls - Money Fight (02:38)
+03. The Black Eyed Peas & J Balvin - RITMO (Bad Boys For Life) (03:41)
+04. Rick Ross & Bryson Tiller - Future Bright (02:58)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD49267E11A442D8AC11F59FCE585FCBC8826B4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356124   (978723) от 30.01.2020
 
 VA - Women's Songs - Native Traditions (2011) [MP3|320 Kbps] <Native American>
@@ -635,127 +757,6 @@ VA - Mystic Spirits vol. 3, 2CD (2001) [FLAC|Lossless|image + .cue] <Folk, Ambie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57FD464C36681C1CBF217544BE2A5FFFD89BC4C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616844   (973413) от 11.02.2013
-
-VA - Песни нашего кино. Коллекция от Ридерз Дайджест (5CD) (2011) [MP3|320 кб/с]<поп>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973413.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Разговор со счастьем73. Вступление к к-ф 'Вокзал для двоих'
-74. Погоня
-75. Постой, паровоз
-76. С чего начинается Родина
-77. Человек-амфибия
-78. Танец воспоминаний
-79. Песня подруг
-80. Песня о беспризорном мальчишке
-81. Веселый ветер
-82. Песенка про трубачей(   Читать дальше...   )Жанр: попПродолжительность: 00:55:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E543924FF3FABDADD0740E67A7F25F13C768BC4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975273   (973344) от 14.01.2016
-
-Manish Vyas - Atma Bhakti (2015) [MP3|320 кб/с] <New Age, World, Mantra>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atma (29:14)
-02. Bhakti (32:16)
-03. Vedic Chanting (05:16)Жанр: New Age, World, MantraПродолжительность: 01:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4FAE2AD55CB4E04DCB4ACB46619A48194949272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357345   (973159) от 04.02.2020
-
-Nicholas Britell - The King / Король (Original Score from the Netflix Film) (2019) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973159.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:29| 01. Ballade in C# Minor: Coronation
-|01:16| 02. Estampie - Eastcheap
-|05:12| 03. Song of Hal: Strings in C# Minor
-|02:14| 04. Tetrachord - War and Fate(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F3FB6A51FDFC40FF5400ED90827D3863864DD5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357346   (973157) от 04.02.2020
-
-Nicholas Britell - The King / Король (Original Score from the Netflix Film) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973157.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:29| 01. Ballade in C# Minor: Coronation
-|01:16| 02. Estampie - Eastcheap
-|05:12| 03. Song of Hal: Strings in C# Minor
-|02:14| 04. Tetrachord - War and Fate(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A524B2DD25B7210AC4DEE7ADDA5EB647B076CCE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -404,6 +404,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854388   (1057424) от 17.02.2026
+
+Роланд Хасс, Билджин Ибрам | Паттерны Kubernetes: Шаблоны разработки собственных облачных приложений (2026) [Второе издание] [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1057424.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Паттерны Kubernetes» — это не очередной справочник по настройке кластеров или описанию API. Это фундаментальный труд, который отвечает на самый главный вопрос: как эффективно проектировать и строить приложения, предназначенные для работы в Kubernetes? Авторы систематизировали лучшие практики, преобразовав их в паттерны. Книга учит не просто использовать Kubernetes, (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: Д. ГудилинИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE2C103F78DD154199D06DA9ECAD9DA169823A42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854109   (1057345) от 18.02.2026
 
 Грег Уилсон | Разработка программного обеспечения на примерах с помощью Python (2025) [PDF]
@@ -659,34 +685,6 @@ Distributed systems are complex—but they’re also everywhere in modern softwa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FB09F2BEF6C83DC18C8027AE9F2BDA8E13D4DDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852858   (1056558) от 12.02.2026
-
-Elton Stoneman | Learn Docker in a Month of Lunches. Second Edition (2025) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Just the Docker you need to know in 22 bite-sized lessons!
-
-In Learn Docker in a Month of Lunches, Docker expert Elton Stoneman guides through everything you need to know about Docker in 22 short lessons you can complete on your lunch break. This freshly-revised bestseller has been updated for modern tools and the latest versions of Linux, Windows, or Mac, with new (   Читать дальше...   )Жанр: Software Design & Engineering, Cloud Computing, Software DevelopmentЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53E5479E5F8C5FDFC1F342F01207F70588226FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1103674   (885655) от 12.02.2017
+
+Absurd Minds - Tempus Fugit (2017) [FLAC|Lossless|WEB-DL|tracks] <EBM, Synth-pop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Travel (4:10)
+ 02. Farewell (5:38)
+ 03. Kreuzfeuer (4:52)
+ 04. Now We Hear the Call (4:44)(   Читать дальше...   )Жанр: EBM, Synth-popПродолжительность: 00:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71EB7175DA2642A99B41D01ED2BD0BE43C08E5C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996222   (880840) от 13.03.2016
 
 Blutengel - Nemesis: Best of and Reworked (2016) 2CD, Deluxe Edition [FLAC|Lossless|image + .cue] <Darkwave, Synth-Gothic>
@@ -713,35 +742,6 @@ P·A·L (P.A.L, PAL, P•A•L) - Discography 16 Releases (1993-2011) Ant-Zen [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37FE90425427A60D4917C95B85B326A68B47943C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281409   (753368) от 07.02.2019
-
-Front Line Assembly - Wake Up The Coma (2019) [FLAC|Lossless|tracks + .cue] <Industrial, Electro-Industrial, EBM, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eye On You (feat. Robert Görl) (04:30)
-02. Arbeit (05:02)
-03. Rock Me Amadeus (feat. Jimmy Urine) (04:14)
-04. Tilt (05:10)(   Читать дальше...   )Жанр: Electro-Industrial, EBM, ExperimentalПродолжительность: 01:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A322782F53A9C9933373EF1382E22FCA5B7169EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

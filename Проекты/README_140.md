@@ -1,3 +1,55 @@
+###  Публикация: 668960   (721089) от 16.06.2013
+
+Проекты - VideoHive - Ancient World [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древний мир - это песочная анимация для открытия сцен фильма или слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:753C9CEE7A97C1AD39791DD7B4D7C2005B5828EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 892007   (721002) от 25.04.2015
+
+Проекты - VideoHive - Dynamic Cartoon FX pack - 10964336 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dynamic Cartoon FX pack - After Effects CS5,5 - CC 2014 проект. Легко настроить. Разрешение проекта: FullHD 1920X1080. Для AE-проекта вам нужен плагин Trapcode Particular. Видео инструкция включена. Dynamic Cartoon FX - инструментарий для motion дизайнеров и 2D аниматоров. Пакет содержит After Effects проект с более чем 100 настраиваемых FX-анимаций. Вы можете изменить (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1875F9EE1DC8AA4E9A61291493693341910E89D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218670   (720917) от 10.04.2018
 
 Проекты - VideoHive - Spring Logo - 10469353 [AEP]
@@ -619,58 +671,6 @@ MultiScreen Studio V2 представляет собой очень динам�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D30E94E1EF6EBAB7B83B69A2AE80A5B6BBCE72B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024019   (719608) от 07.06.2016
-
-Проекты - VideoHive - Social Logos and Lower Third - 10139777 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор социальных медиа иконок для ваших видеороликов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDB5BAFD4465A4F4B08FA7D236ADE79394AC66ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024173   (719605) от 07.06.2016
-
-Проекты - VideoHive - Event Promo - 16014050 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Event Promo - проект для ваших промо-роликов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:408380C4C0894242BA96FE22C558256B32CB21FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

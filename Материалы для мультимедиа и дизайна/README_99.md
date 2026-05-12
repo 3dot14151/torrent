@@ -1,3 +1,108 @@
+###  Публикация: 1275580   (789754) от 12.01.2019
+
+Шрифты - Creative Market - Sladosti CYRYLLIC - 529733 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sladosti - это потрясающий рукописный кириллический шрифт. Теперь можно оформлять все дизайны используя русские буквы. Надеюсь вам понравится.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D5DFF4485D3E9840BF6F2922BE72866D244DC46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275578   (789751) от 12.01.2019
+
+Шрифты - Creative Market - Smile Pro+ Cyrillic -80% All Family - 365922 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smile pro - этот шрифт содержит различные стили, шрифт без засечек, especila для детских названий и кириллицу.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE32A2C480AEC27E670FEF61936384C5A616EC7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275603   (789719) от 12.01.2019
+
+3D модели - Daz 3D - Eva 8 Pro Bundle - 55723 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Eva 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5E1ACA087518034415DEF59AEA27D6D9734330
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275575   (789665) от 12.01.2019
+
+Фоны и наложения - Creative Market - Magic Book Light Photo Overlays - 3069587 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magic Book это небольшой пакет волшебных оверлеев, с помощью которых вы получите множество фантастических идей о том, как превратить ваши обычные изображения в настоящее чудо!Формат: PNGРазрешение файлов: 4000x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CEB982A6665B8C917AB6481DDF30ECFCB1FB8B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275484   (789660) от 12.01.2019
 
 NNM-Club Sound Cleaner Collection from andgelo12
@@ -574,118 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B83D0A80BE784A5723B42FF2D861E4FB415013BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511728   (788334) от 22.11.2021
-
-Векторный клипарт - New year 2022 year of the tiger red and gold flower in vector [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Новый год
-7 EPS +PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:175D08E930D4D5C8431B07268C3CD89ECAD30CBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511781   (788330) от 22.11.2021
-
-Векторный клипарт - Set of cute animals for the new year and for christmas in vector [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Новый год
-14 EPS +PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1151C628388FDC3697F07486C091B7B2AB2865A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511780   (788329) от 22.11.2021
-
-Векторный клипарт - Cute vector animals for the new year and christmas [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Новый год
-8 EPS +PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D1C2063977A2A39D0D1332D4AEBFCCB550F2E5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511731   (788318) от 22.11.2021
-
-Векторный клипарт - Cute cartoon tiger, christmas, new year card 2022 vector illustration [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Новый год
-22 EPS +PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B9CFFAF7D460394A7AE8477455249AB837754AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

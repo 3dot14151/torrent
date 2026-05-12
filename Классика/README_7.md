@@ -1,3 +1,61 @@
+###  Публикация: 992617   (900824) от 02.03.2016
+
+The Chamber Orchestra of Europe feat. conductor  Claudio Abbado - Gioacchino Rossini - Overtures (1991) [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Il barbiere di Siviglia:  Andante maestoso - Allegro vivace - 07:16
+02. Semiramide:  Allegro vivace - Andantino - Allegro - 11:56
+03. L'Italiana in Algeri:  Andante - Allegro - 7:49
+04. Guillaume Tell:  Andante - Allegro - Andantino - Allegro vivace - 11:01(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AEB85A4E845354577B954F65A7127310C3009AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992663   (900737) от 02.03.2016
+
+Anna Netrebko, Rolando Villazon, Thomas Hampson - Violetta. Arias And Duets From Verdi's Traviata (2005) [FLAC|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.   Brindisi (Toast) - Libiamo ne' lieti calici (3:06)
+02.   Un di felice, eterea (3:35)
+03.   Scena ed Aria - Finale - strano!  Ah, fors'e lui (4:29)
+04.   Follie! Follie! Delirio vano  e  questo! (1:00)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:19:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99BE35C7E3943570C1677B8D68F4437C2E34A66A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992227   (900649) от 02.03.2016
 
 Debussy & Ravel - Monique Haas (2007) 6CD Box Set [FLAC|Lossless|tracks + .cue] <Classical>
@@ -688,64 +746,6 @@ L'Orfeo Baroque Orchestra, dirigent Michi Gaigg - Christoph Willibald Gluck: Fiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:499243EFCC52B996D4F0376D289D361E2842611D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993228   (895216) от 05.03.2016
-
-Имре Кальман / Emmerich Kalman - Сильва (Княгиня чардаша) / Die Csardasfurstin (2005) [MP3|320 кб/с] <Operetta>
-
->>Классика
->>Вокал
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Увертюра
-02. Мелодрама
-03. Мчись во все края песнь моя (Сильва)
-04. Мелодрама(   Читать дальше...   )Жанр: OperettaПродолжительность: 01:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83FF4E4C0A0BFC91F9A03260F1567F14637CBD17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370024   (895034) от 28.03.2020
-
-Andre Rieu - Celebrates ABBA | Music Of The Night (2013) 2CD [FLAC|Lossless|tracks + .cue] <Classical, Romantic, Neo-Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андре Леон Мари Николя Рьё (нидерл. André Léon Marie Nicolas Rieu; род. 1 октября 1949, Маастрихт) - нидерландский дирижёр и скрипач, называемый в прессе Королём вальса вслед за Иоганном Штраусом-сыном. Сын дирижёра Андре Рьё-старшего.01. Chiquitita (4:39)
-02. Mamma Mia (2:44)
-03. Fernando (5:01)
-04. Money, Money, Money (3:01)(   Читать дальше...   )Жанр: Classical, Romantic, Neo-ClassicalПродолжительность: 01:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48AC760BB3FBD7AF348305B31B0331D9E9B0C061
 ```
 
 https://mybot314.ru/tekegram_catalog/

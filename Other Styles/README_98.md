@@ -1,3 +1,145 @@
+###  Публикация: 819506   (533682) от 07.09.2014
+
+V.A. - Romantic Piano - Evergreen (1999) [FLAC|Lossless]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ronnie Price Orchestra - The First Time Ever I Saw Your Face
+02. Eddie Heywood - A Dreamer's Holiday
+03. Floyd Cramer Orchestra - It Had To Be You
+04. Ronnie Price with Nick Ingman Orchestra - Somewhere My Love(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DD80F54D3BE6FE847F43E3E24B0E7E0658CAC14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926551   (533310) от 10.08.2015
+
+Igor Presnyakov (Игорь Пресняков) - Acoustic Rock Ballad Covers (2011) [FLAC|Lossless|WEB-DL]<Instrumental, Acoustic Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing Else Matters
+02. Brothers In Arms
+03. Californication
+04. Don't Cry(   Читать дальше...   )Жанр: Instrumental, Acoustic GuitarПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B10EB5B9831EF70DECC39492A06D8E1D2A800C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 366000   (532734) от 25.07.2011
+
+Терминатор - The Terminator (1984-2009) [MP3|320 kbps]<Score, Soundtracks>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Score, SoundtracksПродолжительность: 07:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8B1B34CB34EAB5C25BE155B78E9E89E250F1511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051554   (532694) от 11.09.2016
+
+VA - Now! - Country 11 (2016) [MP3|320 Kbps] <Country, Pop>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blake Shelton - Sangria (3:54)
+02. Sam Hunt - Break Up In A Small Town (3:52)
+03. Chris Stapleton - Tennessee Whiskey (5:03)
+04. Zac Brown Band - Beautiful Drug (3:12)(   Читать дальше...   )Жанр: Country, PopПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:706E7E51CCB8CE3CFF056DDA91FAA369FD30315F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051567   (532558) от 11.09.2016
+
+Kevin Kern - When I Remember (2016) [MP3|320 Kbps] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Should Waltz
+02. Once Upon a Time
+03. Say You Love Me
+04. Chance Encounter(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE61A1A1D4EB314D098D873E245C7EBE4F5CFA9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051132   (532546) от 11.09.2016
 
 Dario Marianelli & Regina Spektor - Kubo and the Two Strings / Кубо. Легенда о самурае (2016) [MP3|320 Kbps] <Score>
@@ -610,155 +752,6 @@ Marco Beltrami & Philip Glass - The Fantastic Four (Original Motion Picture Soun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84AF5B133D712339D04EF0EBACA5FFD319FEBFCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240295   (529754) от 10.08.2018
-
-Anastasia - Songs of the Soul (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slipping Away
-02. Spoken from Within
-03. Like Father Like Daughter
-04. Kokkino Garifalo (Classical Arrangement)(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75250D94AD252061CBB8CAAE2854F04D18F12E42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 368373   (529491) от 27.07.2011
-
-Omkara - Let Nothing Remain (2010) [MP3|~264 kbps]<Mantras, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guru Stotram
-02. Om Bhagavan Sri Ramana
-03. Pathless Path
-04. Everything is Shiva
-05. Om Mani Padme Hum
-06. Infinite Dance
-07. Shower of Grace
-08. Heart of FireЖанр: Mantras, New AgeПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C85BE61C6878FF8102EBB8F67C76C6382DFAC31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052282   (529249) от 13.09.2016
-
-Jim Brickman - Soothe, Vol. 1. Music To Quiet Your Mind and Soothe Your World (2015) [FLAC|Lossless|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly [00:05:41]
-02. Mist In The Moonlight [00:05:40]
-03. Seaside [00:04:25]
-04. Celestial Horizon [00:04:40](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D705898CCE388453F5F43C0AE9B6F5280E052BDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052315   (529208) от 13.09.2016
-
-Jim Brickman - Soothe, Vol. 2: Sleep (2016) [FLAC|Lossless|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Setting Sun [00:05:55]
-02. Tranquility [00:05:17]
-03. Exhale [00:04:38]
-04. Slumber Deep [00:05:19](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:53:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E207D2606C9D7A8FCDF9B75C41E2CD8A99D83E74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052361   (529132) от 13.09.2016
-
-Karunesh - Sun Within (2016) [MP3|320 Kbps] <New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aeon (6:44)
-02. Lyria (4:56)
-03. Moola Mantra (8:59)
-04. Desert Traveller (6:24)(   Читать дальше...   )Производство: Oreade MusicЖанр: New Age, WorldПродолжительность: 00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:629F8E8F7AD9E77F1D691623A6655109B4B5DDA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

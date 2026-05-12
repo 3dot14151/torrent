@@ -1,700 +1,23 @@
-###  Публикация: 1305376   (557134) от 30.05.2019
+###  Публикация: 1097496   (558192) от 27.07.2017
 
-Векторный клипарт - Vector Animal Collection #69 [AI]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_557134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Зверушки
-50 AI + PreviewФормат: AI
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305346   (557133) от 30.05.2019
-
-Векторный клипарт - Vector Animal Collection #59 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Зверушки
-50 AI + PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF5A312DE39DEDB640453319693F08D0A60C5102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305354   (557132) от 30.05.2019
-
-Векторный клипарт - Vector Animal Collection #66 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Зверушки
-50 AI + PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBD2CE332F095BBD4EAFE78B0C586D899063A986
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556809   (557131) от 11.06.2022
-
-Дарья Донцова | Татьяна Сергеева. Детектив на диете (Книга 15). Толстушка под прикрытием (2022) [MP3, Дина Бобылёва]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_557131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наконец-то у Татьяны Сергеевой появился реальный шанс похудеть! Она стала финалисткой конкурса «Убей лишний вес», устраиваемого журналом «Дом солнца», и удостоилась чести опробовать на себе супердиету доктора Орнели. Он вручил Танюше банки с чудо-порошком, и теперь ей предстоит лакомиться им на завтрак, обед и ужин.
-Вдобавок диетолог якобы вживил Тане чип, с помощью (   Читать дальше...   )Жанр: Иронические детективы, Современные детективыПродолжительность: 09:38:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556881   (557130) от 11.06.2022
-
-Всей работы - на одну ночь / All in a Night's Work (1961) BDRip [H.264] [MVO]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_557130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дядя Тони Райдера, богатый издатель журналов, только что умер. Молодой плейбой Тони наследует газету, но совет директоров считает, что он не подходит для этой задачи. А детектив отеля сообщает Тони о девушке, которая была замечена убегающей из номера отеля Палм-Бич его дяди, одетая только в турецкое полотенце и серьгу, в ночь его смерти. Тони обнаруживает, что молодая (   Читать дальше...   )Производство: США, Wallis-HazenЖанр: комедияРежиссер: Джозеф ЭнтониАктеры: Дин Мартин, Ширли МакЛейн, Клифф Робертсон, Чарльз Рагглз, Норма Крэйн, Джек Уэстон, Джон Хадсон, Джером Кауэн, Гэйл Гордон, Ральф ДумкеПеревод: профессиональный многоголосый (Paramount Channel)Субтитры: английскиеПродолжительность: 01:34:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556682   (557129) от 11.06.2022
-
-Abrade The Earth - The Essence of Everything (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557129.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Connections
-2. The Cycle
-3. Ebb & Flow
-4. Restitution(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DA8298B261CDAA17DCD25390200D3A6F82CC6CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556767   (557128) от 11.06.2022
-
-Sun of the Endless Night - Life... a Tragedy Tainted by Malevolence (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Open Skies closed Minds 01:52
-02.Who let the Night in? 02:36
-03.Where there is God there is Nothing 03:59
-04.Once upon a Death 03:32(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E523E28B6BB3EA5E188A9D6577342716AAF8B08B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556698   (557127) от 11.06.2022
-
-Moodring - Stargazer (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557127.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. How To Leave Painlessly
-2. Disintegrate
-3. Constrict
-4. Red Light Gossip(   Читать дальше...   )Жанр: Post-Hardcore, Alternative Metal, MetalcoreПродолжительность: 00:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25642705554B1A9415A9A01DFEBAF9E63C4738EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556771   (557126) от 11.06.2022
-
-Irdorath - Gotterdammerung MMXXII (2022) [FLAC|Lossless|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Der flammen Preis (00:03:00)
-02 - Windgeist (00:03:36)
-03 - Form des Todes (00:06:01)
-04 - Bald ersaeuft die Menschenbrut (00:03:33)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44EB5CC23B1933A54347DC460D8ED49499B75C1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556693   (557125) от 11.06.2022
-
-Kardashev - Liminal Rite (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Deathcore, Atmospheric>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557125.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Approaching of Atonement
-2. Silvered Shadows
-3. Apparitions in Candlelight
-4. Dissever(   Читать дальше...   )Жанр: Death Metal, Post-Metal, Progressive Metal, Deathcore, AtmosphericПродолжительность: 00:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53B3C830AAE81D8FA2BFBA6471EED26788FC32F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556765   (557124) от 11.06.2022
-
-Amethyst - Time Of Slaughters (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Pandemonium (instrumental)01:38
-02.Subversive Mind 06:21
-03.Time of Slaughters 05:17
-04.Entrapped 05:58(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B246F699A27FAD09593E364F27DB53C4625EB901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556843   (557123) от 11.06.2022
-
-AudioLab v1.2.95 Mod by Alex.Strannik [Ru/Multi]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_557123.jpg" />
-</div>
-
-
-###  Подробнее
-
-AudioLab является наиболее передовым, современным, быстрым, профессиональным аудио редактором, который имеет все функции, которые вы хотели бы когда-либо.Тип издания: Пиратка (В модификации получен PRO, удалена аналитика и реклама)Релиз состоялся: 27.04.2022Разработчик: HitroLabПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556680   (557122) от 11.06.2022
-
-NateWantsToBattle - The Critical Hits (2022) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557122.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hero of Our Time
-2. The Evil King
-3. Drowning
-4. Mangled(   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, Pop RockПродолжительность: 01:21:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D5F6E084D71ABCFAED2165A11977F67E3D5EC7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556801   (557121) от 11.06.2022
-
-Ларс Браунворт | Морские волки. История викингов (2022) [MP3, Владимир Овуор]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557121.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 793 г. н. э. норвежские воины напали на английский остров Линдисфарн и полностью его опустошили. Волна за волной скандинавские «морские волки» следовали за добычей, землей или славной смертью в битве. Большая часть Британских островов пала под их мечами, а континентальные столицы Париж и Аахен были по очереди разграблены. Повернув на восток, они плыли по неизведанным (   Читать дальше...   )Жанр: Научно-популярная литература, Популярно об историиПродолжительность: 09:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66F8E555CFC70ADA7895C28AB33B201DDD0DA47E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556701   (557120) от 11.06.2022
-
-Secrets - The Collapse (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_557120.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Collapse
-2. Get Outta My Head
-3. Falling Out
-4. Parasite(   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556642   (557119) от 11.06.2022
-
-The Silverblack - Judgment (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557119.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Judgment (feat. Burton C. Bell from Fear Factory)
-2. Punishment
-3. A Lifetime Ago
-4. Chasing Ghosts(   Читать дальше...   )Жанр: Industrial Metal, Modern MetalПродолжительность: 00:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21FA57BD7913065C00BFF1FDD1EC79F1418F52DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556478   (557118) от 11.06.2022
-
-Bee Gees - Idea (1968) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let There Be Love (3:35)
-02. Kitty Can (2:42)
-03. In The Summer Of His Years (3:13)
-04. Indian Gin And Whisky Dry (2:05)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:752C312B6E44B77F1596D3A191CA8D3DAC095307
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556878   (557117) от 11.06.2022
-
-To/Die/For - Cult (2015) [FLAC|Lossless|image + .cue] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557117.jpg" />
-</div>
-
-
-###  Подробнее
-
-To/Die/For — финская готик-метал-группа. Основана в 1996 году под названием Mary-Ann, с 2000 года стала называться To/Die/For (умереть за...)01. In Black
-02. Screaming Birds
-03. Unknown III
-04. Mere Dream(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8D6D3A7E2493CC64A997DF34C503EC765C1709B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556692   (557116) от 11.06.2022
-
-Future Palace - Run (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557116.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Paradise
-2. Dead Inside
-3. Flames
-4. Locked(   Читать дальше...   )Жанр: Post-Hardcore, Alternative MetalПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C745A3A03124C8F7EBAFDF862A01CA1A4C7EBB01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556691   (557115) от 11.06.2022
-
-FALSET - Monarch (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore, Electronic>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_557115.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Monarch
-2. Lullabies
-3. Medulla Oblongata
-4. Eyes of a Snake(   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, ElectronicПродолжительность: 00:34:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556689   (557114) от 11.06.2022
-
-Downset - Maintain (2022) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Hardcore, Rap Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557114.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Maintain
-2. Blackest Of Days
-3. New Respect
-4. Won't Forget(   Читать дальше...   )Жанр: Rapcore, Hardcore, Rap MetalПродолжительность: 00:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:537DFD509948406FF8E371AB2AE8E59FE2484A16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556790   (557113) от 11.06.2022
-
-Deep Sun - Dreamland - Behind The Shades (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Prologue (00:01:35)
-02 - Behind The Shades (00:07:14)
-03 - Dreammaster (00:04:09)
-04 - Living The Dream (00:03:44)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:636F667715888EF42EDA31F8C0076325A3E3729B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556817   (557112) от 11.06.2022
-
-Журнал | Popular Woodworking №265 (2022) [PDF][En]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_557112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал, посвященный столярному делу. Проекты, идеи, обзоры материалов и инструментов. Многочисленные идеи и проекты от создателей одного из популярнейших изданий для любителей столярного дела. Журнал является одним из основных ресурсом для энтузиастов работы с деревом, от среднего уровня мастерства до профессионалов в своем делеЖанр: Столярное делоФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305343   (557111) от 30.05.2019
-
-Векторный клипарт - Vector Amphibians #05 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Земноводные
-50 AI + PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27A27C800D9B4788E3C72525EC21FC8DA183619
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305323   (557110) от 30.05.2019
-
-EdgeView 2 v2.788 [En]
+Rumpus PRO 8.1.8 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558192.jpg" />
 </div>
 
 
 ###  Подробнее
 
-EdgeView 2 - это новейший просмотрщик изображений; вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения; вы также можете напрямую подключиться к FTP и открывать файлы; EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.05.2019Разработчик: DONGJIN HANПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Корейский и Японский
+Rumpus - простой в использовании, высокопроизводительный FTP, WebDAV сервер для Mac OS X.
+Встроенные, удобные в администрировании пользовательские учетные записи, интегрированная передача файлов в сети Интернет, уведомления о загрузке файлов, обширные настройки безопасности, потрясающе высокая производительность, и многое другое... Также включает монитор активности (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 июля 2017Разработчик: MaxumПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B8BC0D7C566C2A5F310F3778CBFB46FB8CD3721
+magnet:?xt=urn:btih:AC42F64D14C8FE584A3D658168437472A174FAD8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -702,25 +25,674 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305234   (557109) от 30.05.2019
+###  Публикация: 1153702   (558191) от 27.07.2017
 
-А. М. Минасян | Диалектика и софистика [опыт философской дискуссии] (1985) [DJVU, PDF]
+VA - 50 Buddha Chill Lounge Selection (Compiled by Shadesgrey DJ) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558191.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В монографии доктора философских наук А. М. Минасяна с принципиальных позиций марксизма-ленинизма разоблачаются современные многочисленные софистические ухищрения буржуазной, ревизионистской идеологии, софистические фальсификации принципов материалистической диалектики. Последовательно вскрывается научная несостоятельность софистики во всех сферах современной идеологической (   Читать дальше...   )Жанр: История, науковедение, философияФормат: DJVU, PDF
+01.  Gotan Club - Seductive Lounge  3:31
+02.  Chillout Relaxation Dream Club - Betty  3:00
+03.  Chill Lounge Music Bar La Luna a Ibiza - Vintage Lounge  3:22
+04.  Hotel Portofino Lounge Cafe - Body Shape (Spa Lounge)  3:28(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:16:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7AC7AAA36727A2A0091CD24FE587D9C74BE044CE
+magnet:?xt=urn:btih:E08AF2E03010068B7D7C8D1C3A27D069F7215C65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153590   (558190) от 27.07.2017
+
+Kenny G - Breathless (1992) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Joy Of Life (4:19)
+02. Forever In Love (4:58)
+03. In The Rain (4:59)
+04. Sentimental (6:34)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F47A2AC0BFF59A9558428257F935AD3BE9177F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153709   (558189) от 27.07.2017
+
+Million Dollar Secret - Under The Surface (1989) LP [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558189.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Under The Surface
+A2. Get Down Be Cool
+A3. Cherry
+A4. Red Is The Colour Of My Love(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, FunkПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1710051B6E6B56AE5EA0E5620341ED4E52E652A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153652   (558188) от 27.07.2017
+
+Macho Gang - The Best Of (2002) Strictly Limited Edition [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Start The Dance (Instrumental) 7:44
+02. I Naughty Boy (House Mix) 5:40
+03. Sahara (Extended Version) 6:38
+04. My Lion (Extended Version) 6:26(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F1EC48D29E8886E3BFD72CEF7F6D174447B1476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153613   (558187) от 27.07.2017
+
+Журнал | Burda [Россия] №8 [без выкроек] (август 2017) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современный журнал по шитью представляет европейскую моду высокого класса. Издание с мировым именем, хорошо известное всем женщинам, которые хотят быть образцом безупречного вкуса для окружающих. Секрет популярности журнала Burda в том, что благодаря ему каждая женщина может осуществить свою мечту одеваться модно и красиво. Десятки оригинальных, изысканных и современных (   Читать дальше...   )Жанр: Мода, рукоделиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD977FC27B227A356CE08EFA8DCE453A768625E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153555   (558186) от 27.07.2017
+
+Журнал | Автомир [Россия] №31 (июль 2017) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558186.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Автомир» — еженедельный журнал, полностью посвященный автомобилям. Основные темы издания: автоновости, тестдрайвы, концепт-кары, российские и международные выставки и автогонки, московские автосалоны и дилеры, советы экспертов по автоправу и многое другое.
+Проект ставит перед собой цель донести до читателя максимум полезной информации об автомобилях и обо всем, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0972B94A86A21F50A768B7335CB5E47D8749A836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305270   (558185) от 29.05.2019
+
+Обои - Desktop Wallpapers Full HD. Part (442) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB6C3018FF00A224688FA09F62634161D547599F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305237   (558184) от 29.05.2019
+
+Журнал | Хозяин. Строительство. Ремонт. Дизайн. Интерьер №4 (83) (2019) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рекламный журнал о новинках в стройиндустрии, в дизайне и интерьере вашего дома (квартиры).Жанр: строительство, ремонт, дизайн, интерьерФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B17C6264E31F653DB4D7CA6BBC81FBD818AF05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256591   (558183) от 29.05.2019
+
+Мелоди / Melody (1971) BDRip [1080p] ATV (MVO)
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детство — ужасная пора. Запрещено всё. Нельзя опаздывать в школу, нельзя поздно приходить домой, нельзя хамить учителям, нельзя знакомиться с дядьками на кладбище, нельзя собирать и испытывать бомбы, нельзя невпопад приглашать гостей, нельзя поджигать папину газету, нельзя рисовать голых тёток, нельзя сбегать с уроков на пляж, и — о ужас! — нельзя жениться. Даже (   Читать дальше...   )Производство: Великобритания / Goodtimes Enterprises, Hemdale Productions, Sagittarius ProductionsЖанр: Драма, Мелодрама, КомедияРежиссер: Уорис ХуссейнАктеры: Марк Лестер, Трэйси Хайд, Джек Вайлд, Колин Барри, Билли Фрэнкс, Эшли Найт, Крэйг Марриотт, Уильям Вандерпюе, Питер Уолтон, Камилль ДэвисПеревод: Профессиональный многоголосыйСубтитры: Русские (вшитые, отключаемые), Английские (вшитые, отключаемые)Продолжительность: 01:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C8654FCF640719A169BAE7F7CBC19368A941248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305218   (558182) от 29.05.2019
+
+BluffTitler Ultimate 14.2.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558182.jpg" />
+</div>
+
+
+###  Подробнее
+
+BluffTitler - программа для создания красивых текстовых 3D эффектов и простейшей мультипликации, применяемых при монтаже видео. Результат можно просматривать в реальном времени с последующим экспортом в картинку или видео-формат. Вся создаваемая анимация состоит из слоев, которые могут модифицироваться независимо.BluffTitler поддерживает большое количество различных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C802369FE628F646CA391351D0104706E034FBF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305150   (558181) от 29.05.2019
+
+Люция Сулейманова | Можно всё. Возраст вдохновения (2019) [PDF]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_558181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это уникальный учебник, который поможет читателям переосмыслить свое отношение к старению и научиться воспринимать его позитивно.
+В этой книге кандидат психологических наук Люция Сулейманова дает ответы на вопросы, которые волнуют всех женщин, переступивших определенный возрастной рубеж. Автор подробно рассматривает все аспекты возрастных проблем на примере двух (   Читать дальше...   )Жанр: Психология, Геронтология, ЗдоровьеФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304946   (558180) от 29.05.2019
+
+Мередит Смолл | При чем здесь любовь? Эволюция взаимоотношений полов (2015) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – о брачном поведении человека как биологического вида, или сексе. Нас всех привлекает этот предмет, и тем не менее у нас нет четкого представления о его происхождении. Каков биологический смысл того, что мы занимаемся сексом, хотя мы реже всего делаем это для продолжения рода? Почему мы вступаем в брак, хотя брак меньше всего гарантирует секс? Почему мы (   Читать дальше...   )Жанр: Популярная психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEB471075C59628B249C369D61EFD8A1EEF5C49A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305080   (558179) от 29.05.2019
+
+Animal Planet: Рыба или смерть. Австралия / Fish or Die (2019) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четверо заядлых рыболовов намерены стать первыми, кто сумеет порыбачить в самых отдалённых водах планеты. Друзей Криса Оуэнса, Тэда Робисона, Брайана Джилла и Джея Джонсона объединяет страсть к рыбалке и путешествиям, равно как и устойчивость к дискомфорту.
+Уединённые, таинственные, неисследованные реки всего мира ждут этих рыболовов-авантюристов.Производство: США, Warm Springs Productions, Animal PlanetЖанр: Документальный, рыбалкаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63A22709046C16B0473D522FA4B23D1E3FB21DFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305206   (558178) от 29.05.2019
+
+Krita 4.2.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Krita является графическим приложением, которое подстраивается под ваши требования - дает вам полнофункциональный рабочий стол на компьютере, и обтекаемый сенсорный дружественный интерфейс на планшете или большом экране! Все пользователи будут наслаждаться спектром реалистичных и экспериментальных кисточек. Профессиональные художники будут пользоваться быстрыми, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D05F4C7E6B8A5774F678FCDE090BDCE3E84B06E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305253   (558177) от 29.05.2019
+
+VA - Acoustic 70s and 80s Covers (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - How Will I Know
+02. The Shaken Bakers - Dancing in the Dark
+03. Shannon & Keast - Girls Just Want to Have Fun
+04. Meg Birch - True Colors(   Читать дальше...   )Жанр: Pop, AcousticПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149595BFD1059D7D6A95183735446E1B86BB53C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305227   (558176) от 29.05.2019
+
+Родители лёгкого поведения / Drunk Parents (2019) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семейная пара Фрэнк и Нэнси пытаются скрыть от друзей и дочери свой полный финансовый крах. Для этого они идут на всё, даже сдают в аренду чужой особняк. Но получится ли у двух горе-авантюристов провернуть свои невероятные махинации? Ведь каждый их шаг — отличный повод откупорить новую бутылку…Производство: США, Fortitude International, Creative Wealth Media Finance, Bron StudiosЖанр: КомедияРежиссер: Фред ВульфАктеры: Сальма Хайек, Алек Болдуин, Джо Манганьелло, Джим Гэффиган, Трит Уильямс, Мишель Вентимилла, Наталья Сиглиути, Колин Куинн, Эдди Швайгхардт, Джереми ШайндерПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED307F6B08E5BA43325C45DE79B0E12A651902C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305181   (558175) от 29.05.2019
+
+Witches' Legacy 5: Slumbering Darkness / Наследие ведьм 5: Притаившись во мраке (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошел ровно год со дня свадьбы Линн и Эдварда, и в день своей первой годовщины молодые, пригласив с собой Керри и Импа, отправляются на праздничный карнавал, устроенный заезжим кукольником-гастролером. Кто мог ожидать, что представление в кукольном театре предназначено только для одной персоны и только с одной единственной целью? Что кукольник вовсе не тот, за кого (   Читать дальше...   )Тип издания: UnofficialРазработчик: EleFun GamesЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC2A7061DC1AA487714DE9F638FD4861FF1BA6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305102   (558174) от 29.05.2019
+
+Элисон Джордж, Стивен Бэттерсби (ред.) | Происхождение Вселенной (2019) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откуда мы знаем, как зародилась и развивалась Вселенная? Как появилась теория, определившая современные представления о пространстве и времени? Как понять концепцию относительности? Можно ли найти в черных дырах другие вселенные? Почему темная энергия «толкается»?
+В этой книге собраны лучшие статьи ведущих авторов журнала New Scientist. Здесь вы найдете описание (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2482C8F73E3346D214C779A2CA70025A0A3CEDEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305128   (558173) от 29.05.2019
+
+VA - Фитнес 50 треков Vol.2 (2019) [MP3|320 Kbps] <Club, House, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558173.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Nadia Ali - Rapture (Avicii New Generation Remix) (7:00)
+2.David Guetta - Play Hard (feat. Ne-Yo & Akon) (6:52)
+3.Disco Funk & Soul (No Hopes Remix) - Everything is out of Place (6:48)
+4.Limp Bizkit - My Way (Pistols Dancehall Dub) (6:24)(   Читать дальше...   )Жанр: Club, House, OtherПродолжительность: 03:24:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78A87DEA6CC7BEB0FC1D5AC181C14086081B1259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305215   (558172) от 29.05.2019
+
+u-he - Hive 2.0.0.8676 VSTi, VSTi3, AAX (x86/x64) RePack by VR [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный разработчик синтезаторов, компания u-he представила вторую версию синтезатора u-he Hive 2. Новая версия имеет полную обратную совместимость с первым релизом синтезатора, что обеспечит легкий переход на Hive 2 без какого-либо ущерба для существующих проектов.
+
+Hive 2 - легкий синтезатор, тяжеловесный звук. Гладкий, обтекаемый и супер быстрый.
+Hive был построен (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA3F6A3F141B0B4073F94012B8CEC028AF5DD5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305199   (558171) от 29.05.2019
+
+IObit Smart Defrag Pro 6.2.5.129 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart Defrag - дефрагментатор, позволяющий довести производительность жёсткого диска до максимально возможной. Созданная на основе новейшего дефрагментирующего механизма фирмы IObit и технологии «дефрагментация диска при загрузке системы», программа Smart Defrag занимает ведущие позиции среди средств дефрагментации. Она не только дефрагментирует файлы, но и грамотно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06BFDEB9A9C03F18BBF99EF7AC023AD9C4963340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305230   (558170) от 29.05.2019
+
+Родители лёгкого поведения / Drunk Parents (2019) BDRip [480p] iPod
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семейная пара Фрэнк и Нэнси пытаются скрыть от друзей и дочери свой полный финансовый крах. Для этого они идут на всё, даже сдают в аренду чужой особняк. Но получится ли у двух горе-авантюристов провернуть свои невероятные махинации? Ведь каждый их шаг — отличный повод откупорить новую бутылку…Производство: США, Fortitude International, Creative Wealth Media Finance, Bron StudiosЖанр: КомедияРежиссер: Фред ВульфАктеры: Сальма Хайек, Алек Болдуин, Джо Манганьелло, Джим Гэффиган, Трит Уильямс, Мишель Вентимилла, Наталья Сиглиути, Колин Куинн, Эдди Швайгхардт, Джереми ШайндерПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B78091E1E21AE75442917DE75BB24123E879BAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305031   (558169) от 29.05.2019
+
+Макс Фрай (сост.) | Nада [сборник] (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558169.jpg" />
+</div>
+
+
+###  Подробнее
+
+В переводе с испанского «Nada» означает «ничто», «ничего»: в переводе с персонального внутреннего языка составителя этого сборника «Нада» – часть заклинания «мненада», такого могущественного, что лучше не связываться с тем, кто его произнес. Если уж ему нада, пусть будет так.Жанр: фантастика, фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:664C2DD3977A0FAB5CDC63171FA7EA77EB3BBA44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305157   (558168) от 29.05.2019
+
+Джозеф Кэмпбелл | Роман о Граале. Магия и тайна мифа о короле Артуре (2019) [FB2]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джозеф Кэмпбелл глубоко занимался изучением мифов о поисках Грааля и легенд о короле Артуре. Назвав эти истории первой в мире «светской мифологией», он нашел в них метафоры стадий развития личности и психологии отношений, которыми мы пользуемся сегодня. Эти мифы впервые описывают новую форму человеческой любви, где связь между мужчиной и женщиной наполняют их духовно (   Читать дальше...   )Жанр: Психология и эзотерика, Популярно об истории, МифологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6124CF64B0048F0A1FB5C42459E8AA998969614B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305118   (558167) от 29.05.2019
+
+Виктория Суслова | Антикандидная программа + Антипаразитарная программа [2 книги] (2019) [PDF]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_558167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кандида — это грибок, разновидность дрожжей. Существуют сотни видов дрожжевых грибков, но наиболее распространенной формой является Candida Albicans. Проблема возникает, когда количество кандиды перевешивает численность полезных бактерий. Это может привести к проблемам с пищеварением, развитию грибковых инфекций, перепадам настроения, спутанности сознания и другим (   Читать дальше...   )Жанр: МедицинаФормат: PDF
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

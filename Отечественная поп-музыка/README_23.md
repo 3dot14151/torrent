@@ -1,3 +1,32 @@
+###  Публикация: 1188596   (274383) от 02.12.2017
+
+Plazma - The Best (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take My Love (3:40)
+02. Lonely (4:53)
+03. Save (3:39)
+04. Black Would Be White (4:34)(   Читать дальше...   )Жанр: PopПродолжительность: 01:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA4BCE056BDA0864C6C0585B91E5C1777AF895E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 137689   (271737) от 30.11.2018
 
 Потап и Настя Каменских - Плагиат (2009) [MP3|128-320]<R'n'B, PoP>
@@ -737,35 +766,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:186BF145A007D68CFD14362127971BD9A2F35085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359609   (242813) от 15.02.2020
-
-Акула - Кислотный DJ (2001) [MP3|320 Kbps] <Pop, Europop, Euro House>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кислотный DJ (3:56)
-02. Я Убегаю (3:43)
-03. Не Молчи (4:12)
-04. С Тобою Рядом (4:24)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8875206BBC3036EF74BB23F086D26AD4A04DD3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1049675   (543583) от 05.09.2016
+
+Проекты - VideoHive - Infinity Logo Revealer - 1566896 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для демонстрации Вашего логотипа. Создайте волшебную атмосферу для ваших зрителей!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF7C7A087AC10A30B10A83FCD874FEBE2DA4315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049530   (543582) от 05.09.2016
+
+Проекты - Motion Array - Minimal Lower Thirds - 15563 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет надписей и заголовков для Вашего творчества.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F9466B605F1CDC0AE75F492AA8223795151823D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049676   (543512) от 05.09.2016
 
 Проекты - VideoHive - Modern Slideshow - 10286421 [AEP]
@@ -617,59 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2FBE30134FCF53779392888539052BD5533FEEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924963   (542548) от 05.08.2015
-
-Проекты - VideoHive - Gold stage [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваш логотип в золоте успеха!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA738930D92D5F301C7A80FFD1237C55ABBBD854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239168   (541996) от 03.08.2018
-
-Проекты - Проект ProShow Producer - Slideshow Photo 2 [PSH]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект от Proshow Template. Слайдшоу на 100 фото.
-Проект может быть использован в авторском решении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов.Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ABCAE30373C3FF3F27B4B6B91385BBE7972150B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1362565   (947840) от 24.02.2020
+
+BTS - Map of the Soul: 7 (2020) [FLAC|Lossless|tracks + .cue] <K-pop, Pop Rap>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro : Persona (02:51)
+02. Boy With Luv (feat. Halsey) (03:49)
+03. Make It Right (03:46)
+04. Jamais Vu (03:47)(   Читать дальше...   )Жанр: K-pop, Pop RapПродолжительность: 01:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15DA5F5356EEED53E672C4E439C74B2BE2529C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983729   (939712) от 08.02.2016
 
 4minute - Дискография (2010-2015) [FLAC|Lossless|tracks + .cue] <KPop, JPop, Electropop, Dance, R&B, Hip-Pop>
@@ -700,36 +729,6 @@ ArsMagnA: Ariabl'eyeS | -LostFairy- | Seraph - 22 альбома (2011-2016) [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74D0F926573577727DE0BE6B58D939C10C402680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874873   (860913) от 04.03.2015
-
-Yoshio Kimura - Romantic Tunes Collection (2012) 2CD [FLAC|Lossless]<Guitar, Instrumental>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860913.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - 00:58:37
-CD2 - 00:54:28Треклист CD1:
-01. Anata Dake O
-02. Miserarete
-03. Fuyu No Riviera(   Читать дальше...   )Жанр: Guitar, Instrumental |Продолжительность: 01:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C8AA4621C7FA1BB7199DC249195EA90F77377BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

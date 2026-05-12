@@ -1,3 +1,56 @@
+###  Публикация: 1060825   (452459) от 08.10.2016
+
+Проекты - VideoHive - Pop Up Book Logo - 237097 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания причудливой демонстрации логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC80F6073820207E04FD8EDB0872BB9D4F67634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060954   (452366) от 08.10.2016
+
+Проекты - VideoHive - Paranormal - 3843069 [AEP]
+
+>>Проекты
+>>Трейлеры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания трейлеров в стиле "sci-fi and crime tv series".
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E0166FC49BBA6A4B4A76FC0DF3CBD076654013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060983   (452359) от 08.10.2016
 
 Проекты - VideoHive - Horror Titles - 2659679 [AEP]
@@ -623,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0445F12F6420149EBDD4D91C9A14A4DE710EE474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943228   (449261) от 03.10.2015
-
-Проекты - VideoHive - Wall Pics [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBF6ECFC8F76787A2ECCFB05ED8921248F1FA483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943263   (449126) от 03.10.2015
-
-Проекты - VideoHive - New Elegant Thirds [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания элегантных текстовых подложек. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A922720E0432BA24AE599C312302ECD529B5939
 ```
 
 https://mybot314.ru/tekegram_catalog/

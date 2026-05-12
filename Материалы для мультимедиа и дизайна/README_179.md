@@ -1,3 +1,110 @@
+###  Публикация: 1233402   (592909) от 30.06.2018
+
+Экшены - GraphicRiver - Art Sketch Photoshop Action - 21363350 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Art Sketch - творческий многофункциональный экшен фотошоп в считанные минуты превратит ваши изображения в профессиональные художественные работы. Карандашный рисунок, лёгкие мазки акварельных красок  – все эти замечательные вещи играют важную роль в создании красочной иллюстрации.
+После того, как действие закончит работу, вы получите хорошо организованный и структурированный (   Читать дальше...   )Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3241ED7570104F6C574894AE55BE64DFFCAB05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300764   (592739) от 07.05.2019
+
+Векторный клипарт - GoMedia Arsenal 1-17 [AI, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Сборник вектора от Go Media's Arsenal
+150+ AI, EPS +PreviewФормат: AI, EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C81B470AC25648A1B0D7488EF7F0E3A38B8B8398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300771   (592700) от 07.05.2019
+
+Векторный клипарт - MercadoLibre S.R.L. - Aridi Vector Clipart Collection [CDR, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать, в этом сборнике вам будет предложена большая коллекция векторов, знаменитого Ариди, 37 томов, заполненных векторами всех видов, каллиграфии, рамки, трайбл, разделители, абстракция, текстуры и многое другое!Формат: CDR, EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59CE3A59A1DD135C84B89D240D721C0F44461C7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550232   (592415) от 10.05.2022
+
+LUTs - Eldamar Studio - 2000 Filmmaking LUTs and Presets Bundle [LRTEMPLATE, XMP, LOOK, CUBE, 3DL, ICC]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592415.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Eldamar Studio -  2000 Filmmaking LUTs and Presets Bundle» - это коллекция авторских фирменных лутов для Adobe Lightroom, Photoshop, Premiere Pro, After Effects и Davinci Resolve, состоящая из более 2000 Luts в 40 пакетах - все они накапливались годами. Это те инструменты, которые используются в профессиональной карьере фотографа, видеооператора, редактора и дизайнера (   Читать дальше...   )Формат: LRTEMPLATE, XMP, LOOK, CUBE, 3DL, ICC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF67471D801B034BBA76DA09DB2C8C21B6842905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915344   (592233) от 05.07.2015
 
 Шаблоны - Морские рамки [PSD]
@@ -571,110 +678,6 @@ Epic Studio Pop Culture 6 - экшен для Вашего творчества.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB8E3C1C17EB5AA09EA53E64F68B3FEBA6B4BB22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040560   (586479) от 05.08.2016
-
-Экшены - GraphicRiver - Epic Studio Pop Culture 2 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Epic Studio Pop Culture 2 - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B001E3CC5F103CA8C9A50A314171D21F869DBB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040484   (586477) от 05.08.2016
-
-Экшены - GraphicRiver - Epic Studio Pop Culture 4 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Epic Studio Pop Culture 4 - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1FFEA2051F89A384BCD75CE4566BEE504F1378D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040563   (586475) от 05.08.2016
-
-Экшены - GraphicRiver - Epic Studio Transparent Sketching [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Epic Studio Transparent Sketching - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC10266F6D26967AEE77ED96B633088D705B1180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040482   (586449) от 05.08.2016
-
-Экшены - GraphicRiver - Epic Studio Pop Culture [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Epic Studio Pop Culture - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D63097EF330B2E6FAB9A72C85C8B67BFB15DD4D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

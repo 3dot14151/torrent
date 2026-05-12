@@ -1,3 +1,32 @@
+###  Публикация: 1157541   (525158) от 12.08.2017
+
+VA - Ambient Area: Selected Downtempo Works (2017) [MP3|320 Kbps] <Downtempo, Ambient, Chillout>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525158.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Cantoma - Early Till Late  4:46
+002.  Chillelektro - Koos  6:06
+003.  Spinne - Daemmerung  4:59
+004.  Tequila Sunset - No One Cant Stand By You (feat. Dong)  3:57(   Читать дальше...   )Жанр: Downtempo, Ambient, ChilloutПродолжительность: 07:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3E9673D936EF0034C6598AE2501CE0D33A0CE53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 534480   (519849) от 13.08.2012
 
 VA-Танцуют все! - Популярные танцы народов мира (1996) [MP3|320 кб/с]<Instrumental>
@@ -746,50 +775,6 @@ VA - Хиты планеты. Испанская гитара (2012) [MP3|320 к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B9AE9B629B80CE5AB147AAEE5E95DE8AC07C9B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549108   (465171) от 19.09.2012
-
-VA - Classical in Lounge 2 Альбома (2012) [MP3|320 кб/с]<Lounge, Chillout>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465171.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cristiano Heredia - Adagio From Piano Sonata No 8 - Patetica (3:46)
- 2. Cristiano Heredia - Habanera - From Carmen (3:32)
- 3. Stefano Mastronardi - Notturno - Nocturne Op 9 No 2 (2:45)
- 4. Luca Brunetti - Gymnopedie No 1 (3:22)
- 5. Cristiano Heredia - Bolero (5:15)
- 6. Stefano Matronardi - Aria Sulla Quarta Corda - BWV 1068 Suite (Overture) No 3 (3:07)
- 7. Stefano Mastronardi - Adagio In Sol Minore (2:22)
- 8. Luca Brunetti - Pavane Op 50 (3:02)
- 9. Cristiano Heredia - Intermezzo - Cavalleria rusticana (3:51)
- 10. Eric Buffat/Fabrizio Martini - The Nutcracker suite 2 - Swan Lake (5:24)(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 01:06:36
-
-1. Cristiano Heredia - Elvira madigan - concert no. 21, k467 : Andante (4:17)
- 2. Stefano Mastronardi - Clair de lune (4:34)
- 3. Cristiano Heredia - Dreams of Love - Liebestraume No. 3 - Sogno D'amore (4:38)
- 4. Cristiano Heredia - Nessun dorma - Turandot (3:26)
- 5. Stefano Mastronardi - In the Hall of the Mountain King (2:55)
- 6. Cristiano Heredia - Barcarolle - the Tales of Hoffmann - Les Contes D'hoffmann (5:52)
- 7. Marco Marrone - Cello Suite No.2 - Prelude (4:10)
- 8. Stefano Mastronardi - Also Sprach Zarathustra (1:40)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9552C3A7DFC85B4E0085A0FF62A0A919588A052
 ```
 
 https://mybot314.ru/tekegram_catalog/

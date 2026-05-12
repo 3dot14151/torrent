@@ -1,3 +1,153 @@
+###  Публикация: 1167484   (415032) от 21.09.2017
+
+Trevor Jones - Around the World in 80 Days (2004) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Everybody All Over the World (Join the Celebration)
+02 - River of Dreams
+03 - It's a Small World
+04 - Around the World Overture(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:486716AA2464556FC41A5AA670A1BB7658305F0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167552   (414881) от 21.09.2017
+
+LeAnn Rimes - You Light Up My Life (1997) [FLAC|Lossless|tracks] <Country, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - You Light Up My Life (3:38)
+02 - The Rose (3:34)
+03 - Bridge Over Troubled Waters (4:40)
+04 - I Believe (2:22)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A17CAB852F5A63994D7253D627939CB5ECA9FF61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167717   (414874) от 21.09.2017
+
+The Romantic Strings Orchestra - Ebb Tide: Romantic Piano & Orchestra (1996) Compilation [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ebb Tide (Ronnie Aldrich) (2:54)
+02. Deep Purple (Jim Tyler) (2:48)
+03. Do, Do, Do (Peter Parker) (2:47)
+04. Almost Like Being In Love (Ronnie Aldrich) (2:44)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58B193407C74EDEF73485D8E6B02804D11201A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 558794   (414738) от 10.10.2012
+
+Prabodhi - 2 albums (1989, 1991) [MP3|320 кб/с]<New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414738.jpg" />
+</div>
+
+
+###  Подробнее
+
+(5:38) 1. A Dream Comes True
+(5:26) 2. Like The Birds In The Sky
+(4:44) 3. Rhythm Of The Eternal Forest
+(5:21) 4. The Sun Is Shining On The Other Side Of The Valley
+(4:04) 5. Temple Of Muktinath
+(7:38) 6. In View Of The Annapurna
+(4:37) 7. Higher And Higher
+(8:33) 8. On The Pass
+(4:39) 9. Coming HomeЖанр: New ageПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6959687F4C96212A04C1D264E789D4A1C24A3663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066114   (414571) от 25.10.2016
+
+Phil Thornton - Pure Crystal Bowls (2016) [FLAC|Lossless|tracks] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Obsidian (Root Chakra) [00:06:36]
+02. Carnelian (Sacral Chakra) [00:09:03]
+03. Citrine (Solar Plexus Chakra) [00:10:35]
+04. Kunzite (Heart Chakra) [00:12:10](   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F1B38B69E740C5F9C3DF53163324DA58AC074F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167274   (414516) от 21.09.2017
 
 Andrea Guerra - The Pursuit Of Happyness (2006) [MP3|320 Kbps] <Score>
@@ -600,152 +750,6 @@ Abdulrahman Zaibak - The Current (Instrumental) (2017) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1EA071513857301A07846CE4E47F0645E91B6CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168343   (408794) от 24.09.2017
-
-Бахубали - Заключение / Baahubali - The Conclusion (2017) Язык песен - Хинди [MP3|320 Kbps] <OST, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Jiyo Re Bahubali | Jiyo Re Bahubali
-02 - Veeron Ke Veer Aa
-03 - Soja Zara
-04 - Jay-Jaykara(   Читать дальше...   )Жанр: OST, SoundtrackПродолжительность: 00:18:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE0EA1D9AC58DCB102C4E2BE05B06BDF89FF6B4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413524   (408202) от 04.10.2020
-
-Motoi Sakuraba, Yuka Kitamura - Dark Souls II SotFS (Original Soundtrack) (2015) [MP3|320 Kbps] <Soundtrack, OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dark Souls II (рус. Тёмные души II) — видеоигра в жанре action/RPG, разработанная компанией From Software. Она является непрямым продолжением игры Dark Souls.
-В центре новой истории находится проклятый персонаж, который отправляется в далёкие земли королевства Дранглик, чтобы найти исцеление от поразившего его Проклятия нежити. Но оказавшись в этом мире, герой понимает, (   Читать дальше...   )CD1:
-01. Departure [4:11]
-02. Fire Keepers [2:44]
-03. Majula [3:17](   Читать дальше...   )Жанр: Soundtrack, OSTПродолжительность: 02:27:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97F68FFF4E55E3CBDBF1B086EA2CCB815E218365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067156   (408025) от 28.10.2016
-
-Johan Soderqvist & Patrik Andren - Battlefield 1 (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Battlefield One (03:21)
-02. The War to End All Wars (03:23)
-03. Mud and Blood (03:05)
-04. Hunted (01:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D51C0E074BE2C870DF03CAE905405E40FD69BEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067358   (408021) от 28.10.2016
-
-Stephen Barton - Titanfall 2 (Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408021.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. BT-7274 (05:40)
-02. Rifleman Cooper (02:42)
-03. Apex Predators (05:49)
-04. Link to Pilot (02:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D52E3FAB1F2BD29327AFF44C740E6A3E67A23340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252840   (407908) от 06.10.2018
-
-Guido Negraszus - Secret Paradise (Cafe Chillout & Dream Lounge) [FLAC|Lossless|WEB-DL|tracks] <New Age, Chillout, Lounge>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunset Lounge
-02. Secret Paradise
-03. Let's Dance
-04. Stardust(   Читать дальше...   )Жанр: New Age, Chillout, LoungeПродолжительность: 01:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7745146E14387B6B85F1824A99B37B890824D92A
 ```
 
 https://mybot314.ru/tekegram_catalog/

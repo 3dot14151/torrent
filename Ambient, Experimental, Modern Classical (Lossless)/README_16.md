@@ -1,3 +1,32 @@
+###  Публикация: 1419378   (340118) от 28.10.2020
+
+Qik - Alba (2020) Aula Magna Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Now Just You (09:25)
+ 02. Sonho (04:54)
+ 03. Alba (08:27)
+ 04. Las Tres Puertas (04:30)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54925AB27A2D6B52F392EF1A45843EBF013B1FB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419426   (339990) от 28.10.2020
 
 VA - Exhibition #100 (2020) Audiobulb [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, IDM, Modern Classical>
@@ -712,35 +741,6 @@ Ana Roxanne - Because Of A Flower (2020) Kranky [FLAC|Lossless|WEB-DL|tracks] <A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F637F25A8DC01BEAD84F4D19E4865897B0CEE32F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261972   (298760) от 13.11.2018
-
-VA - 1​+​1​=​X (2018) Erased Tapes Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Contemporary, Tech House, Minimal>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Qasim Naqvi – Brutal Moderna (04:19)
-02. A Winged Victory For The Sullen – Long May It Sustain (04:20)
-03. Rival Consoles – Ritual Song (05:10)
-04. Nils Frahm – Frau Dehlholm (03:06)(   Читать дальше...   )Жанр: Modern Classical, Contemporary, Tech House, MinimalПродолжительность: 01:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E87DDAE03CDE15878C53E1B74BEC7888E6C8142
 ```
 
 https://mybot314.ru/tekegram_catalog/

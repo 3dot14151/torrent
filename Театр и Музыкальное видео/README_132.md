@@ -1,3 +1,114 @@
+###  Публикация: 481913   (87978) от 12.04.2012
+
+Deep Purple - Phoenix Rising (2011) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание Deep Purple Phoenix Rising (CD + DVD) - это более двух часов материалов, посвященных Deep Purple периода MK IV (Coverdale-Hughes-Bolin-Paice-Lord), в их числе - 30 минут ранее не демонстрировавшихся (даже на бутлегах!) концертных видео из Японии.
+Материал, представленный на Deep Purple Phoenix Rising, увляется раритетным и уникальным. Релиз Феникса станет (   Читать дальше...   )01. Burn
+02. Love Child
+03. Smoke On The Water
+04. You Keep On Moving(   Читать дальше...   )Формат: DVD VideoПродолжительность: 02:22:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481236   (87725) от 11.04.2012
+
+"Послушайте!" Владимир Васильев (вечер первый) (2012) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вечер в Московском Международном Доме Музыки.
+
+Владимир Васильев читает стихи Н. Некрасова, К. Маркса, Г. Державина, И. Крылова, Д. Веневитинова, А. Толстого, А. Фета, Ф. Тютчева, П. Федотова, Н. Огарева, В. Курочкина, Минаева (Михаила Бурбонова), Саши Черного.
+Программа иллюстрирована живописными работами русских художников и знаменитого танцовщика.Жанр: поэзияРежиссер: Анастасия СинельниковаПродолжительность: 01:12:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07520B2B8DBDCFF4DF8E7CE969E3F1AF3BCE5E33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480978   (87524) от 10.04.2012
+
+Случай в гостинице (1967) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: драма, спектакльРежиссер: Александр ПрошкинПродолжительность: 01:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46FC4F39F433E5515249B9ED0FD258665A414A15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480393   (87461) от 09.04.2012
+
+Nightwish- Призрак оперы / Nightwish-Phantom of the opera (2006)[720p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: МузыкаПеревод: ОтсутствуетПродолжительность: 0:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7821E8C23966F164F40C2710B7154CC11D7BADA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479834   (87434) от 09.04.2012
 
 Пушкин. Евгений Онегин / читает Сергей Юрский (1999) VHSRip
@@ -632,116 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81E181F0D66E1FC8E4F68E0E20857137AA4EC9E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476649   (85784) от 01.04.2012
-
-Rammstein - Live Aus Moskau 2012-02-11 (2012)[1080p] HDCamRip (Ver. 1)
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный концерт группы Rammstein в Олимпийском 11 февраля 2012.Жанр: МузыкаПеревод: ОтсутствуетПродолжительность: 02:00:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476650   (85765) от 01.04.2012
-
-Armin van Buuren / Ultra Music Festival (2012)[1080p] HDTV
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Omnia - The Fusion (Armin van Buuren’s Intro Edit)
- 02. Cosmic Gate feat. Emma Hewitt - Be Your Sound
- 03. Armin van Buuren vs. Sophie Ellis-Bextor - Not Giving Up On Love (Dash Berlin 4AM Mix)
- 04. The Killers - Mr. Brightside (Marco V Treatment)(   Читать дальше...   )Жанр: Музыка/TranceПродолжительность: 00:59:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476608   (85761) от 01.04.2012
-
-Rammstein - Live Aus Moskau 2012-02-11 (2012) HDCamRip[1080p] (Ver. 2)
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не полный концерт группы Rammstein в Олимпийском 11 февраля 2012 снятый из сектора С-11 на камеру с отличным качеством.01 - Intro
-02 - Sonne (cut)
-03 - Feuer Frei (cut)
-04 - Mutter(   Читать дальше...   )Жанр: МузыкаПеревод: ОтсутствуетЯзык: DEПродолжительность: 01:10:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476396   (85752) от 01.04.2012
-
-Видеоклипы International Performers in 2011 DVD-5 vol. 01 Пиратская Вечеринка 4.35Gb
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308B6A76FEB2C578831193D2598865C581F9C58C
 ```
 
 https://mybot314.ru/tekegram_catalog/

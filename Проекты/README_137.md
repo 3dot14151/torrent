@@ -1,3 +1,55 @@
+###  Публикация: 789767   (725802) от 25.05.2014
+
+Проекты - VideoHive - Happy Birthday - 5968421 [AEP]
+
+>>Проекты
+>>Детские (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания поздравительного слайд-шоу С Днём Рождения.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0127DF357C78F347CBA2EC0C69C5BAF163980F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128529   (725772) от 26.04.2017
+
+Проекты - VideoHive - Epic Electric Logo Reveal - 19697746 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Epic Electric Logo Revel - удивительный и современный проект, идеально подходящий для демонстрации логотипа или вступительного видеоролика с вашим слоганом. Просто вставьте свой логотип, измените настройки и нажмите кнопку рендера.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080FF30CA64D9EA787BA6971F6F6632A67E5A04A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128842   (725752) от 26.04.2017
 
 Проекты - VideoHive - Broadcast Design News Package - 19550533 [AEP]
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8ACA78838EFFA667E35E3F0CC314B2F3F6216EBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023666   (723812) от 05.06.2016
-
-Проекты - VideoHive - Elegant Circle Stand Logo [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элегантный проект для демонстрации логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2FA54B91F480950FCB47A6FFA8C6ED8B029862D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023552   (723745) от 05.06.2016
-
-Проекты - VideoHive - Platinum | Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для эффектной демонстрации платинового логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42490E02809194C193405F54E107D9891770C61E
 ```
 
 https://mybot314.ru/tekegram_catalog/

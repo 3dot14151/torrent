@@ -1,3 +1,29 @@
+###  Публикация: 579447   (349799) от 22.11.2012
+
+Family Guy: Back to the Multiverse [En/Multi4] (Repack/1.0) 2012 | R.G. Catalyst
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья Гриффинов возвращается в новой игре Family Guy: Back to the Multiverse. История основана на 1 серии 8 сезона, Road to the Multiverse, а главными героями выступают Стьюи и Брайан, которым предстоит спасти город от Бертрама, злобного двойника Стьюи. На своем пути они сразятся с другими персонажами сериала, используя уникальные умения и оружие. В Family Guy: Back to the Multiverse присутствуют многопользовательские уровни как для кооперативного, так и соревновательного прохождения.(   Читать дальше...   )Тип издания: RepackЖанр: Action / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский, Немецкий, Итальянский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE7F15B1C35437BE7423E8B8FECDEE18800267C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 579493   (349663) от 22.11.2012
 
 LEGO The Lord of the Rings [En/Ru/Multi10] (L) 2012 l RELOADED
@@ -649,32 +675,6 @@ GUTS (Gory Ultimate Tournament Show)(«Кровопролитное непрев
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:034105EB9A7BCAF74DB4E0F4F111C6D9ACFE99BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184726   (298443) от 18.11.2017
-
-Injustice: Gods Among Us (2013) [Ru/Multi] (1.0.2787.0) Repack xatab [Ultimate Edition]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Injustice: Gods Among Us Самое полное издание от компании NetherRealm Studios представляет собой смелую новаторскую разработку в жанре файтинговых игр. В этом мощном издании шесть новых игровых персонажей, более 30 новых костюмов и новые миссии Лаборатории С.Т.А.Р.Тип издания: RepackРазработчик: NetherRealm StudiosЖанр: Arcade (Fighting), ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD94189615F31D1A10042B69E11F0D05CECC842
 ```
 
 https://mybot314.ru/tekegram_catalog/

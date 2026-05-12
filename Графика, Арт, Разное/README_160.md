@@ -1,3 +1,57 @@
+###  Публикация: 1784748   (3633) от 09.09.2025
+
+Обои - Eternal Mix Wallpapers Part 38 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция обоев на разную тематику.
+Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ECE0A448AB77F6F3F45520A9B01A5CA892CE45E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817324   (3498) от 10.09.2025
+
+Картинки - Wallpapers Mix №1954 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высококачественные обои в новом сборнике на ваш рабочий стол.
+Количество 435.Формат: JPGРазрешение файлов: 1680x1050 - 7952x5304
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8840177E321E2D36D3CC1290EA989B5EE2609EBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817658   (3167) от 12.09.2025
 
 Промты - SevenUnited LLC - 310 Midjourney Prompts for Portrait’s - 3947560 [TXT, JPG]
@@ -624,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7202F8833440FC43D4DC2B43DDB3333717B4F68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819756   (1148) от 24.09.2025
-
-Промты - SevenUnited LLC - 387 Midjourney Prompts for Sci-fi Characters - 2093175 [TXT, JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1148.jpg" />
-</div>
-
-
-###  Подробнее
-
-387 промтов для ИИ-арта Midjourney для персонажей научной фантастики.Формат: TXT, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1FAF17DCB698D94FBDEAD90D6057853C83385AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819910   (984) от 25.09.2025
-
-Промты - SevenUnited LLC - 430 Midjourney Prompts for The 90’s Vol 2 - 2832775 [TXT, JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из 430 настраиваемых промтов Midjourney для 90-х: Том 2Формат: TXT, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30003DF12F423D0F9AC0BF6F916BA939B01C98C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

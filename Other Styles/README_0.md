@@ -1,3 +1,119 @@
+###  Публикация: 1856699   (1058998) от 01.03.2026
+
+Paul Mauriat - Plays The Beatles (1972) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Penny Lane
+02. Ticket To Ride
+03. Let It Be
+04. Michelle(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F895C14798358732DEBF21522F8FD14394780212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856526   (1058980) от 01.03.2026
+
+Phil Vassar - Shaken Not Stirred (2004) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Ole Days    [0:03:04.37]
+02. In a Real Love    [0:03:34.28]
+03. What Happens in Vegas    [0:03:41.15]
+04. I'll Take That as a Yes (The Hot Tub Song)    [0:03:29.10](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B45A551ACBE1BB9E1A62669D0FEBDFF156745C98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855357   (1058063) от 23.02.2026
+
+Mumford & Sons - Prizefighter (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Folk Rock, Indie Folk>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here (3:11)
+02. Rubber Band Man (3:38)
+03. The Banjo Song (3:50)
+04. Run Together (3:39)(   Читать дальше...   )Жанр: Folk Rock, Indie FolkПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E8039C4A2E6F2F900F5513927FED0ABFC9A851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855318   (1057915) от 22.02.2026
+
+Apparat (Sascha Ring) - 4 Soundtracks (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Experimental, IDM, OST>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Capri-Revolution
+Damonen
+Equals Sessions(   Читать дальше...   )Жанр: Ambient, Experimental, IDM, OSTПродолжительность: 4 CD, 02:27:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C1A7402CEE9BD8DA022F7E0FE1830E47EB820A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853664   (1057567) от 18.02.2026
 
 Сергей Киреев - Что ж вы, девки, приуныли? (2026) [MP3|320 Kbps] <Russian Folk Pop>
@@ -624,122 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F37EB59B9AD5F7E74541ACC01553196C91C0D01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608721   (1043501) от 31.01.2023
-
-VA - Шедевры цыганской музыки, 4 Альбома (2000) [MP3|320 Kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Соколовский хор 3:00
-02. Мохнатый шмель 2:40
-03. Что так грустно 2:50
-04. Вино в бокале 4:00(   Читать дальше...   )Жанр: Folk
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B8A5E85C813FC6C251AB95D56E48E52D603B054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611036   (1041646) от 10.02.2023
-
-Oota Dabun - Ani Kuni (2011) [MP3|320 Kbps] <Native American, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ani Kuni (English Radio Mix) (English Radio Mix) [03:47]
-02. Ani Kuni (French Radio Mix) (French Radio Mix) [03:47]
-03. Ani Kuni Traditional (Native Radio Mix) (Native Radio Mix) [04:05]
-04. Ani Kuni (Tribal House Club Mix) (Tribal House Club Mix) [03:54](   Читать дальше...   )Жанр: Native American, New AgeПродолжительность: 00:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D320D5E19582393546B7BE6822808806C32D3E7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611126   (1041567) от 10.02.2023
-
-Ennio Morricone - Love Songs & Romantic Scores (2023) [FLAC|Lossless|WEB-DL|tracks] <Film Soundtracks>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Califfa (Main Theme) (2:37)
-02. D'amore si vive (3:00)
-03. Love Theme (Version 2) (2:48)
-04. Prima e dopo l'amore (1:57)(   Читать дальше...   )Жанр: Film SoundtracksПродолжительность: 01:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:585ED2BBA3A8DA9AA9A42A4B1D6476386FB352A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610304   (1041524) от 10.02.2023
-
-Laya Project - Laya Project  (2006)  2CD [FLAC|Lossless|tracks + .cue] <World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041524.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD ONE:
-01. Glorious Sun Remix
-02. Muliya
-03. A New Day(   Читать дальше...   )Жанр: WorldПродолжительность: 45:06 + 50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16382E1975297FA8AC101913413F3F566671ED75
 ```
 
 https://mybot314.ru/tekegram_catalog/

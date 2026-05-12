@@ -1,3 +1,118 @@
+###  Публикация: 1131456   (706610) от 06.05.2017
+
+Cristobal Tapia de Veer - The Girl With All The Gifts / Новая эра Z (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gifted (Pimped Mix) (02:59)
+02. Pandora (01:49)
+03. Hunger (01:00)
+04. My Special Girl (02:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB5355700F40F79E758F546926F3CC83E3056EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131404   (706591) от 06.05.2017
+
+Brian Tyler - The Fate of the Furious / Форсаж 8 (Original Motion Picture Score) (2017) [FLAC|Lossless|WEB-DL|tracks]<Score, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fate of the Furious (03:35)
+02. Cipher (02:09)
+03. Zombie Time (06:00)
+04. Reunited (02:44)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00441794190AA492295EF805F23210862E3D5F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131403   (706478) от 06.05.2017
+
+Brian Tyler - The Fate of the Furious / Форсаж 8 (Original Motion Picture Score) (2017) [MP3|320 кб/с]<Score, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fate of the Furious (03:35)
+02. Cipher (02:09)
+03. Zombie Time (06:00)
+04. Reunited (02:44)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF93F0A5BE7C3211C02B4DB05C2E2831D6EB1F18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026039   (706136) от 14.06.2016
+
+Midori - Island Paradise (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To the Island [00:10:29]
+02. Sparkling Light [00:20:26]
+03. Temple Shrine [00:20:34]Жанр: New AgeПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDF5C16C32A9EA87C0B62A71EB6C4202D994BF14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025857   (705873) от 14.06.2016
 
 Air - Twentyears (2016) [MP3|320 кб/с] <Electronic, Downtempo, Ambient>
@@ -629,122 +744,6 @@ Parijat - Blessings (2017) [MP3|320 Kbps] <New age, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77CCA0495AE756AB5BF43160D4676ED51D9B2554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132626   (700637) от 09.05.2017
-
-Medwyn Goodall - The Sorcerer's Daughter 2 (2017) [MP3|320 Kbps] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter in the Mountains
-02. The Book of Dragons
-03. When It Snows in the Forest
-04. The Quest(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40934631A43CC806B4A93C5409A1198B6269B6CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132355   (700619) от 09.05.2017
-
-Баян MIX Сергея Войтенко - 4 альбома (2014-2016) [MP3|192 Kbps] <Bayan, Instrumental, Pop>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Карнавал 3:32
-02. Рэд танго 3:03
-03. Катя 2:53
-04. Ты так далеко 4:50(   Читать дальше...   )Жанр: Bayan, Instrumental, PopПродолжительность: 02:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE27D2BA5AFBBF8C1EB4AC0459DC3EDC9A09529B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220572   (700530) от 21.04.2018
-
-Levantis - I Love Yoga (Music To Relax Your Body And Mind), 3CD Box Set (2009) [FLAC|Lossless|tracks + .cue] <New Age, Meditative, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit Part 1 (3:51)
-02. Spirit Part 2 (3:05)
-03. Rising Star Part 1 (3:06)
-04. Rising Star Part 2 (2:05)(   Читать дальше...   )Жанр: New Age, Meditative, AmbientПродолжительность: 02:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9FC5FDB3FD38E8AEE3ECFBD28D02BF804F4A24A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132428   (700454) от 09.05.2017
-
-VA - Prey (Original Game Soundtrack) (2017) [MP3|241-287 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mick Gordon - The Experiment (01:36)
-02. Mick Gordon - Everything Is Going to Be Okay (02:29)
-03. Mick Gordon - Typhon Voices (01:54)
-04. Mick Gordon - The Phantoms (03:09)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C1A070128852A79D095B0B7D525078180ED2870
 ```
 
 https://mybot314.ru/tekegram_catalog/

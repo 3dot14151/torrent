@@ -1,3 +1,119 @@
+###  Публикация: 1132626   (700637) от 09.05.2017
+
+Medwyn Goodall - The Sorcerer's Daughter 2 (2017) [MP3|320 Kbps] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter in the Mountains
+02. The Book of Dragons
+03. When It Snows in the Forest
+04. The Quest(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40934631A43CC806B4A93C5409A1198B6269B6CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132355   (700619) от 09.05.2017
+
+Баян MIX Сергея Войтенко - 4 альбома (2014-2016) [MP3|192 Kbps] <Bayan, Instrumental, Pop>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Карнавал 3:32
+02. Рэд танго 3:03
+03. Катя 2:53
+04. Ты так далеко 4:50(   Читать дальше...   )Жанр: Bayan, Instrumental, PopПродолжительность: 02:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE27D2BA5AFBBF8C1EB4AC0459DC3EDC9A09529B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220572   (700530) от 21.04.2018
+
+Levantis - I Love Yoga (Music To Relax Your Body And Mind), 3CD Box Set (2009) [FLAC|Lossless|tracks + .cue] <New Age, Meditative, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit Part 1 (3:51)
+02. Spirit Part 2 (3:05)
+03. Rising Star Part 1 (3:06)
+04. Rising Star Part 2 (2:05)(   Читать дальше...   )Жанр: New Age, Meditative, AmbientПродолжительность: 02:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9FC5FDB3FD38E8AEE3ECFBD28D02BF804F4A24A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132428   (700454) от 09.05.2017
+
+VA - Prey (Original Game Soundtrack) (2017) [MP3|241-287 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mick Gordon - The Experiment (01:36)
+02. Mick Gordon - Everything Is Going to Be Okay (02:29)
+03. Mick Gordon - Typhon Voices (01:54)
+04. Mick Gordon - The Phantoms (03:09)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:31:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C1A070128852A79D095B0B7D525078180ED2870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132489   (700450) от 09.05.2017
 
 The Dead South - Good Company (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Bluegrass,  Folk, World, & Country>
@@ -635,128 +751,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E87C6BE7954A4749352712D37FE98C41E888F59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 332404   (697360) от 05.05.2011
-
-Хор Сретенского монастыря - Кто ны разлучит от любве Божия... (2001) [MP3|320 kbps]<Духовные песнопения>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_697360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Заупокойное поминовение
- 02 - Предначинательный псалом
- 03 - Блажен муж
- 04 - Свете Тихий
- 05 - Стихира русским святым
- 06 - Земле Русская
- 07 - О преславнаго чудесе
- 08 - Ныне отпущаеши
- 09 - Тропарь свщмч. Илариону
- 10 - Богородице Дево, радуйся(   Читать дальше...)Жанр: Православные песнопенияПродолжительность: 01:06:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132887   (696991) от 11.05.2017
-
-Peru - Constellations (1989) [FLAC|Lossless|tracks + .cue] <New Age, Synth-pop>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out of Time  (09:05) 
-02. Utopie  (12:58) 
-03. Deja Vu  (07:21) 
-04. Constellations  (04:49) (   Читать дальше...   )Жанр: New Age, Synth-popПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF285F95A3C80E5E43C03D919501AB9CD51A0AF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133097   (696942) от 11.05.2017
-
-Parijat - Blessings (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise
-02. All Is Well
-03. I Hold You When You Fall
-04. The Heart Is a Resting Place(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:08:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A3B98262CF4D2E8651C9D81210569BFE474F962
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133169   (696931) от 11.05.2017
-
-Medwyn Goodall - The Sorcerer's Daughter 2 (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter in the Mountains
-02. The Book of Dragons
-03. When It Snows in the Forest
-04. The Quest(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7268A50A3EAB972982755A15935EB6DAE1C35E9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

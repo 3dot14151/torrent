@@ -1,3 +1,55 @@
+###  Публикация: 926059   (535150) от 09.08.2015
+
+Проекты - VideoHive - Grunge Splatter Presentation [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:904213D9CC74F26DD4A73F2925AC02E2EF73F28D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926289   (535146) от 09.08.2015
+
+Проекты - VideoHive - Blockbuster Billboards [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рекламные щиты предназначены для рекламы, продвижения услуги, товара, компании, а также анонсов событий в вашем городе.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B6ECB1442C550DE8DFB72BA5CBB3137F38BDF55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926076   (535062) от 09.08.2015
 
 Проекты - VideoHive - Magic Genie - Oriental Opener [AEP]
@@ -624,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9441C38133EF36C3084DEF1C4536865CC8D033F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926451   (533188) от 10.08.2015
-
-Проекты - VideoHive - Short Corporate Presentation [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Краткая презентация вашей фирмыФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF1EB191B93739C97390899FFDFD7100E2643FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155368   (533145) от 03.08.2017
-
-Проекты - Motion Array - Photo Opener - 36266 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Openener Slideshow - это творческий шаблон After Effects. Светлая и яркая фото-студия с чистыми текстовыми анимациями и динамичной камерой, которая элегантно подбирается к множеству фотографий. Проект включает 1 заполнитель для логотипа, 11 заполнителей для изображений и 8 простых в использовании цветовых пресета. Идеально, как вступление к вашим фотосессиям, (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2F2188D541E68BD049BBC41C9370D11BA0138CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

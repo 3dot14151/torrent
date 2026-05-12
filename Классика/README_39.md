@@ -1,3 +1,61 @@
+###  Публикация: 1420354   (332433) от 01.11.2020
+
+VA - Baby's First Classics (1999) 2 СD [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332433.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 Baby's First Classics
+01. Ludwig van Beethoven - Moonlight Sonata (7:47)
+02. Claude Debussy - Clair De Lune (4:32)
+03. Ludwig van Beethoven - Canon In D Major (4:27)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D6888CE52EAA2BCC3971C73DC2E932C9D35BBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955907   (331131) от 13.11.2015
+
+Anna Netrebko & Rolando Villazon - Duets (2007),Deluxe Limited-Edition, Deutsche Grammophon, [FLAC|image+cue]<Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Bohуme: Act I: Duet "O soave fanciulla" (Mimi, Rodolfo)    [0:04:10.00]
+02. Lucia di Lammermoor, Part I: No. 4. Scene and Duet "Lucia perdona...Sulla tomba" (Lucia, Edgardo)    [0:12:40.00]
+03. Rigoletto: Act I: No. 5. Scene and Duet "Giovanna, ho dei rimorsi...E il sol dell'anima" (Gilda, Duca)    [0:08:19.00]
+04. Romeo et Juliette: Act (   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35FDE6A42643EDAC38FB2C25E7B7A097D2111553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956259   (329361) от 15.11.2015
 
 Bach - Concertos, Toccata, Partita (Elena Kuschnerova) (2001) [FLAC|image +.cue]<Classical, Recital, Concerto, Baroque Period, Suite>
@@ -684,64 +742,6 @@ Rondo Veneziano - Marco Polo (1997) [FLAC|tracks+.cue]<Baroco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E35992CA131E368AE6E2A16F8533775BDEF2CE78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958831   (316800) от 24.11.2015
-
-Вивальди - Гении классической музыки (2011) [FLAC|image+.cue]<Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весна:
-01. Allegro"
-02. Largo
-03. Danza Pastorale(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F9D7CB97EF24D8F8ACA54C91686B360058DE8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075847   (315773) от 24.11.2016
-
-Arturo Benedetti Michelangeli - Frederic Chopin - 10 Mazurkas  (1972 Stereo) Deutshe Grammophon [FLAC|Lossless|image + .cue] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тень трагического, какого-то неизбежного рока витает над гением Микеланджели, осеняя все, к чему прикасаются его пальцы. Стоит сравнить его Шопена с тем же Шопеном в исполнении других - самых крупных пианистов.
-01 Mazurka, op. 67 no. 2- Cantabile (2:02)
-02 Mazurka, op. 56 no. 2- Vivace (1:48)
-03 Mazurka, op. 67 no. 4- Moderato animato (3:10)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 00:53:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA6EDD64AADA286137F6F00D22988435778738F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

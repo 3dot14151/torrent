@@ -1,3 +1,61 @@
+###  Публикация: 1004293   (837927) от 06.04.2016
+
+Harriet Krijgh - Elegy (2015) [FLAC|Lossless|tracks] <Classical>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le carnaval des animaux: No. 13, Le cygne
+02. Klid, Op. 68 No. 5, B. 182
+03. From Jewish Life: I. Prayer (Arr. for Cello & Orchestra)
+04. Kol Nidrei, Op. 47(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AE36F885DFF6164131085627C77D92091F536F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004457   (837839) от 06.04.2016
+
+Dvorak / Дворжак - Violin Concerto, Cello Concerto (Ricci, Nelsova, Susskind) (2007) [FLAC|Lossless|tracks] <Classical, Concerto>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Violin Concerto in A minor, op. 53
+01. (1) Allegro ma non troppo - Adagio ma non troppo
+02. (2) Finale. Allegro giocoso
+(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23CEA3CD51CC2ADF607F7C49599C35D92DDEAD4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004514   (836423) от 07.04.2016
 
 Dvorak / Дворжак - Violin Concerto, Cello Concerto (Ricci, Nelsova, Susskind-SLSO) (2007) [MP3|320 кб/с] <Classical, Concerto>
@@ -687,70 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B68BC5AE6A5F62551B597244530AAEE9DB79BA7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 655174   (821520) от 12.05.2013
-
-Antonio Lucio Vivaldi-Concerti per mandolini: Europa Galante, conductor Fabio Biondi (2001) /2002 Virgin Classics [flac|Lossless]<Chamber>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto in G major for 2 mandolines and strings RV532
-1 I. Allegro 3:57
-2 II. Andante 2:46
-3 III. Allegro 3:20
-Concerto in C major for 2 violini in tromba marina, 2 flauti dritti, 2 madolini, 2 salmoe, 2 teorbe e violoncello RV558
-4 I. Allegro molto 4:52
-5 II. Andante molto 1:29
-6 III. Allegro 2:54
-Concerto in G minor per violino, 2 flauti dritti, 2 oboi, fagotto ed archi RV 576, 'dedicato a Sua Altezza Reale di Sassonia'
-7 I. Allegro 4:13(   Читать дальше...   )Жанр: BaroqueПродолжительность: 01:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7E0038B2BFE6B790A778ABD530F9ADE50E357E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503181   (821233) от 18.10.2021
-
-VA - Essential Classical Piano (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aldo Ciccolini - Suite bergamasque, L. 75 - III. Clair de lune (4:43)
-02. Alexis Weissenberg - Nocturnes, Op. 9 - No. 2 in E-Flat Major (Andante) (4:40)
-03. Henrik Mawe - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 -Moonlight - - I. Adagio sostenuto (5:26)
-04. Kun-Woo Paik - Hungarian Rhapsodies, S. 244 - No. 12 in C-Sharp Minor (10:49)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB6DE383589D15CA10FE881F9128D4720DFDB40C
 ```
 
 https://mybot314.ru/tekegram_catalog/

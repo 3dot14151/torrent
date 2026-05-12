@@ -1,30 +1,3 @@
-###  Публикация: 1399686   (186309) от 23.09.2023
-
-ATOM RPG: Post-apocalyptic indie game v1.188 (2018) [Multi/Ru] [macOS Native game]
-
->>Игры для macOS
->>Strategy, RPG для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186309.jpg" />
-</div>
-
-
-###  Подробнее
-
-ATOM RPG - это постапокалиптическая инди-игра, вдохновлённая классическими CRPG: Fallout, Wasteland, System Shock, Deus Ex, Baldur's Gate.
-В 1986 году СССР и Западный блок были практически уничтожены в ходе обмена ядерными ударами. Вы - один из выживших после апокалипсиса. Ваша задача - исследовать жестокий и загадочный мир Советских Пустошей, завоевать в нём своё (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 2018Разработчик: AtomTeamПоддерживаемая ОС: 10.12Жанр: RPGЯзык интерфейса: Русский, Английский, Французский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88789750A6C3AEE4E473160124E4639CA5D2ABF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538391   (186168) от 24.09.2023
 
 Black Geyser: Couriers of Darkness v.1.2.56 (2022) [Multi/Ru] [macOS Native game]
@@ -690,6 +663,33 @@ Royal Envoy 3 (коллекционное издание) (2014) [Ru] [macOS Nat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51307485244133078C6755B77A2DDA41D15EC6F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270611   (154899) от 20.12.2018
+
+Quake II (Quake 2) - The Reckoning, Ground Zero (1997) [En] [macOS Native game]
+
+>>Игры для macOS
+>>Action, FPS для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Quake II — компьютерная игра в жанре шутера от первого лица, вышедшая 9 декабря 1997 года.
+Разработана компанией id Software, издана Activision.Тип издания: macOS Native gameРелиз состоялся: 1997Разработчик: id SoftwareПоддерживаемая ОС: Mac OS X 10.11+Жанр: First-person ShooterЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D310182D7E19DD6AA4BCACC1900A3B7E880246D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

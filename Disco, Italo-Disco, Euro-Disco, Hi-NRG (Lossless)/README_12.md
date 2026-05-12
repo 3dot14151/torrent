@@ -1,3 +1,32 @@
+###  Публикация: 1549118   (594744) от 05.05.2022
+
+VA - Disco Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Dance, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bee Gees - Stayin Alive (4:46)
+02. Kool & The Gang - Celebration (Single Version) (4:57)
+03. Donna Summer - Hot Stuff (12'' Version) (6:41)
+04. Sylvester - You Make Me Feel (Mighty Real) (6:35)(   Читать дальше...   )Жанр: Dance, DiscoПродолжительность: 03:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6855E91651D9210D19845A5D7BDAE7F8E6708143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 806967   (594172) от 22.07.2014
 
 VA - The Hit Men Vol.1 - Produced By Frank Farian (2009) [FLAC|Lossless]<Disco>
@@ -784,35 +813,6 @@ Methusalem - Journey Into The Unknown (2006) [APE|Lossless]<Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAF9181BA15E975D68F912C3CAF8701AB67160B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919918   (581765) от 20.07.2015
-
-Bad Boys Blue - You're A Woman 2015 (2015) [FLAC|tracks + .cue]<Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're A Woman (High Tide Remix Radio Edit) [3:16]
-02. You're A Woman (Reloaded Album Version) [3:07]
-03. You're A Woman (High TIde Remix Extended Edit) [7:19]
-04. You're A Woman (Reloaded Extended Mix) [4:51](   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC1E2FB1B90D8F9276769185D6917B6425D29C78
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1204738   (784272) от 07.02.2018
+
+The Wagner Projec - Matthias Goerne, The Swedish Radio Symphony Orchestra, Daniel Harding (2017)2CD [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Die Meistersinger von Nürnberg (1868)
+01.Vorspiel (III)
+02.Sachs: Was duftet doch der Flieder so mild (II, “Fliedermonolog”)
+Tristan und Isolde (1865)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6023A457FB85AAD13FC7A9705F9BA521D5B4B8CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204264   (784031) от 08.02.2018
+
+Haydn- Das Niederländische Philharmonische Orchester - Symphonie Nr. 100,Symphonie Nr. 94 (1951) [FLAC|Lossless|tracks] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony No. 100 G Major "Military"
+A1	Band 1: Adagio; Allegro
+A2	Band 2: Allegretto
+A3	Band 3: Menuetto: Moderato(   Читать дальше...   )Жанр: ClassicalПродолжительность: 43:03.59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C311D4914A78901EEA13542F8A800A530B2C6B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203972   (784019) от 08.02.2018
 
 Beethoven - Alexander Gauk  Violin Concerto In D Major, Op. 61 (1955-1960)  [FLAC|Lossless|tracks] <Classical>
@@ -679,64 +737,6 @@ VA - Simply Piano Moods (2011) 2CD, Boxset[FLAC|Lossless|tracks + .cue] <Piano, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB486EA7B821DAF8AF8EDA6335D2A88FE41AEE12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392052   (769798) от 24.06.2020
-
-Jef Martens - Evenings on Instagram, Pt. I-III (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Solo Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something I Said (1:02)
-02. Pretty Sure We've Met Before (1:01)
-03. Almost But Not Quite (1:02)
-04. I Will Walk You Home (2:11)(   Читать дальше...   )Жанр: Modern Classical, Solo Piano |Продолжительность: 00:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:285C8A2D38A326E205DE06E850A23A811558DEEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125473   (767752) от 15.04.2017
-
-Wataru Sato - midnight solitude (2017) [FLAC|Lossless|WEB-DL|tracks] <Piano, Ambient, Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No title  (05:16) 
-02. Cuddle  (03:31) 
-03. Stream  (03:25) 
-04. Circus  (03:10) (   Читать дальше...   )Жанр: Piano, Ambient, ClassicalПродолжительность: 00:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79ED2E7545E8EF6708A7A8A06548A0FD8333114E
 ```
 
 https://mybot314.ru/tekegram_catalog/

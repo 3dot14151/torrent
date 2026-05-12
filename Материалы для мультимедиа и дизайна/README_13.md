@@ -1,3 +1,115 @@
+###  Публикация: 1435568   (1042981) от 01.01.2021
+
+Плагины - Astropanel - Astro Panel v5 [ZXP]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Astro Panel - лучший плагин для Adobe Photoshop CC, который объединяет расширенные функции цифровой обработки Млечного Пути, изображений глубокого неба и пейзажей. Благодаря инновациям он идеально подходит для любых нужд.
+Неважно, профессионал вы или новичок, Astropanel всегда поможет вам сделать идеальное фото.
+Погрузитесь в мир Astropanel и откройте для себя то, (   Читать дальше...   )Формат: ZXP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66AEF61137DB43F46C72F8F69B18D236353E19D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433510   (1042955) от 01.01.2021
+
+Звуковые библиотеки - Toontrack Superior Drummer 3 - SDX Factory Content [Part2-“Room Mics 1”] [OBW]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part2-“Room Mics 1” (The rest of the Room mics: OH Cond, Amb Near, Amb Mid) - вторая часть большой, на 230 GB, базовой библиотеки для Toontrack - Superior Drummer 3
+
+Библиотека состоит из 5 частей:Формат: OBW
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:788D162585CFC670F2B3EBBBC4EC97B6416F4EFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433521   (1042954) от 01.01.2021
+
+Звуковые библиотеки - Toontrack Superior Drummer 3 - SDX Factory Content [Part4-“Room Mics 3 – Height Surround (6 ch)”] [OBW]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part4-“Room Mics 3 – Height Surround (6 ch)” (extra mics to achieve 11.0 surround, Front Height, Rear Height and Rear Height Wide. est. 49gb ) - четвёртая часть большой, на 230 GB, базовой библиотеки для Toontrack - Superior Drummer 3
+
+Библиотека состоит из 5 частей:Формат: OBW
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5CF8F2954479994176B53F7A0398742D1A3FE8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433527   (1042953) от 01.01.2021
+
+Звуковые библиотеки - Toontrack Superior Drummer 3 - SDX Factory Content [Part5-“Extra Bleed”] [OBW]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part5-“Extra Bleed” (The rest of the bleed in the close mics. estimate 51gb) - пятая часть большой, на 230 GB, базовой библиотеки для Toontrack - Superior Drummer 3
+
+Библиотека состоит из 5 частей:Формат: OBW
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C7166363A9A759E5831DC271A6FD3273AEF49BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433512   (1042952) от 01.01.2021
 
 Звуковые библиотеки - Toontrack Superior Drummer 3 - SDX Factory Content [Part3-“Room Mics 2 – Surround (5 ch)”] [OBW]
@@ -572,110 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F1BF91CFA10A7060F11BE905D6F7CD6DCA69D74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438442   (1040585) от 10.01.2021
-
-Звуковые библиотеки - Toontrack - Death & Darkness SDX (Death v1.0.1) [OBW]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040585.jpg" />
-</div>
-
-
-###  Подробнее
-
-В середине-конце 80-х дэт-метал был периферийным жанром андеграундных групп. Затем, к началу 1990-х годов, такие группы, как Death, Morbid Angel, Cannibal Corpse и несколько других американских групп, преимущественно из Флориды и восточного побережья, начали набирать популярность. В то же время на противоположном континенте, в Великобритании, такие как Carcass, Benediction (   Читать дальше...   )Формат: OBW
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2378B573D2D5F6F9812F6358CB79E20964EE23C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438797   (1040584) от 10.01.2021
-
-Звуковые библиотеки - Toontrack Superior Drummer 3 - The New York Studios SDX Bundle v1.5.0 RePack by Massageth [OBW, MIDI]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040584.jpg" />
-</div>
-
-
-###  Подробнее
-
-NEW YORK STUDIOS VOL.3 SDX - НЬЮ-ЙОРКСКОЕ НАСЛЕДИЕ ПРОДОЛЖАЕТСЯ. Три полных комплекта установок, семплированных в одной из самой знаменитой акустической студии в мире. Это - очень ожидаемое продолжение устаревшего сериала New York Studios Toontrack, сосредотачивающегося на завоевании лучших студий в нью-йоркской области. Заgbcfyysq в известной Avatar Studios и показе (   Читать дальше...   )Формат: OBW, MIDI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED42E27B3CA9FF4E47476376A8AAEAFCD9BE0E91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438996   (1040533) от 10.01.2021
-
-Фотографии - PHOTOBASH - THERMAL GEYSERS [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор исландских пейзажей с природными геотермальными гейзерами, которые источают горячие источники и дым. Этот пакет, снятый в отличных условиях атмосферного освещения, также содержит уникальные текстурные элементы земли.Разрешение файлов: 3825x5737-10767x4480
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F51475DA46F51A5E1086EA7BE3617434CC90FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439007   (1040532) от 10.01.2021
-
-Фотографии - PHOTOBASH - SHIPPING CONTAINERS [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор с изображением грузовых контейнерных терминалов возле гавани. Включает в себя снимки улиц, окружающей терминал, крупную портовую технику и различные элементы декора, такие как знаки опасности и сломанные грузовики.Разрешение файлов: 4000x6000-7952x5304
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8063508CEDC61680760C5CA4BE588378D14450EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

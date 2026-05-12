@@ -1,3 +1,32 @@
+###  Публикация: 1366641   (922124) от 12.03.2020
+
+VA - Beatport Techno: Electro Sound Pack #23 (2020) [MP3|320 Kbps] <Techno, Minimal, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922124.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Garez - Norefjell
+002. Paul Feris - On The Run
+003. Spektre - Forged In The Heart
+004. Dj Jordan - Acid Dreams (Original Mix)(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 12:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E784FE20C35E59173F076E1884075FC953C33AE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366643   (922112) от 12.03.2020
 
 VA - Beatport Tech House: Electro Sound Pack #24 (2020) [MP3|320 Kbps] <Tech, Deep House>
@@ -728,35 +757,6 @@ VA - Record Super Chart 629 (2020) [MP3|320 Kbps] <Pop, House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:076E0391860EF5E8EAD2DBDF5112E19A31E289BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989555   (917381) от 22.02.2016
-
-VA - Les Grooves: Selected Vibes for Cool People (2016) [MP3|320 кб/с] <Deep House, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Project - Deep Night Alone - Astral Deep Mix
-02. Le Griffe - Touring Fat - Pfister Mix
-03. Aquamind - Lopresson - Fine Gold Mix
-04. Rainold Monlove - Old the Thait - Sunset Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A2F77C9BDE85400F0A9380C7FE38CAB43BD209D
 ```
 
 https://mybot314.ru/tekegram_catalog/

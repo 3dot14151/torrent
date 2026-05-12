@@ -1,25 +1,25 @@
-###  Публикация: 1853186   (1056569) от 12.02.2026
+###  Публикация: 1854427   (1057292) от 18.02.2026
 
-VA - This Is... 1971 (2008) [FLAC|Lossless|tracks + .cue] <Rock, Funk / Soul, Pop>
+Gomez - Bring It On (1998) [FLAC|Lossless] <Indie Rock, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057292.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hot Chocolate - I Believe (In Love) - (03:54)
-02. Hurricane Smith - Don’t Let It Die - (02:30)
-03. Cilla Black - Something Tells Me (Something’s Gonna Happen Tonight) - (02:26)
-04. The Congregation - Softly Whispering I Love You - (03:00)(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 01:09:06
+01. Get Miles [0:05:16.30]
+02. Whippin’ Piccadilly [0:03:12.17]
+03. Make No Sound [0:03:26.03]
+04. 78 Stone Wobble [0:04:22.02](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:54:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67147FE55FBFB7D08D1CF4E010ECDFC57587025F
+magnet:?xt=urn:btih:12BCD72206B848A76584C6401BB7AE62C26F2DF2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852976   (1056568) от 12.02.2026
+###  Публикация: 1854420   (1057291) от 18.02.2026
 
-Вадим Фарг, Ольга Риви | Семь ключей от будущего (Книга 1). Песнь Аски (2025) [MP3, Елена Лепихина]
+INXS - Kick (1987) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057291.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Она – гениальный инженер с талантом попадать в неприятности. Шанс присоединиться к галактической экспедиции – её билет в новую жизнь и возможность доказать, чего она стоит. На борту имперского флагмана «Неукротимый» она встречает идеального офицера, лейтенанта Макса Веста. Он харизматичен, смел и, кажется, является мужчиной её мечты. Но по мере того, как миссия по (   Читать дальше...   )Жанр: Космическая фантастика, приключенияИздательство: ЛитРесПродолжительность: 07:10:27
+01. Guns in the Sky [0:02:20.73]
+02. New Sensation [0:03:40.25]
+03. Devil Inside [0:05:15.42]
+04. Need You Tonight [0:03:05.48](   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:39:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6FC9E48DC2C797C4F2AF160C10482B433CD58939
+magnet:?xt=urn:btih:1F6DB9B9690868B0B5698BEBE4683F551C0913B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852977   (1056567) от 12.02.2026
+###  Публикация: 1854422   (1057290) от 18.02.2026
 
-Вадим Фарг, Ольга Риви | Семь ключей от будущего (Книга 2). Песнь Пирата (2026) [MP3, Елена Лепихина]
+Backstreet Boys - Backstreet Boys (1997) [FLAC|Lossless|tracks + .cue] <Pop, Europop, Ballad>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057290.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Она – гениальный инженер, верящая в порядок и закон. Он – безжалостный пират, призрак павшего Дома, чьё имя – синоним страха в тёмных уголках галактики. Преданные и брошенные умирать на краю вселенной, они вынуждены заключить хрупкий союз, где каждый неверный шаг грозит гибелью. Но её острый ум и несгибаемая воля к жизни оказываются силой, способной починить не только (   Читать дальше...   )Жанр: Космическая фантастика, приключенияИздательство: ЛитРесПродолжительность: 07:34:30
+01. We've Got It Goin' On [0:03:40.40]
+02. Quit Playing Games (With My Heart) [0:03:54.27]
+03. As Long as You Love Me [0:03:33.38]
+04. Everybody (Backstreet's Back) (extended version) [0:04:47.62](   Читать дальше...   )Жанр: Pop, Europop, BalladПродолжительность: 00:52:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89E8B0854E13A929FBDBC940310ED461ECF379A4
+magnet:?xt=urn:btih:546475E79719DD4A48B9735270EEE3335855C130
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852978   (1056566) от 12.02.2026
+###  Публикация: 1854058   (1057289) от 18.02.2026
 
-Вадим Фарг, Ольга Риви | Семь ключей от будущего (Книга 3). Песнь забытого Лорда (2026) [MP3, Елена Лепихина]
+Otto Dix - Хюбрис (2026) [FLAC|Lossless|WEB-DL|tracks] <Darkwave>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057289.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жизнь любит преподносить сюрпризы и внезапно ты узнаёшь, что всё ложь и не то, чем кажется. На арене появился новый игрок, жаждущий получить артефакты Предтеч, Тень Империи, ведёт свою смертоносную охоту, героям предстоит столкнуться с предательством, раскрыть давно забытые тайны и защитить не только наследие Дома Викант, но и само существование галактики от угрозы (   Читать дальше...   )Жанр: Космическая фантастика, приключенияИздательство: ЛитРесПродолжительность: 07:18:13
+01. Чаша сия [00:03:33]
+02. Хюбрис [00:04:15]
+03. Толпа [00:03:11]
+04. Годо не придёт [00:03:58](   Читать дальше...   )Жанр: DarkwaveПродолжительность: 2 CD, 01:04:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D47278E2627854795D1737E81467C52B96DF6969
+magnet:?xt=urn:btih:C3684A3BD795A62FD78634C4618B2E72A5BE9E1C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,346 +114,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852979   (1056565) от 12.02.2026
+###  Публикация: 1854481   (1057288) от 18.02.2026
 
-Вадим Фарг, Ольга Риви | Семь ключей от будущего (Книга 4). Песнь Творца (2026) [MP3, Елена Лепихина]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вынужденная служить врагу, Аска должна превратить свой гений в оружие против собственных друзей. Её единственным шансом на спасение становится тихая, смертоносная диверсия, игра разума на грани безумия. Для Кайдена же начинается самая отчаянная охота в его жизни – на призрака. Ему предстоит найти то, что невозможно отследить, и сделать ставку на один-единственный, (   Читать дальше...   )Жанр: Космическая фантастика, приключенияИздательство: ЛитРесПродолжительность: 07:23:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56A9825D39C0CDF34096936143A5590CB8AA74BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852868   (1056564) от 12.02.2026
-
-Deepshikha Bhati, Fnu Neha, Angela Guercio и др. | A Beginner’s Guide to Generative AI. An Introductory Path to Diffusion Models, ChatGPT, and LLMs (Synthesis Lectures on Computer Science) (2025) [ ...
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056564.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book is the essential guide for anyone curious about AI’s creative power. In the rapidly evolving landscape of artificial intelligence, generative AI stands out as one of the most transformative technologies of our time. Designed for beginners and requiring no prior knowledge of AI, this book breaks down the fundamentals of generative AI, from text and image (   Читать дальше...   )Жанр: Speech & Audio Processing, Database Storage & Design, Artificial IntelligenceЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F67DD246704934EA59A6B3604AE37FEB837FF8C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852864   (1056563) от 12.02.2026
-
-В.М. Фомичев | Элементы теории информации в защите информации. Учебное пособие (2021) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056563.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии систематически изложены основы математической теории информации, для ее разделов, относящихся к математическим моделям источников сообщений и к методам кодирования, подчеркивается связь с вопросами криптографической защиты информации. Для закрепления знаний в каждой главе даны задачи, упражнения и контрольные вопросы.Жанр: Компьютерная литература, КриптографияИздательство: ПрометейФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E361F3EB857BE7F43E0A16096E15D881B519761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852863   (1056562) от 12.02.2026
-
-В.М. Фомичев | Сборник задач по криптологии (2019) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник содержит типовые задачи по криптологии, опирающиеся на базовые знания из дискретной математики, теории сложности алгоритмов и теории вероятностей. Выборочно даны ответы на вопросы, поставленные в задачах, в некоторых случаях - с комментариями, указывающими на способ решения задачи. Материалы сборника предназначены для использования при проведении семинарских (   Читать дальше...   )Жанр: Компьютерная литература, КриптографияИздательство: ПрометейФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C55D1D2381B3D1D88D1D2D94749BB583A42CFD5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852862   (1056561) от 12.02.2026
-
-А.В. Помазанов | Защита информации от утечки по техническим каналам. Учебное пособие (2024) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены принципы построения устройств и методы защиты информации от утечки по техническим каналам. Приводятся классификация технических каналов утечки информации и современные технические средства защиты информации. Рассматривается место и роль современных комплексов радиомониторинга в системах технической защиты информации.Жанр: Компьютерная литература, КриптографияИздательство: Издательство Южного федерального университетаФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E25ED0B38B6491749EE8C220AC75B0A7CD2A425E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852861   (1056560) от 12.02.2026
-
-Г.А. Емельянов | Цифровая безопасность личности (2025) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное издание представляет сборник практических советов по цифровой (кибер), финансовой и, частично, информационной безопасности физического лица (личности), персональных электронных устройств (как мобильных, так и стационарных), обеспечения безопасности, приватности, конфиденциальности и анонимности пользователя, а также сохранности данных в целостности и доступности.Жанр: Компьютерная литератураИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D32A203EC168BF9CB4E5752923A83121356A51AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852860   (1056559) от 12.02.2026
-
-Dominik Tornow | Think Distributed Systems (2025) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reason confidently about distributed systems.
-
-Distributed systems are complex—but they’re also everywhere in modern software. A fuzzy understanding of how distributed systems work is no longer an option. Think Distributed Systems helps you develop clear and dependable mental models of distributed systems, so you can reason about complex problems with confidence. (   Читать дальше...   )Жанр: Client-Server Networking Systems,  Computer Systems Analysis & Design, Software Design, Testing & EngineeringЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FB09F2BEF6C83DC18C8027AE9F2BDA8E13D4DDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852858   (1056558) от 12.02.2026
-
-Elton Stoneman | Learn Docker in a Month of Lunches. Second Edition (2025) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Just the Docker you need to know in 22 bite-sized lessons!
-
-In Learn Docker in a Month of Lunches, Docker expert Elton Stoneman guides through everything you need to know about Docker in 22 short lessons you can complete on your lunch break. This freshly-revised bestseller has been updated for modern tools and the latest versions of Linux, Windows, or Mac, with new (   Читать дальше...   )Жанр: Software Design & Engineering, Cloud Computing, Software DevelopmentЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53E5479E5F8C5FDFC1F342F01207F70588226FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852857   (1056557) от 12.02.2026
-
-Chris Zetter | Build a Database Server. Learn how real databases work by following this practical guide to building your own (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Learn how real databases work by following this practical guide to building your own in a programming language of your choice.
-Build a language from scratch- Create an interpreter that can parse, type check and run SQL queries. Start with running simple queries and build up to more complex ones.
-Learn SQL (the fun way) - Gain a deeper understanding of SQL. Cover (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: LeanpubФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5461CF17A782182A57708A11FD0C66B8F7C4497F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852856   (1056556) от 12.02.2026
-
-Adarsh Divakaran | Deep Dive Python. Techniques and Best Practices for Developers (2025) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Take your programming skills to the next level by expanding real-world Python applications in open-source code. This book is an essential guide for experienced developers looking to enhance their Python proficiency.
-
-Using code examples from popular open-source projects you’ll master Python concepts and see how they are applied in production-level code. By understanding (   Читать дальше...   )Жанр: Object-Oriented Design, Python Programming, Computer Programming LanguagesЯзык: АнглийскийИздательство: Apress MediaФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:562B6FEFA631BBF532163046E69905E69FE4CDF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852855   (1056555) от 12.02.2026
-
-Hillel Wayne | Logic for Programmers (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Logic is the most important branch of math to software engineering. Knowing logic opens up a vast world of development techniques, from everyday tricks of the trade to exotic tools for cracking impossible tasks.
-This book teaches the basics of logic and nine special logic-powered techniques: property testing, decision tables, constraint solving, and more. Over 40 (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: LeanpubФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9037D6999B60FCDDCA7F8F6B6C37BF2619BBF2BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852854   (1056554) от 12.02.2026
-
-Florent Poux | 3D Data Science with Python. Building Accurate Digital Environments with 3D Point Cloud Workflows. 1st Edition (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Our physical world is grounded in three dimensions. To create technology that can reason about and interact with it, our data must be 3D too. This practical guide offers data scientists, engineers, and researchers a hands-on approach to working with 3D data using Python. From 3D reconstruction to 3D deep learning techniques, you'll learn how to extract valuable insights (   Читать дальше...   )Жанр: Computer Programming Languages, Python Programming, Computer SoftwareЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:140D70FDE5FB6C281043128AB4031C66AE29FC00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853341   (1056553) от 12.02.2026
-
-Хищник: Планета смерти / Predator: Badlands (2025) UHD BDRip [H.265/1080p] [HDR10, Dolby Vision Profile 7.6, 10-bit]
+28 лет спустя: Часть II. Храм костей / 28 Years Later: The Bone Temple (2026) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] [MVO]
 
 >>Горячие новинки
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057288.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В глазах воинственного отца молодой хищник Дек — полное ничтожество и позор клана. Отец приказывает старшему сыну убить его, но тот ценой собственной жизни спасает брата и отправляет его на населённую агрессивными тварями планету Генна. Там Дек встречает располовиненную девушку-андроида Тию, некогда прибывшую сюда в составе экспедиции с Земли, и, чтобы доказать отцу (   Читать дальше...   )Производство: США, Австралия, Новая Зеландия, Канада, Германия / 20th Century Studios, TSG Entertainment, Deutsche FilmakademieЖанр: фантастика, боевикРежиссер: Дэн ТрахтенбергАктеры: Эль Фаннинг, Димитриус Коломатанги, Рави Нарайан, Майкл Хомик, Стефан Грубе, Рубен Де Йонг, Камерон Браун, Элисон Райт, Мэтт Даффер, Росс ДафферПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 01:47:27
+Спайк вступает в банду сэра Джимми Кристала, однако его ужасают новые спутники, которые намеренно убивают выживших людей по приказу лидера группы. Тем временем доктор Иэн Келсон в своём «Храме костей» продолжает самостоятельную работу над лекарством от вируса ярости и делает открытие, которое может изменить мир.Производство: Великобритания, США / Columbia Pictures Corporation, Decibel FilmsЖанр: ужасыРежиссер: Ниа ДаКостаАктеры: Рэйф Файнс, Джек О’Коннелл, Элфи Уильямс, Эрин Келлиман, Чи Льюис-Парри, Эмма Лейрд, Сэм Лок, Роберт Родс, Гази Аль Руффаи, Маура БёрдПеревод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full 18+), Английские (Full, SDH)Продолжительность: 01:49:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D62B9EB56331D5A7D853A5E9276AD0FA641D43E
+magnet:?xt=urn:btih:1F0844CBDE0BB8F481CE54F32169386C08E9AE44
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -452,26 +140,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852853   (1056552) от 12.02.2026
+###  Публикация: 1854462   (1057287) от 18.02.2026
 
-Малькольм Макдональд | Грокаем безопасность веб-приложений (2025) [PDF]
+Адское пламя / Hellfire (2026) WEB-DL [H.264/1080p] [MVO]
 
->>Компьютерная литература
->>нет
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057287.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Безопасность приложений — приоритетная задача для веб-разработчиков. Вы работаете над интерфейсом фронтенд-фреймворка? Разрабатываете серверную часть? В любом случае вам придется разбираться с угрозами и уязвимостями и понимать, как закрыть, дырки через которые хотят пролезть черные хакеры.
-Здесь вы найдете все, что нужно практикующему разработчику для защиты приложений (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+Бывший спецназовец с непростым прошлым оказывается в южном городке, где царит беззаконие. Жестокий криминальный босс и продажный шериф держат жителей в страхе и нищете. Никто не решается сопротивляться, но однажды чужак, проезжавший мимо, ввязывается в конфликт. Стычки и увиденный произвол разжигают в нём решимость бросить вызов всей местной системе. Начинается война (   Читать дальше...   )Производство: США / Millman Productions, Price Productions II, Ron Lee ProductionsЖанр: боевик, триллерРежиссер: Айзек ФлорентайнАктеры: Стивен Лэнг, Харви Кейтель, Скотти Томпсон, Дольф Лундгрен, Крис Маллинэкс, Майкл Сироу, Джонни Йонг Бош, Морис Комт, Натали Кэнердей, Hector MelgozaПеревод: Многоголосый профессиональный (заКАДРЫ)Язык озвучки: Русский, АнглийскийСубтитры: Английские (SDH)Продолжительность: 01:35:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F70911515AFC9D06812E1E010020046C3971335
+magnet:?xt=urn:btih:6F4A00A09BFB41FA36D981E117EFA68958535749
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -479,25 +166,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852852   (1056551) от 12.02.2026
+###  Публикация: 1854463   (1057286) от 18.02.2026
 
-Йоаким Сунднес | Python. Системный анализ данных, расчеты и моделирование (2025) [PDF]
+Адское пламя / Hellfire (2026) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] [MVO]
 
->>Компьютерная литература
->>нет
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057286.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Перед вами подробное руководство по применению в научных целях Python - современного и наиболее востребованного языка программирования. Его преимущество заключается в том, что это так называемый язык высокого уровня с простым и интуитивно понятным синтаксисом. Однако несмотря на то, что Python хорошо подходит в качестве языка для начинающих, он также активно применяется (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: АСТФормат: PDFКачество: OCR
+Бывший спецназовец с непростым прошлым оказывается в южном городке, где царит беззаконие. Жестокий криминальный босс и продажный шериф держат жителей в страхе и нищете. Никто не решается сопротивляться, но однажды чужак, проезжавший мимо, ввязывается в конфликт. Стычки и увиденный произвол разжигают в нём решимость бросить вызов всей местной системе. Начинается война (   Читать дальше...   )Производство: США / Millman Productions, Price Productions II, Ron Lee ProductionsЖанр: боевик, триллерРежиссер: Айзек ФлорентайнАктеры: Стивен Лэнг, Харви Кейтель, Скотти Томпсон, Дольф Лундгрен, Крис Маллинэкс, Майкл Сироу, Джонни Йонг Бош, Морис Комт, Натали Кэнердей, Hector MelgozaПеревод: Многоголосый профессиональный (заКАДРЫ)Язык озвучки: Русский, АнглийскийСубтитры: Английские (SDH)Продолжительность: 01:35:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74DF7B2333A18A11D6582A17B2A45DFE8548321D
+magnet:?xt=urn:btih:9989F661538FF3B96C0685503701A801AB33A235
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -505,25 +192,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852851   (1056550) от 12.02.2026
+###  Публикация: 1854483   (1057285) от 18.02.2026
 
-Micha Gorelick, Ian Ozsvald | High Performance Python. Practical Performant Programming for Humans. 3rd Edition (2025) [PDF, EPUB] [EN]
+Сезон охоты / Hunting Season (2025) BDRip [H.264/720p]
 
->>Компьютерная литература
->>нет
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057285.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Your Python code may run correctly, but what if you need it to run faster? This practical book shows you how to locate performance bottlenecks and significantly speed up your code in high-data-volume programs. By explaining the fundamental theory behind design choices, this expanded edition of High Performance Python helps experienced Python programmers gain a deeper (   Читать дальше...   )Жанр: Computer Performance Optimization, Python Programming, Software DevelopmentЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Отец-одиночка Бодри, живущий в глуши с дочерью Тэг, находит на берегу реки раненую девушку по имени Дженьюари. Вскоре выясняется, что за незнакомкой охотится банда под предводительством жестокого наркобарона Алехандро. Уединенный дом героев превращается в крепость, а жизнь семьи — в борьбу за выживание.Производство: США / BondIt, Beno Films, Buffalo 8 ProductionsЖанр: боевик, триллер, драма, криминал, детективРежиссер: Раджа КоллинзАктеры: Мэл Гибсон, Шелли Хенниг, Скарлет Роуз Сталлоне, София Хьюблиц, Хорди Молья, А.Дж. Бакли, Lola Manzini, Ланда Морленд, Джеймс ДюМонт, Роки МайерсПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:40:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C95BD1500740C3DF127BCBD18AC632C3EE40240
+magnet:?xt=urn:btih:97BA1DA81B1498819321248AC151DFBC90F9C02C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -531,26 +218,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852850   (1056549) от 12.02.2026
+###  Публикация: 1854485   (1057284) от 18.02.2026
 
-Laurence Moroney | AI and ML for Coders in PyTorch. A Coder's Guide to Generative AI and Machine Learning (2025) [PDF, EPUB] [EN]
+Imagine 2.5.0 + Portable [Multi/Ru]
 
->>Компьютерная литература
->>нет
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057284.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Eager to learn AI and machine learning but unsure where to start? Laurence Moroney's hands-on, code-first guide demystifies complex AI concepts without relying on advanced mathematics. Designed for programmers, it focuses on practical applications using PyTorch, helping you build real-world models without feeling overwhelmed.
-From computer vision and natural language (   Читать дальше...   )Жанр: Generative AI, Microsoft Programming, Python ProgrammingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Imagine - это бесплатный просмотрщик изображений для Windows. Это отличная альтернатива многим другим популярным бесплатным вьюерам, таким как IrfanView, XnView или FastStone Image Viewer. Это приложение с низким использованием ресурсов, которое будет работать на всех версиях ОС Windows.Язык интерфейса: Русский, английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C690ABDA5B4AB21DF9CC72837C4D3E05D432BD3A
+magnet:?xt=urn:btih:CF7A2DA5C3C7063992478686E1EB03B6EEBF7428
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -558,25 +244,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852849   (1056548) от 12.02.2026
+###  Публикация: 1854488   (1057283) от 18.02.2026
 
-Alireza Parandeh | Building Generative AI Services with FastAPI. A Practical Approach to Developing Context-Rich Generative AI Applications. 1st Edition (2025) [PDF, EPUB] [EN]
+28 лет спустя: Часть II. Храм костей / 28 Years Later: The Bone Temple (2026) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8.1, 10-bit] [MVO]
 
->>Компьютерная литература
->>нет
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057283.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ready to build production-grade applications with generative AI? This practical guide takes you through designing and deploying AI services using the FastAPI web framework. Learn how to integrate models that process text, images, audio, and video while seamlessly interacting with databases, filesystems, websites, and APIs. Whether you're a web developer, data scientist, (   Читать дальше...   )Жанр: Web Services, Generative AI, Software DevelopmentЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Спайк вступает в банду сэра Джимми Кристала, однако его ужасают новые спутники, которые намеренно убивают выживших людей по приказу лидера группы. Тем временем доктор Иэн Келсон в своём «Храме костей» продолжает самостоятельную работу над лекарством от вируса ярости и делает открытие, которое может изменить мир.Производство: Великобритания, США / Columbia Pictures Corporation, Decibel FilmsЖанр: ужасыРежиссер: Ниа ДаКостаАктеры: Рэйф Файнс, Джек О’Коннелл, Элфи Уильямс, Эрин Келлиман, Чи Льюис-Парри, Эмма Лейрд, Сэм Лок, Роберт Родс, Гази Аль Руффаи, Маура БёрдПеревод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full 18+), Английские (Full, SDH)Продолжительность: 01:49:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81DBB6003DA9A422AE3FE31039A465578E97BAE6
+magnet:?xt=urn:btih:9403C74206627BB06BCA1CCDC7D334589E03780D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -584,27 +270,371 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852848   (1056547) от 12.02.2026
+###  Публикация: 1854161   (1057282) от 18.02.2026
 
-Bartosz Konieczny | Data Engineering Design Patterns. Recipes for Solving the Most Common Data Engineering Problems. 1st Edition (2025) [PDF, EPUB] [EN]
+П.Г. Кириченко | Нецифровая электроника для начинающих (2026) [PDF]
 
->>Компьютерная литература
->>нет
+>>Научная и техническая литература
+>>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057282.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Data projects are an intrinsic part of an organization's technical ecosystem, but data engineers in many companies continue to work on problems that others have already solved. This hands-on guide shows you how to provide valuable data by focusing on various aspects of data engineering, including data ingestion, data quality, idempotency, and more.
+Основы аналоговой электроники изложены доступным для начинающих способом – путем создания на макетной плате простых устройств, которые сразу после сборки начинают работать, не требуя пайки и программирования. Набор необходимых деталей сведен к минимуму. Рассмотрены аналоговые сигналы и их свойства, простейшие усилительные схемы на транзисторах, законченные устройства (   Читать дальше...   )Жанр: ЭлектроникаИздательство: BHVФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9EC1811C4679CBBF205EEA60423AE4D8DBF3C21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854493   (1057281) от 19.02.2026
+
+Поймать монстра / Dust Bunny (2025) WEB-DLRip [H.264]
+
+>>Горячие новинки
+>>Зарубежные Новинки (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Десятилетняя Аврора нанимает своего таинственного соседа, чтобы тот уничтожил монстра, поглотившего её семью. Подозревая, что родители девочки могли пасть жертвой киллеров, охотящихся на него самого, мужчина с чувством вины берётся за дело.Производство: США / Dust Bunny Productions, Entertainment One, Hero SquaredЖанр: фэнтези, боевик, драмаРежиссер: Брайан ФуллерАктеры: Софи Слоун, Мадс Миккельсен, Сигурни Уивер, Давид Дастмалчян, Ребекка Хендерсон, Шила Атим, Нора Трокан, Роланд Сока, Каспар Филлипсон, Лине КрусеПеревод: Дублированный (Пифагор), профессиональный многоголосый (HDRezka Studio)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (full, SDH), французскиеПродолжительность: 01:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA07222946C1ED4CC1B24B2199DB90EE5A4BFD9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854484   (1057280) от 18.02.2026
+
+Предместье / The 'Burbs (2026) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) WinMedia
+
+>>Зарубежные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая пара решает начать новую жизнь и переезжает в дом, где когда-то прошло детство мужа. Казалось, что впереди их ждёт спокойствие и уют, но всё меняется, когда по соседству появляется новый жилец. Этот неожиданный сосед приносит с собой не только новые знакомства, но и опасности, которые начинают разрушать их иллюзию о тихом и безопасном районе. Постепенно их (   Читать дальше...   )Производство: США / Fuzzy Door Productions, Universal Content Productions (UCP)Жанр: комедия, детективРежиссер: Рэйчел Голдберг, Яна Горская, Зинга СтюартАктеры: Джек Уайтхолл, Кеке Палмер, Пола Пелл, Марк Прокш, Чад Линдберг, Джастин Керк, Хейли Джоэл Осмент, АрДжей Сайлер, Ивэн Шафран, Рэнди Оглсби, Кэролайн Дэй, Ян Братчи, Джулия Даффи, Капил Талвакар, Макс КарверПеревод: Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH), итальянские, испанские (Full, SDH)Продолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87342C733B60893EB4787AE2BA9DDAA76F4CA7DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854490   (1057279) от 21.02.2026
+
+Forgotlings (2026) [Ru/Multi] (1.0.0/dlc) Repack Let'sРlay [Collector's Edition]
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Forgotlings - кинематографичное приключение с упором на сюжет, в котором вы играете за Фига, забытый манекен, ставший капитаном разумного корабля по имени Полёт. Пока тени сгущаются, а древние конфликты раздирают землю, вы должны проплыть по продуваемым всеми ветрами небесам над забытыми городами и объединить разрозненные племена перед началом конца.Тип издания: RepackРазработчик: Throughline GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6816FE6420443B83D49B89143FF6BC93B349FFBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854489   (1057278) от 18.02.2026
+
+Windows 11 PRO 25H2 26200.7840 Update 4.2 by Ghost Spectre [En]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собрано из официального образа.
+— Superlite эта версия уже настроена - для опытных пользователей - подходит для игр и стриминга.
+— Compact это нетронутая версия, без изменений, только удаление приложений/ненужных программ - для обычных пользователей - подходит для работы в офисе, ноутбуков, планшетов, серверов и т. д.
+(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF1378B154A8484D0F33F9F0523D29841490258F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854496   (1057275) от 18.02.2026
+
+New Yankee 17: Jelly Chaos / Янки 17: Желейный хаос (2026) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Strategy/Manager/Business (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение захватывающих приключений New Yankee. Празднование дня рождения короля Артура принимает катастрофический оборот, когда из-за ошибки в древней книге заклинаний по всему Камелоту начинается магический хаос. Присоединяйтесь к Мэри и Джону, которые случайно вызвали озорных желейных двойников, сделанных из зачарованной вишневой слизи. Нарушители спокойствия (   Читать дальше...   )Тип издания: UnofficialРазработчик: Yustas Game StudioЖанр: Симулятор, Стратегия, ПостройкаЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:684794BA64D8CCB8C256722C581BD0D7D2F6C3C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854495   (1057274) от 18.02.2026
+
+Styx: Blades of Greed (2026) [Ru/Multi] (Build 21847243/dlc) Repack seleZen [Quartz Edition]
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастер скрытности вернулся! Исследуйте головокружительные высоты Исерианского континента и хитростью истребляйте врагов. Вы играете за хитроумного гоблина по имени Styx. В колких шутках ему нет равных, как и в искусстве скрытности. Ваша цель - заполучить кварц: самый ценный и опасный ресурс в мире, стоящем на пороге войны между эльфами, людьми и орками.Тип издания: RepackРазработчик: Cyanide StudioЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91D6016BD3FE3A04900606D4B1356DB4043E5327
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854506   (1057273) от 18.02.2026
+
+Казнить нельзя помиловать / Mercy (2026) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8.1, 10-bit] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ближайшее будущее, Лос-Анджелес. Полицейский Крис Рейвен задержан по обвинению в убийстве своей жены. В течение 90 минут Крис должен доказать свою невиновность продвинутому искусственному интеллекту, который выступает в роли судьи и палача.Производство: США, Россия / Amazon MGM Studios, Bazelevs EntertainmentЖанр: фантастика, боевик, триллер, драма, криминал, детективРежиссер: Тимур БекмамбетовАктеры: Крис Пратт, Ребекка Фергюсон, Кали Реис, Аннабелль Уоллис, Крис Салливан, Кайли Роджерс, Джефф Пьер, Рафи Гаврон, Кеннет Чои, Джейми МакБрайдПеревод: Многоголосый любительский (LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A2E666C8DBCD32521C79E0CEA5D731A06B49E52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854505   (1057272) от 18.02.2026
+
+VA - Emotions (1978) Billy Joel, Chris Rea, Andy Williams, Bonnie Tyler and other [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057272.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Samantha Sang (with The Bee Gees) - Emotions
+A2 Deniece Williams - Free
+A3 Billy Joel - I Love You Just The Way You Are
+A4 Gallagher & Lyle - I Want To Stay With You(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2DA25C859E410EB9C926B1618A3656CEF9A410F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853393   (1057271) от 19.02.2026
+
+Сны / За закрытыми глазами (2022) WEBRip [H.264] (сезон 1, серии 1-4 из 8) (обновляемая)
+
+>>Отечественные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женя Журавлева — внештатный сотрудник полиции. Она помогает раскрывать преступления благодаря невероятной способности: ей снятся провидческие сны в местах, где кто-то умер. Привлекший ее к работе в полиции капитан Макаров полагает, что это великий дар. Сама Женя считает свою способность проклятием. Журавлевой только предстоит разобраться, так ли это, а заодно разобраться (   Читать дальше...   )Производство: Россия | Кинокомпания братьев АндреасянЖанр: детектив, фантастикаРежиссер: Давид ДадунашвилиАктеры: Павел Прилучный, Елизавета Моряк, Алексей Гришин, Сергей Шароватов, Валерий Смекалов, Виктория Богатырёва, Карэн Бадалов, Теона Дольникова, Оскар Кучера, Артур Ваха и др.Продолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C51C124E2EB593B9FB3B0AC02AD768CA4C22866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854512   (1057270) от 18.02.2026
+
+Сладкая жизнь / La dolce vita (1960) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журналист Марчелло погружён в сладкую, развратную жизнь Вечного города. Его можно сравнить с Вергилием, проходящим все круги современного ада и наблюдающим «божественную комедию» Рима конца 50-х. Женщины как тени сменяют друг друга, не задевая его чувств, даже явление американской кинодивы Сильвии, воплощения сексуальности и порока, не выводит его из ступора. Внезапное (   Читать дальше...   )Производство: Италия, Франция / Gray-Film, Pathe Consortium Cinema, Riama FilmЖанр: драма, комедияРежиссер: Федерико ФеллиниАктеры: Марчелло Мастроянни, Анита Экберг, Анук Эме, Ивонн Фюрно, Магали Ноэль, Ален Кюни, Аннибале Нинки, Надя Грей, Лекс Баркер, Вальтер Сантессо, Полидор, Лаура Бетти, Ида Галли, Ален Дижон, Энцо ЧерузикоПеревод: профессиональный многоголосый (т/к Культура), профессиональный двухголосый (НТВ, Film Prestige; SomeWax), авторский (Сербин)Язык озвучки: русский, итальянскийСубтитры: русские (Kassiopea & ThePooh), английскиеПродолжительность: 02:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8AF5B5D6E0C7496174DE8A26D5729EA1638B0E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854515   (1057269) от 18.02.2026
+
+Возвращение «Святого Луки» (1970) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бежавший из заключения вор-рецидивист похищает картину Франса Хальса «Святой Лука» и пытается продать ее иностранному "туристу". В поединок с матерым преступником вступает полковник Зорин.Производство: СССР / МосфильмЖанр: криминал, детективРежиссер: Анатолий БобровскийАктеры: Всеволод Санаев, Владислав Дворжецкий, Олег Басилашвили, Екатерина Васильева, Валерий Рыжаков, Наталия Рычагова, Владимир Смирнов, Валерий Беляков, Паул Буткевич, Дмитрий МасановСубтитры: русскиеПродолжительность: 01:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A29DF5AFDD7B75267C96A773C42BBBC8F031A0B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854482   (1057268) от 18.02.2026
+
+Сезон охоты / Hunting Season (2025) BDRip [H.264/1080p]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец-одиночка Бодри, живущий в глуши с дочерью Тэг, находит на берегу реки раненую девушку по имени Дженьюари. Вскоре выясняется, что за незнакомкой охотится банда под предводительством жестокого наркобарона Алехандро. Уединенный дом героев превращается в крепость, а жизнь семьи — в борьбу за выживание.Производство: США / BondIt, Beno Films, Buffalo 8 ProductionsЖанр: боевик, триллер, драма, криминал, детективРежиссер: Раджа КоллинзАктеры: Мэл Гибсон, Шелли Хенниг, Скарлет Роуз Сталлоне, София Хьюблиц, Хорди Молья, А.Дж. Бакли, Lola Manzini, Ланда Морленд, Джеймс ДюМонт, Роки МайерсПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:390E93E5AD5AF00EC85F65A39EDC1715FB95CEFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854527   (1057267) от 18.02.2026
+
+Проекты - VideoHive - Logo Animation - 61701903 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Logo Animation — это шаблон After Effects, в котором вы можете использовать свой собственный логотип для создания потрясающих рекламных роликов за считанные секунды. Все, что вам нужно сделать, это перетащить свой логотип в место для заполнителя, и программа сделает все остальное за вас.
 
-Author Bartosz (   Читать дальше...   )Жанр: Data Warehousing, Data Processing, Data Modeling & DesignЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Вы можете использовать любой логотип с альфа-каналом (.png, .ai, .eps и т.д.). (   Читать дальше...   )Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F246461EB2E1CA02248C98133CED1064D6C79B0
+magnet:?xt=urn:btih:7812D612FCFB6329C7B986752B3FF93E59CAA164
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -612,27 +642,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852847   (1056546) от 12.02.2026
+###  Публикация: 1854529   (1057266) от 18.02.2026
 
-Antonio Di Cecco, Leonida Gianfagna | Explainable AI with Python. Second Edition (2025) [PDF, EPUB] [EN]
+Сборники - SICKBOAT - Photo Film Frames: PNG Film Borders + Texture (10k) [PNG]
 
->>Компьютерная литература
->>нет
+>>Материалы для мультимедиа и дизайна
+>>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057266.jpg" />
 </div>
 
 
 ###  Подробнее
 
-This comprehensive book on Explainable Artificial Intelligence has been updated and expanded to reflect the latest advancements in the field of XAI, enriching the existing literature with new research, case studies, and practical techniques.
-
-The Second Edition expands on its predecessor by addressing advancements in AI, including large language models and multimodal (   Читать дальше...   )Жанр: Python Programming, Probability & Statistics, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: SpringerФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Реалистичные сканы пленок — совместимы со всем программным обеспечением. С набором Photo Film Frames PNG Pack вы получите кадры 35-мм пленки Kodak 400 в формате PNG, кадры 120-мм среднеформатной пленки, кадры Instax Polaroid в формате PNG, наложения перфорации 35-мм пленки, отверстия, заставки, мусор, грязь, шум и акценты текстуры пленки. Перетаскивайте наложения (   Читать дальше...   )Формат: PNGРазрешение файлов: 10k
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC3BD67FFD617AC2E6B7D43DFF8222C1BB1E89B3
+magnet:?xt=urn:btih:3E4151FBEF276C7854B0329F7E73EA6E7D17DFD9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,53 +668,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852846   (1056545) от 12.02.2026
+###  Публикация: 1854528   (1057265) от 18.02.2026
 
-Matt Frisbie | Building Browser Extensions. Create Modern Extensions for Chrome, Safari, Firefox, and Edge. Second Edition (2025) [PDF, EPUB] [EN]
+28 лет спустя: Часть II. Храм костей / 28 Years Later: The Bone Temple (2026) WEB-DLRip [H.264] [MVO]
 
->>Компьютерная литература
->>нет
+>>Горячие новинки
+>>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057265.jpg" />
 </div>
 
 
 ###  Подробнее
 
-This book is the definitive guide to building modern browser extensions, covering everything from fundamental concepts to advanced techniques.
-
-Developing a browser extension is more like building a mobile app than a traditional website. Extensions operate within a unique environment with their own security model, lifecycle, and APIs. This book demystifies the process, (   Читать дальше...   )Жанр: Software Design & Engineering, Software Development, Web Development & Design ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Спайк вступает в банду сэра Джимми Кристала, однако его ужасают новые спутники, которые намеренно убивают выживших людей по приказу лидера группы. Тем временем доктор Иэн Келсон в своём «Храме костей» продолжает самостоятельную работу над лекарством от вируса ярости и делает открытие, которое может изменить мир.Производство: Великобритания, США / Columbia Pictures Corporation, Decibel Films, DNA Films, Québec Production Services Tax Credit, TSG EntertainmentЖанр: ужасыРежиссер: Ниа ДаКостаАктеры: Рэйф Файнс, Джек О’Коннелл, Элфи Уильямс, Эрин Келлиман, Чи Льюис-Парри, Эмма Лейрд, Сэм Лок, Роберт Родс, Гази Аль Руффаи, Маура БёрдПеревод: Многоголосый (HDrezka Studio)Язык озвучки: РусскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:49:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34FD1754784DDF44951DD205F9A8DBF2D14A70FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852844   (1056544) от 12.02.2026
-
-Satej Kumar Sahu | Building Secure PHP Applications. A Comprehensive Guide to Protecting Your Web Applications from Threats. First Edition (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Learn how to protect PHP applications from potential vulnerabilities and attacks. As cyberattacks and data breaches continue to rise, it's crucial for developers and organizations to prioritize security in their PHP applications. The book offers an all-encompassing guide to securing PHP applications, covering topics ranging from PHP core security to web security, (   Читать дальше...   )Жанр: Computer Network Security, Computer Programming Languages, Web Development & Design ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:909CB76401B6201065CAE69F74E8D0AFCC72AA31
+magnet:?xt=urn:btih:6825AC39261CA65F7727DD9417F9CF3691876F9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

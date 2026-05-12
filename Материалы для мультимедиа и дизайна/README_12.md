@@ -1,3 +1,107 @@
+###  Публикация: 1841884   (1048275) от 13.12.2025
+
+Звуковые библиотеки - Producer Loops - Phonk Kong - Phonk SFX [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048275.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Phonk SFX» содержит 1000 файлов звуковых эффектов с подробными описаниями, разделенных на 7 категорий: 170 атмосферных звуков, 225 звуков с эффектом затухания, 75 дронов, 88 глитчей, 200 ударных звуков, 82 звука с эффектом нарастания и 160 звуков с эффектом подъема. Больше никаких догадок! Быстро находите нужные звуки, не теряясь в потоке.Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07BB5EE738322C8CDF82A5B06A3FC24748F26C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841534   (1048164) от 11.12.2025
+
+Растровый клипарт (иллюстрации) - Christmas Tree Pretty Illustrations #2 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немаленький набор рождественских елочек для ваших творческих задач.Формат: PNGРазрешение файлов: 3600x3600 - 5000x5000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41464BED22BCC9B59813F7620E529793B2BCAA9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841595   (1048127) от 12.12.2025
+
+Шрифты - Envato - Sport Gym Orvado Font - QLB7WCT [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048127.jpg" />
+</div>
+
+
+###  Подробнее
+
+ORVADO — это современный декоративный шрифт, созданный для мира спорта, фитнес-центров и динамичного брендинга. Благодаря своей смелой структуре, четким линиям и мощному присутствию, ORVADO привносит энергию и силу в каждый дизайн, к которому прикасается. Независимо от того, работаете ли вы над рекламными акциями фитнес-центров или над смелыми проектами логотипов, (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68600E1C33345D298E6E294A9B07CD95048229A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841460   (1048009) от 11.12.2025
+
+Растровый клипарт (иллюстрации) - Christmas Tree Pretty Illustrations #1 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немаленький набор рождественских елочек для ваших творческих задач.Формат: PNGРазрешение файлов: 3600x3600 - 4096x4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F505EB9265BFC1E56F6A29BEC01CDAB474B738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841482   (1048002) от 11.12.2025
 
 Пресеты - FilterGrade - THE SEASONS BUNDLE - Premium Photography Lightroom Presets [XMP, LRTEMPLATE]
@@ -578,118 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ABFD3D1801A08730438C392C9EA3692D4162EC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435568   (1042981) от 01.01.2021
-
-Плагины - Astropanel - Astro Panel v5 [ZXP]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Astro Panel - лучший плагин для Adobe Photoshop CC, который объединяет расширенные функции цифровой обработки Млечного Пути, изображений глубокого неба и пейзажей. Благодаря инновациям он идеально подходит для любых нужд.
-Неважно, профессионал вы или новичок, Astropanel всегда поможет вам сделать идеальное фото.
-Погрузитесь в мир Astropanel и откройте для себя то, (   Читать дальше...   )Формат: ZXP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A66AEF61137DB43F46C72F8F69B18D236353E19D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433510   (1042955) от 01.01.2021
-
-Звуковые библиотеки - Toontrack Superior Drummer 3 - SDX Factory Content [Part2-“Room Mics 1”] [OBW]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part2-“Room Mics 1” (The rest of the Room mics: OH Cond, Amb Near, Amb Mid) - вторая часть большой, на 230 GB, базовой библиотеки для Toontrack - Superior Drummer 3
-
-Библиотека состоит из 5 частей:Формат: OBW
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:788D162585CFC670F2B3EBBBC4EC97B6416F4EFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433521   (1042954) от 01.01.2021
-
-Звуковые библиотеки - Toontrack Superior Drummer 3 - SDX Factory Content [Part4-“Room Mics 3 – Height Surround (6 ch)”] [OBW]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part4-“Room Mics 3 – Height Surround (6 ch)” (extra mics to achieve 11.0 surround, Front Height, Rear Height and Rear Height Wide. est. 49gb ) - четвёртая часть большой, на 230 GB, базовой библиотеки для Toontrack - Superior Drummer 3
-
-Библиотека состоит из 5 частей:Формат: OBW
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5CF8F2954479994176B53F7A0398742D1A3FE8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433527   (1042953) от 01.01.2021
-
-Звуковые библиотеки - Toontrack Superior Drummer 3 - SDX Factory Content [Part5-“Extra Bleed”] [OBW]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part5-“Extra Bleed” (The rest of the bleed in the close mics. estimate 51gb) - пятая часть большой, на 230 GB, базовой библиотеки для Toontrack - Superior Drummer 3
-
-Библиотека состоит из 5 частей:Формат: OBW
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C7166363A9A759E5831DC271A6FD3273AEF49BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1268280   (227746) от 10.12.2018
+
+Обои - Ultra HD 3840x2160 Wallpaper Pack 358 [JPG, PNG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227746.jpg" />
+</div>
+
+
+###  Подробнее
+
+В хорошем качестве подборка обоев на различную тематикуФормат: JPG, PNGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365E77BB3C8A3DFD04D24CCF79A628CC01B166E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268672   (226397) от 11.12.2018
 
 Обои - Desktop Wallpapers Full HD. Part (348) [JPG]
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D33FED9FC9BEF715D62171BA2E17F609A59AC32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 408717   (209933) от 15.01.2023
-
-Обои - Космос [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка обоев на космические темы.Формат: JPGРазрешение файлов: 1920x1080 - 4613х2233
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CF7B423F39C35CFBB2951987AA26277322EDF2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

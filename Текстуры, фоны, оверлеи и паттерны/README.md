@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1869051   (1067866) от 03.05.2026
+
+Оверлеи - Envato - Fire Spark Overlay - ZFYVX73 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта коллекция состоит из 12 реалистичных и высококачественных оверлеев в виде искр.Формат: JPGРазрешение файлов: 8000x5000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C698E60696397D9B1BC8C0A6582345D481B4D2AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1866380   (1066187) от 19.04.2026
 
 Оверлеи - SICKBOAT - Split Screen Film Mattes (8K) [PNG]
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DA53FEB750F635856D506830EB60714D9D93C67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486765   (1004540) от 01.08.2021
-
-Оверлеи - Creative Fabrica - Photoshop Overlay Black Horse [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окунитесь в мир демонов-лошадей и попробуйте черную магию!.Формат: PNGРазрешение файлов: 1190x2146-16492x13742
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:574375205B0B1914D146E717947B6413ED874784
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1100406   (899355) от 04.02.2017
+
+De Monte - Laudate Dominum (Currende, Erik Van Nevel) (2001) [FLAC|Lossless|image + .cue] <Classical sacred>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Benedictio et claritas
+02. - Cirumdederunt me
+03. - Dulcis et rectus Dominus
+04. - Asperges me(   Читать дальше...   )Жанр: Classical sacredПродолжительность: 01:04:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0FAC6B7591E86A025D0953DA154AA25E9CE3EF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993035   (897389) от 04.03.2016
 
 Elina Garanca, Roberto Abbado, Filarmonica del Teatro Communale di Bologna - Bel Canto (2009) [FLAC|Lossless|tracks] <Classical, Opera>
@@ -714,35 +743,6 @@ Luciano Pavarotti - Los Mayores Tenor Vivo en el Escenario (Live) (2017) [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40D282533420B34312269191C6461729BBFDEDAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380482   (832943) от 03.05.2020
-
-Сергей Лемешев - Золотые россыпи романса (2000) [FLAC|Lossless|tracks + .cue]<Retro>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Средь шумного бала
-02. Серенада Дон Жуана
-03. На нивы желтые
-04. Я помню чудное мгновенье(   Читать дальше...   )Жанр: RetroПродолжительность: 01:01:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FED2710CB9FBDBC6A627774D99370139615538A
 ```
 
 https://mybot314.ru/tekegram_catalog/

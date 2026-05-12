@@ -1,3 +1,56 @@
+###  Публикация: 1367285   (916976) от 15.03.2020
+
+Проекты - VideoHive - This is my story - 8501238 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916976.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Memories» - стильный элегантный проект для создания винтажного слайд шоу собранного в стиле "по волнам воспоминаний".
+Многие оценят по достоинству.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7651E69362376B734FD3E1A92715D3039E156AF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367331   (916946) от 15.03.2020
+
+Проекты - ProShow Producer - White Christmas 2020 [PSH]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивое слайдшоу на новогоднюю тему. Дерзайте!Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15CF3D1CF843C0BB4A3D30B85072E7630AAB4479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367291   (916944) от 15.03.2020
 
 Проекты - VideoHive - FCPX Family Tree - Photo Gallery 4K - 24782110 [MOTN]
@@ -628,58 +681,6 @@ Movie Intro Maker - проект для создания впечатляюще�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1295ED837EC5B17B22F6F98A0849D84D37E5798D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097163   (915121) от 26.01.2017
-
-Проекты - VideoHive - Valentine Hearts - 19293463 [AEP]
-
->>Проекты
->>Свадебные и романтические (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Valentine Hearts - проект для создания поздравительного ролика к дню Святого Валентина или Свадьбе!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37F4BB3230AACD6133BB8E972D605C1CF711498D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097151   (915117) от 26.01.2017
-
-Проекты - VideoHive - Elegant Opener Slideshow - 19279741 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elegant Opener Slideshow - проект для создания елегантного слайд-шоу кинематографического качества с уникальным современным дизайном.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23778D09C99F30050F5AE54AB384533F43D6005A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,25 @@
-###  Публикация: 1279614   (765396) от 30.01.2019
+###  Публикация: 1279023   (766125) от 29.01.2019
 
-NGW: Дикая Ботсвана / Wild Botswana (2018) HDTV [H.264/1080i-LQ]
+Forgive-Me-Not - Heavenside (2004) [FLAC|Lossless|image + .cue] <Gothic Metal>
 
->>Зарубежные TV-бренды
->>National Geographic
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766125.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ботсвана - это настоящая экстремальная территория со множеством различных звериных царств, сформировавшихся под действием мощных природных сил. Окружающая среда предоставляет живущим в ней животным, считающим эти места своим домом, богатый набор всего, что нужно, для выживания, однако одновременно диктует им свои правила поведения и вызовы.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Энди КлэрПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
+01. The Ocean [04:42]
+ 02. Missing You [02:51]
+ 03. The Mind Defenders [04:42]
+ 04. The Process [04:06](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:14:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B1F7A71B10D2B9BFEE324705352845AE9347691B
+magnet:?xt=urn:btih:30479DCC935002225B15398BED8EA56307811686
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278960   (765395) от 30.01.2019
+###  Публикация: 1279461   (766124) от 29.01.2019
 
-NG: Странная дружба / Unlikely Animal Friends (2016) HDTV [H.264/1080i-LQ] (сезон 3, серии 5 из 6)
+Apocalypse - Apocalypse (1969) Remastered, 2003, Longhair [MP3|320 Kbps] <Heavy Psych-Prog Rock>
 
->>Зарубежные TV-бренды
->>National Geographic
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766124.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Настоящим друзьям все равно откуда вы и как вы выглядите, они устроят с вами пикник, но они не будут вас есть. В этом мире, где сильный ест слабого, эти странные друзья не поддаются логическому объяснению. Они похожи на лучших друзей, которые наконец нашли друг друга. Они действуют вопреки природе и изменяют наше мнение о любви. Узнать что эти животные способны на (   Читать дальше...   )Производство: США, National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Йорг ФокелеПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:42:32
+1. Life Is Your Profession
+2. Let It Die
+3. Patricia
+4. Milkman(   Читать дальше...   )Жанр: Heavy Psych-Prog RockПродолжительность: 00:48:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A71FE17436EF6105A4847C3B397C3B7ADBADAB39
+magnet:?xt=urn:btih:B572DD2C7C8483F2F9B4A060ACD50A85D24790A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,54 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279591   (765394) от 30.01.2019
+###  Публикация: 1279479   (766123) от 29.01.2019
 
-VA - Paints Of The Soul: Pure Deep House (2019) [MP3|320 Kbps] <Deep, Chill House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765394.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tchilla - Gentleman Drivers
-002. Tantsui - Beautiful Day
-003. Tevo Howard - Make It Right
-004. The 5Th Galaxy Orchestra - A Place Between Us(   Читать дальше...   )Жанр: Deep, Chill House, ElectroПродолжительность: 11:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:437652CFBF9A99895ED5AE5CBAAD14A4BA96D287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279516   (765393) от 30.01.2019
-
-Calibre 3.38.1 RePack (& Portable) by elchupacabra [Multi/Ru]
+iCollections 4.7.4 [Multi]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Calibre - простая и удобная программа для управления библиотекой и универсальный конвертер электронных книг с большим количеством возможностей. Программа поможет упорядочить вашу библиотеку книг без особых трудностей. Также в её состав входят: утилита для преобразования одного формата в другой, интегратор новостей, программа для синхронизации данных с электронным (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+Многие люди предпочитают держать их настольный компьютер Mac в чистоте, чтобы избавиться от каких-либо предметов, которые не являются абсолютно необходимыми. Тем не менее, если вы хотите иметь различные приложения, документы или папки в пределах досягаемости, но держать их организованными в то же время, вы можете попробовать iCollections.Тип издания: macOS SoftwareРелиз состоялся: 21.01.2019Разработчик: Naarak-StudioПоддерживаемая ОС: macOS 10.11.0+Язык интерфейса: Английский, Немецкий, Французский и Японский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A6F606661EACCBA1481530C4DD8DDAD8C9E1F35
+magnet:?xt=urn:btih:CFF91CDE8BFCA269DFAE4CE831EF4C29930E19B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,27 +82,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279360   (765392) от 30.01.2019
+###  Публикация: 1279445   (766122) от 29.01.2019
 
-Е.В. Богомолова и др. | Экономический анализ [2 книги] (2016) [PDF]
+Сергей Фомин (сост.) | В гости к батюшке Серафиму (1997) [DJVU, PDF]
 
->>Научная и техническая литература
->>Учебники
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766122.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Учебные пособия соответствует федеральному государственному стандарту дисциплины «Анализ хозяйственной деятельности» направлений бакалаврской подготовки 38.03.01 «Экономика» и 38.03.02 «Менеджмент».
-В 1 книге рассмотрены вопросы анализа хозяйственной деятельности предприятия. Главное внимание уделено методике проведения анализа.
-2 книга содержит план и краткое изложение (   Читать дальше...   )Жанр: Экономика, менеджментФормат: PDF
+Полноводный широкий поток паломников в Саров и Дивеево, заметно возросший после Всероссийского прославления Преподобного Серафима в 1903 г., не иссяк и в годы русского лихолетия. Хотя и не такой полноводный, порой даже недоступный земному видению внешних, все же он продолжал тихо журчать и в самые злые годы гонений. Свидетельство тому эта книга, вобравшая в себя (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6BDE364BEE5EFC050D4405CE86AF2EB4011E03B5
+magnet:?xt=urn:btih:A47CC92F1FB9129D637200AF6550BB13135878F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -133,28 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279507   (765391) от 30.01.2019
+###  Публикация: 1279348   (766121) от 29.01.2019
 
-Laraaji & log(m) - The Onrush of Eternity (2019)[FLAC 2.0|48/24|tracks|WEB-DL] <Experimental, Dub, Ambient>
+VA - The Elektrolux Decade - 10 Years Elektrolux (2005) [FLAC|Lossless|tracks+.cue] <Downtempo, Dub, Deep House, Chillout, Ambient>
 
 >>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Daisy Fields (03:35)
-02. Sruthi Dub Resonance (04:35)
-03. Barefoot (08:23)
-04. Oregano In Dub Minor (08:36)(   Читать дальше...   )Жанр: Experimental, Dub, AmbientПродолжительность: 01:41:20
+01. Phonosynthese - Sonnensegel (Remix) (06:47)
+ 02. Aural Float - Still Here (Instrumental) (07:05)
+ 03. Jean F. Cochois - Electronic Love (Naoki Kenji Remix) (06:25)
+ 04. Aural Float - PlusMinus (05:34)(   Читать дальше...   )Тип издания: CD •Жанр: Downtempo, Dub, Deep House, Chillout, Ambient •Продолжительность: 01:18:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AC1246BA334F2B29523801DDBEE9CCF03F4FEDC
+magnet:?xt=urn:btih:EC9FE6947EF769EF47B084E92D4408C9C6B26CB9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -162,21 +137,107 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279285   (765390) от 30.01.2019
+###  Публикация: 1279440   (766120) от 29.01.2019
 
-Начался первый отборочный этап XII Международной олимпиады в сфере информационных технологий «IT-Планета 2018/19»
+Eva Cassidy - Songbird (1998) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Ballad, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fields of Gold (4:42)
+ 02. Wade in the Water (4:02)
+ 03. Autumn Leaves (4:41)
+ 04. Wayfaring Stranger (4:27)(   Читать дальше...   )Жанр: Smooth Jazz, Ballad, Easy ListeningПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE3029531CF19B6C31A7C8EC322A3F67BB8BBA30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279433   (766119) от 29.01.2019
+
+Calendar 366 II 2.5.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Посмотреть, добавлять, редактировать и удалять свои мероприятия легко. Создать и выполнить ваши напоминания с помощью всего одного клика. Calendar 366 Plus предоставит вам легкий доступ ко всем календарей, а также сделает более легким управление событиями и напоминаниями.
+
+Нажмите на иконку и получите обзор ваших событий. Нажмите на дату и посмотрите детали или переключитесь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.01.2019Разработчик: n.spektorПоддерживаемая ОС: macOS 10.12.2+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E730AFD796486A3AFB28F8B2F3E6ADEFDEB24B6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279496   (766118) от 29.01.2019
+
+VA - German Top 100 Single Charts 04.02.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766118.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mero - Hobby Hobby
+002. Ava Max - Sweet but Psycho
+003. Shindy - DODI
+004. Ariana Grande - 7 rings(   Читать дальше...   )Жанр: PopПродолжительность: 05:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A64A8887AFE9FD0175FD13FA1DF13A6F4EAE3AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279284   (766117) от 29.01.2019
+
+Японские власти разрешили взламывать IoT-устройства граждан
 
 >>Поговорим
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_765390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_766117.jpg" />
 </div>
 
 
 ###  Подробнее
 
-20 января начался первый отборочный этап Международной олимпиады в сфере ИКТ «IT-Планета 2018/19». Данное мероприятие уже 12 год способствует поддержке активной и талантливой молодежи, а также повышению качества образования и подготовки специалистов в сфере информационных технологий. Каждый этап – это возможность проверить уровень своего профессионализма и повысить (   Читать дальше...   )
+Японское правительство одобрило поправку в закон, наделяющую сотрудников Национального института информационно-коммуникационных технологий Японии правом взламывать IoT-устройства граждан в рамках исследования безопасности гаджетов, пишет издание ZDNet.По данным ресурса, исследование, старт которого запланирован на следующий месяц, будет проводиться под надзором Министерства (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -188,28 +249,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521428   (765389) от 02.01.2022
+###  Публикация: 1279283   (766116) от 29.01.2019
 
-VA - Monada Gems: Mentis Excessus (2021) [AAC|~330 Kbps] <Organic House, Deep House>
+Kid Koala - Music to Draw To: Io (2019) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Experimental, Ambient>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. M.ONDE - Hava (Madonna Moha Remix) (6:53)
-02. Intiche, Rokaya - Optic Mystic (7:16)
-03. Unam - Pleiadians (8:01)
-04. Goro (SY) - Sawadee (6:54)(   Читать дальше...   )Жанр: Organic House, Deep HouseПродолжительность: 02:07:44
+01. Circle of Clouds (07:36)
+02. All for You (feat. Trixie Whitley) (03:20)
+03. Torus (03:04)
+04. Transmission 4 (03:43)(   Читать дальше...   )Жанр: Trip-Hop, Experimental, AmbientПродолжительность: 01:07:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C075AE66F4798DFB15464FACB3CA0F11213E7A12
+magnet:?xt=urn:btih:EE11C68DF95494D9D05CBFF4F7D5047C1CCDCB4F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -217,28 +278,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521423   (765388) от 02.01.2022
+###  Публикация: 1279497   (766115) от 29.01.2019
 
-VA - Aurea 5 (2021) [AAC|~317 Kbps] <Organic House, Deep House>
+nthng - Shine (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766115.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sound of ATEM - Open Corners (7:11)
-02. Dare - Fragility (5:07)
-03. Gili Eidelson - Bamidbar (5:22)
-04. Tadej Jaki - Minerale (8:51)(   Читать дальше...   )Жанр: Organic House, Deep HouseПродолжительность: 01:18:27
+01. Shine (06:21)
+02. Embryo (04:59)
+03. Lyla (03:52)
+04. Atom (09:48)Жанр: Ambient, TechnoПродолжительность: 00:25:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D55920A30E069DA695E0F45490CD62C96C250C3
+magnet:?xt=urn:btih:2FECEA687AB5F5FBCCE532D85F8F56C1593FC2E3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -246,28 +307,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521419   (765387) от 02.01.2022
+###  Публикация: 1279387   (766114) от 29.01.2019
 
-VA - Aurea 3 (2020) [AAC|~321 Kbps] <Organic House, Deep House>
+Swallow the Sun - When A Shadow Is Forced Into The Light (2019) [FLAC|Lossless|image + .cue] <Death Doom Metal>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766114.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Serkan Eles - Heart (6:50)
-02. Mikasi Project, Zainab Lax - Namida (7:28)
-03. Seventh Soul - Haji (6:01)
-04. Unam - Pleiadians (8:01)(   Читать дальше...   )Жанр: Organic House, Deep HouseПродолжительность: 01:11:41
+01. When a Shadow Is Forced into the Light (7:26)
+02. The Crimson Crown (7:57)
+03. Firelights (5:41)
+04. Upon the Water (6:16)(   Читать дальше...   )Жанр: Death Doom MetalПродолжительность: 00:52:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9805ABDA9FE1EE49400DAF4D9BBD2BC8C21B4D95
+magnet:?xt=urn:btih:FA4D1FC37C78E8C5A3D14956E000475B31E4ABB9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -275,28 +336,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521418   (765386) от 02.01.2022
+###  Публикация: 1279391   (766113) от 29.01.2019
 
-VA - Aurea 2 (2020) [AAC|~318 Kbps] <Organic House, Deep House>
+One-Two-Three - One-Two-Three (1983) LP [MP3|320 Kbps] <Electronic, Hi NRG, Disco>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766113.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Urucum - Ride the Snake (6:09)
-02. Bado - Dreamride (5:59)
-03. Tolga Maktay - Zuhur (8:10)
-04. ZebraCak3 - Deseos (8:23)(   Читать дальше...   )Жанр: Organic House, Deep HouseПродолжительность: 01:23:14
+Автор и продюсер: Bobby Orlando01. Runaway (5:19)
+02. Midnite Fantasy (5:22)
+03. Another Knife In My Back (6:05)
+04. Falling In Love With Myself (6:51)(   Читать дальше...   )Жанр: Electronic, Hi NRG, DiscoПродолжительность: 00:35:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0634E5B1157096454AB843979DCA75E818C70DBD
+magnet:?xt=urn:btih:EC41E49229DF8423CCE174B3A938B6D6C5E30668
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -304,28 +365,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521369   (765385) от 02.01.2022
+###  Публикация: 1279481   (766112) от 29.01.2019
 
-VA - Parousia 2 (2019) [AAC|~311 Kbps] <Organic House, Deep House>
+Van Morrison - The Prophet Speaks (2018) [FLAC|Lossless|tracks + .cue] <Blues, Jazz>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766112.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mujia & Tajo - Lost in Thoughts (6:36)
-02. Riyoon, Sedef Benzon - Wonderbox (7:51)
-03. Echoel, Metatext - d.u.b. (7:44)
-04. Ni Made Nur - Endless World (4:16)(   Читать дальше...   )Жанр: Organic House, Deep HouseПродолжительность: 03:24:50
+01. Gonna Send You Back To Where I Got You From (04:41)
+02. Dimples (05:34)
+03. Got To Go Where The Love Is (04:25)
+04. Laughin' And Clownin' (05:33)(   Читать дальше...   )Жанр: Blues, JazzПродолжительность: 01:09:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8DFD15043216F2397875DAA0DD4AD7BC7829E7A6
+magnet:?xt=urn:btih:7D3C3572986251CDB078F59B969992B6F0E3082F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -333,28 +394,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521422   (765384) от 02.01.2022
+###  Публикация: 1279414   (766111) от 29.01.2019
 
-VA - Aurea 4 (2021) [AAC|~307 Kbps] <Organic House, Deep House>
+Blind Date - Dreamworld (1986) LP [MP3|320 Kbps] <Electronic, Synth-pop>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Electronic
+>>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766111.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hexound - Shadow Work (6:49)
-02. Sergey Nomad - Shadow (6:27)
-03. Goro (SY) - Sawadee (6:54)
-04. Nandão - Power (6:29)(   Читать дальше...   )Жанр: Organic House, Deep HouseПродолжительность: 01:10:17
+01. Your Heart Keeps Burning (4:01)
+02. Traces (3:48)
+03. Back Out On The Street (4:27)
+04. Dreamworld (4:59)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:43:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56E3C9A6B2C3792D0F89D2DD5BB3E201398411A1
+magnet:?xt=urn:btih:F07743BFA0C2811BDB2ADCA34052D6FB6C7097D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -362,28 +423,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521346   (765383) от 02.01.2022
+###  Публикация: 1279423   (766110) от 29.01.2019
 
-VA - Odd Echoes, Vol. 5 (2021) [AAC|~341 Kbps] <Melodic House & Techno>
+iFunia Video Converter Pro 5.5 [En]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766110.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fur Coat, Alfa Romero - Inherited Earth (6:50)
-02. Adamant - Winter Days (5:31)
-03. Baime - Hilda (6:13)
-04. Aacht, Esoteric Circle - Parasite (6:08)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 02:11:33
+iFunia Media Player - это видео и аудиоплеер, позволяющий смотреть фильмы, воспроизводить видео и слушать музыку с высоким разрешением. Он будет воспроизводить практически любые видео и аудиофайлы, которые вы вставляете в него, как видео AVI, MKV, FLV, MP4, F4V, DAT, MOV, MP3, WMA, M4A, 5K / 1080p / 720p HD и многое другое. Просто воспроизводить медиафайлы без необходимости (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: январь 2019Разработчик: iFuniaПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:500F9A2A59E2031F4C4AB652A9997BF5AB5DB5E9
+magnet:?xt=urn:btih:9B225F6F8A5EAFED13951E0C690AD6DFDF12542F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -391,28 +449,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521349   (765382) от 02.01.2022
+###  Публикация: 1279079   (766109) от 29.01.2019
 
-VA - Lost & Found Reflections 2021 (2021) [AAC|~344 Kbps] <House, Progressive House, Melodic House & Techno>
+АлоэВера - Концерт в Тюмени (2018) CAM [H.264/1080p-LQ]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Остальное
+>>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766109.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cornucopia - Dragons in Paradise (7:36)
-02. Guy Mantzur - My Wild Flower (8:35)
-03. Budakid - Silent Summer (6:26)
-04. Chicola - Todas Las Palabras (7:52)(   Читать дальше...   )Жанр: House, Progressive House, Melodic House & TechnoПродолжительность: 01:25:56
+Концерт группы АлоэВера в Тюмени 10 ноября 2018 года.Жанр: Поп-музыка, Танцевальная музыкаСубтитры: отсутствуютПродолжительность: 02:11:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5EB20D1441C7A74D49EBA29623230F634FC7E384
+magnet:?xt=urn:btih:3BB9B663968651E02EFB94C83A0F9B2FBD0C473F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -420,28 +475,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521427   (765381) от 02.01.2022
+###  Публикация: 1279381   (766108) от 29.01.2019
 
-VA - Monada Gems: Sonus Terrarum (2021) [AAC|~308 Kbps] <Organic House, Deep House>
+NG: Откуда берутся диктаторы / Making a Dictator (2018) SATRip (серии 1-3 из 3)
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежные TV-бренды
+>>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766108.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Avem, Arutani - About a Sound (7:07)
-02. Tolga Maktay - Zuhur (8:10)
-03. Christian Hülshoff - Colossos (5:35)
-04. Kapoor - Maar (6:09)(   Читать дальше...   )Жанр: Organic House, Deep HouseПродолжительность: 01:36:50
+Диктаторы бывают разные. Но как можно в одиночку захватить власть? Почему мы им подчиняемся? Диктаторы всегда оставляют за собой кровавый след, даже если сначала вели себя мирно. Но диктаторами не рождаются. Их создают. Исторический момент создает возможность. Но не каждый сумеет воспользоваться шансом, данным историей. В каждой группе найдется лчность, в которой (   Читать дальше...   )Производство: США, National GeographicЖанр: Документальный, история, биографияПеревод: Двуголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~ 00:42:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABCC272D20C9F569DE98E41F545F6FA077FADBAC
+magnet:?xt=urn:btih:6BDF2F23D60BAF1614C772C12E6D08728DC2EEC9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -449,28 +501,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521373   (765380) от 02.01.2022
+###  Публикация: 1279384   (766107) от 29.01.2019
 
-VA - Parousia 4 (2021) [AAC|~325 Kbps] <Organic House, Deep House>
+Обои - Wallpapers Мир животных 1920x1200 (Part 2) [JPEG]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766107.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marcelo Berges - Isometric Traffic (6:13)
-02. Max TenRoM - Sakas (5:36)
-03. Matija, Richard Elcox - Palm Tree Poem (8:15)
-04. Sangeet - The Healing (6:24)(   Читать дальше...   )Жанр: Organic House, Deep HouseПродолжительность: 01:36:29
+Вторая часть тематических обоев на тему мир животных, для Вашего рабочего стола. В данном сборнике Вы найдете различные виды обитателей природы на нашей земле. Котов и кошек, тигров, слонов, различных птиц, змей, белок и многих других.Формат: JPEGРазрешение файлов: 1920x1200
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CEB0E5509DC3385C30300CAE101A588C8DA72B64
+magnet:?xt=urn:btih:E0BC1DE1664A4E21878CD0B4DA2AEAF802FE8B41
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -478,28 +527,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521372   (765379) от 02.01.2022
+###  Публикация: 1521336   (766106) от 01.01.2022
 
-VA - Parousia 3 (2020) [AAC|~326 Kbps] <Organic House, Deep House>
+Midnight Danger - Nights at Lake Milsen (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Darksynth, Synthwave>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Electronic
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766106.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. M.ONDE - Miijetho (6:13)
-02. Matija, Richard Elcox - A Lama With No Name (8:50)
-03. Sangeet - Restorative Circles (8:26)
-04. San Miguel - Avalos (7:15)(   Читать дальше...   )Жанр: Organic House, Deep HouseПродолжительность: 02:01:38
+01. Into an Abyss of Fear (feat. Sonia Anubis) (4:55)
+02. Maniac (feat. Martin Sweet) (4:44)
+03. Fatal Attraction (feat. Max Cruise) (4:43)
+04. A Storm Out There (3:25)(   Читать дальше...   )Жанр: Retrowave, Darksynth, SynthwaveПродолжительность: 00:38:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56D1BA07C8A567E2661444ECFCE6F7CE12381672
+magnet:?xt=urn:btih:E84FF1C1F88A685604630DBD673EB429B27D690B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -507,28 +556,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521416   (765378) от 02.01.2022
+###  Публикация: 1521292   (766105) от 01.01.2022
 
-VA - Aurea (2019) [AAC|~311 Kbps] <Organic House, Deep House>
+Петр Волцит | Почемучкина энциклопедия. Много вопросов - много ответов (2015) [PDF]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766105.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Steffen Ki - New Earth (8:08)
-02. Jarana, MonoAbe - Tragedia (6:38)
-03. Mose, Michael Ben Shimon - Ocean of Silence (URUCUM Remix) (8:44)
-04. Omerar Nanda, Elif Kaya - Dreamy Girl (7:21)(   Читать дальше...   )Жанр: Organic House, Deep HouseПродолжительность: 01:29:00
+В сборнике произведений П.Волцита "Много вопросов - много ответов" герои книг - Маша и Серёжа узнают много чего интересного: откуда берутся ветер, дождь, снег, молния, гром и другие атмосферные явления; откуда взялись и как человек добывает полезные ископаемые - нефть, газ, уголь; об истории воздухоплавания и почему самолёты летают; о круговороте воды в (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7894A05403982CCEE2F2AA9C6BDB63953663605
+magnet:?xt=urn:btih:B396E197384E98309DF9A0A8BFBC66396529B295
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -536,28 +582,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521368   (765377) от 02.01.2022
+###  Публикация: 1521224   (766104) от 01.01.2022
 
-VA - Parousia (2018) [AAC|~333 Kbps] <Organic House, Deep House>
+Alestorm - Концерт в Тилбурге / Alestorm - Live in Tilburg (2021) BDRemux [H.264/1080i]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766104.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aluna - Bobinsana (Original Mix) (8:25)
-02. Vincent Gericke - Inbrunst (Original Mix) (7:13)
-03. Monada - Space of Elohim (Original Mix) (5:41)
-04. Thommie G - Klezmerized (Original Mix) (8:49)(   Читать дальше...   )Жанр: Organic House, Deep HouseПродолжительность: 01:24:47
+"Live in Tilburg" - первый концертный BluRay шотландской пауэр метал группы Alestorm. Коллектив на сцене уже почти 15 лет, но лишь после прихода на студию Napalm Records обрел популярность и сформировал полный состав. Песни группы посвящены пиратам, а свою музыку они называют "Настоящий шотландский пиратский метал".
+
+Треклист:
+01. Intro(   Читать дальше...   )Производство: Германия, Napalm RecordsЖанр: Рок, метал, концертная программаРежиссер: Лассе ЛаммертАктеры: Alestorm, Кристофер Боус, Мэт Бодор, Гарет Мёрдок, Эллиот Вернон, Питер АлкорнПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: отсутствуютПродолжительность: 01:34:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:870230569086241926A185C58CC7355F8F87D6AB
+magnet:?xt=urn:btih:73535A9633331A35E730A981F2AD8D93E0F2F14E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -565,25 +611,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521390   (765376) от 02.01.2022
+###  Публикация: 1521181   (766103) от 01.01.2022
 
-Журнал | Auto [Italia] №2 (февраль 2021) [PDF] [It]
+Агитпроп. Год сдал. Год принял! (31.12.2021) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уходящий год не обманул ожиданий. Казалось, что 2020-ый не переплюнуть, но по многим параметрам это получилось. Оглянувшись назад, готовясь с головой нырнуть в год следующий, попробуем коротко перечислить то, чем запомнился нам 21-й.Производство: Россия, Авторский блог Константина Семина «Агитация и Пропаганда»Жанр: ПолитикаСубтитры: ОтсутствуютПродолжительность: 00:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53FFA77F651E1A76181ACADBB751155CCB2C6906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521350   (766102) от 01.01.2022
+
+VA - Anjunadeep. The Remixes 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lakou Mizik – Sanba Yo Pran Pale (DJ Koze Remix Radio Edit) (05:13)
+02. Alan Fitzpatrick – Warning Signs (CamelPhat Remix) (03:14)
+03. Eli & Fur – Come Back Around (Maya Jane Coles Remix) (03:42)
+04. CRi – Stranger (DJ BORING Remix) (04:35)(   Читать дальше...   )Жанр: Progressive House, Deep House, Tech HouseПродолжительность: 03:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B0D4E78C4C6B98C43563D562DD2C56284CA3150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521353   (766101) от 01.01.2022
+
+Журнал | Heritage Commercials [UK] №1 (январь 2022) [PDF] [En]
 
 >>Автомобили
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766101.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новости, тест-драйвы, новейшие авто, 1-ые воспоминания о поступающих на авторынок новостях, а еще советы по автосервису и покупке каров.Жанр: Автомобильный журналФормат: PDF
+Журнал Heritage Commercials является самым ярким в Великобритании полноцветным журналом для любителей классических и старинных коммерческих автомобилей. Журнал Heritage Commercials отмечает дни, когда на дорогах еще было тихо, а вождение грузовика было веселым и тяжелым делом.Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C23E046745F413A8712555E199C70DC6874FA97
+magnet:?xt=urn:btih:30DDFE6984B687D084B63BDB0B3A42CE18491FFF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -591,135 +692,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126467   (765375) от 18.04.2017
+###  Публикация: 1124184   (766100) от 17.04.2017
 
-VA - I Love Music! - Gothic Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Gothic Metal, Doom Metal, Symphonic Metal>
+Чокнутый профессор / The Nutty Professor (1996) BDRip [H.264/720p]
 
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766100.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Batalion d'Amour - Bez Nas 5:56
-002. Bitterfeldt - Eines Tages 8:47
-003. Bitterfeldt - Nordlicht 9:35
-004. Bliss In The Abyss - The Book Of Silence 7:16(   Читать дальше...   )Жанр: Gothic Metal, Doom Metal, Symphonic MetalПродолжительность: 08:04:17
+Любовь заставляет страдающего от чрезмерной полноты профессора Шермана Клампа провести над собой смелый эксперимент. Чудодейственный препарат превращает неуклюжего, но доброго и деликатного толстяка в нахального повесу-ловеласа. Две ипостаси гениального ученого вступают в борьбу за право существования. Неконтролируемые метаморфозы героя порождают множество комических (   Читать дальше...   )Производство: США / Imagine Entertainment, Universal PicturesЖанр: Комедия, Фантастика, МелодрамаРежиссер: Том ШэдьякАктеры: Эдди Мёрфи, Джада Пинкетт Смит, Джеймс Коберн, Ларри Миллер, Дэйв Шапелл, Джон Алес, Патриция Уилсон, Ямал Миксон, Николь МакОли, Хэмилтон Фон УоттсПеревод: Многоголосый закадровый, двухголосый закадровый, авторскийСубтитры: Русские, английскиеПродолжительность: 01:35:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA455D1583DFC31737EB75AFA46392C33FF99116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126476   (765374) от 18.04.2017
-
-Гольф-клуб / Caddyshack (1980) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гольф… Спокойный, размеренный и интеллигентный вид спорта… Как бы не так! В нашем клубе любителей этой игры кипят невиданные страсти! Вот, например, Карл Спаклер, безумный смотритель поля, уже объявил Третью Мировую Войну… суслику-террористу. А важный судья Смайлз так одержим игрой, что не замечает, как его прелестная племянница похотливо поглядывает на «местных» (   Читать дальше...   )Производство: США / Orion PicturesЖанр: КомедияРежиссер: Харольд РэмисАктеры: Чеви Чейз, Родни Дейнджерфилд, Тед Найт, Майкл О’Киф, Билл Мюррей, Сара Холкомб, Скотт Коломби, Синди Морган, Дэн Ресин, Генри УилкоксонПеревод: Дублированный, АвторскийСубтитры: АнглийскиеПродолжительность: 01:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A53843B44DA72AACBB3A044FDB34E411FAB35573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126064   (765373) от 18.04.2017
-
-А.И. Еремкин и др. | Экономика энергосбережения в системах отопления, вентиляции и кондиционирования воздуха (2008) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены методики расчетов экономической эффективности применения средств энергосбережения в системах отопления, вентиляции, кондиционирования воздуха. Приведены примеры по основным разделам пособия и примеры расчета на ПЭВМ. Пособие предназначено для студентов специальности "Теплогазоснабжение и вентиляция", аспирантам и инженерно-техническим работникам.Жанр: Экономика, энергетика, коммунальное хозяйствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF347C5F1C6C1F470DAE135B55C83EBEC3C4FB2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126308   (765372) от 18.04.2017
-
-Discovery. Техногеника. Гиперболоидные конструкции (2017) HDTVRip [H.264/720p-LQ] (Сезон 2, серия 9 из 13)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765372.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1899 году известный российский инженер Владимир Шухов запатентовал гиперболоидную форму конструкций, положив начало строительству гиперболоидных башен. Одна из самых известных – радиобашня на Шаболовке, которая в 2015 году была включена в список Памятников мировой культуры. Идея Шухова, которая позволяла строить легкие и прочные здания, не знала аналогов в мировой (   Читать дальше...   )Телекомпания: Discovery Channel РоссияЖанр: Документальный, История, ТелепередачаПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1BC1D41F432154FC436536C0B785404DBA15D1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126565   (765371) от 18.04.2017
-
-VA - I Love Music! - Heavy Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal, Progressive Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765371.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 13Tries - Burned Down 4:22
-002. Al Atkins - Heavy Thoughts 6:12
-003. Almah - Capital Punishment 4:01
-004. Ancestral - Lust For Supremacy 5:50(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Progressive MetalПродолжительность: 11:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:002FD3383C586E6FF7815F6A7F9BB1B6CD412E0B
+magnet:?xt=urn:btih:CB3E5812EF354603B52C3516519B70351231B54E
 ```
 
 https://mybot314.ru/tekegram_catalog/

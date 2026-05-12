@@ -1,3 +1,55 @@
+###  Публикация: 1027778   (694044) от 20.06.2016
+
+Проекты - VideoHive - Cartoon Explainer Toolkit - 16082002 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cartoon Explainer Toolkit - большой пакет красивой текстовой анимации.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05ABC5D94A5DCD8F30992FFAC37E754C79D21AE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027773   (693902) от 20.06.2016
+
+Проекты - VideoHive - Cinematic Opener 2 - 16345806 [AEP]
+
+>>Проекты
+>>Трейлеры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cinematic Opener 2 - интро к вашим проектом с эффектом паралакса.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16DCA1200FE9B4D0DE60F159C8006C786C86D969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027797   (693894) от 20.06.2016
 
 Проекты - VideoHive - Cinematic Promo Trailer - 9065555 [AEP]
@@ -617,59 +669,6 @@ Alphabet 3D Neon LED - Abc And Social Media Icons - последовательн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CD197091A434778B63F8C812D10D23049D3A7FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221907   (691122) от 26.04.2018
-
-Проекты - Motion Array - Technological Opener - 76525 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Technological Opener - это великолепный шаблон After Effects, с ультрасовременным дизайном, динамичной текстовой анимацией и модными эффектами перехода.
-Отличный способ показать свое портфолио, спортивные и модные фотографии или использовать в качестве вступления к вашим презентациям, промо-акциям.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16C27750D3A94C93B2CC917E7084E3F622F69EA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221844   (691057) от 26.04.2018
-
-Проекты - RocketStock - Ceremony [AEP]
-
->>Проекты
->>Свадебные и романтические (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет для стильного оформления свадебного видео.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2003910F173DA60EB487C083895BC95E79A7433
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,120 @@
+###  Публикация: 956832   (327604) от 17.11.2015
+
+Clan Of Xymox "Visible" (2008) 2хDVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Video Clips
+1.1	Heroes (Slow Version)	4:08
+1.2	Dark Mood	3:55
+1.3	Stranger	8:10(   Читать дальше...   )Жанр: Darkwawe, Gothic, ElektronicРежиссер: Ronny MooringsПеревод: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A93216CFB38C5E29B7F04C89C2628F8E81ADD565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957306   (327548) от 17.11.2015
+
+Bon Jovi - Super Rock (1984) VHSRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Bon Jovi на фестивале Japan Super Rock,
+Seibu Stadium, Tokyo, Japan, 11-08-198401. She don't know me
+02. Breakout
+03. Get ready
+04. RunawayЖанр: RockПродолжительность: 00:25:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967E014D1639B960ABBC83230C543389A4B6BFE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956696   (327495) от 17.11.2015
+
+Дима Билан - 33 (2014) HDTVRip [H.264/1080i-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый канал представляет телевизионную версию новой концертной программы Димы Билана "33". Победитель "Евровидения" и ветеран "Голоса" отметил свое 33-летие масштабным, технологичным шоу, которое не оставит равнодушными телезрителей. Помимо признанных хитов прозвучат и новые песни ("Не молчи", "Телепорт", "Ты (   Читать дальше...   )1. Против правил.
+2. Ты должна рядом быть.
+3. Часы (дуэт с Андреем Цветковым, Голос-2).
+4. Телепорт.(   Читать дальше...   )Жанр: Pop
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16EBCE10A39B1F31DE047D68A0B67D6F7C25B211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 674853   (327350) от 19.11.2014
+
+The London Rock and Roll Show (1972/2005) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлена запись рок-н-ролльного буйства 5 августа 1972 г. на лондонском стадионе Уэмбли. Несмотря на не самое лучшее качество видеосъемки, концерт НЕПЕРЕДАВАЕМО ХОРОШ! Потрясающий драйв, излучаемый такими гигантами рок-н-ролла как Little Richard, Chuck Berry, Jerry Lee Lewis не оставит равнодушным ни одного фаната рок-н-ролла!. Увидев этот концерт, немного начинаешь (   Читать дальше...   )01. Houseshakers- Be-Bop-A-Lula
+02. Bo Diddley - Road Runne
+03. Bo Diddley - Bring It to Jerome
+04. Bo Diddley - Mona(   Читать дальше...   )Жанр: Концерт, Rock'n'rollПродолжительность: 01:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9353F08053E576DF224943B304A3B6469BD92C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957713   (326651) от 18.11.2015
 
 Wayra - Dreams of the Wind (2006) DVDRip
@@ -607,110 +724,6 @@ Roger Waters - The Wall (2014) BDRip [H.265/1080p-LQ] [PR]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C23CDBEF96BA4AEE478BC7F73AFE54F97AEC8917
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582080   (320966) от 29.11.2012
-
-Xzibit. Napalm (2012) [H.264/720p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RAP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE7FED1E461A19167FA026B379E996836EE95CA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582075   (320949) от 29.11.2012
-
-Green Day. Nuclear Family (2012)  [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ROCK
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F1476174D2BDDAD5DB5716E9E8C63ED5EDC4E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582084   (320760) от 29.11.2012
-
-Papajam. Every Day Every Night (2012) [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A3D105C6AA69C363A8B4918CF9D95BDCCFC2A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582054   (320737) от 29.11.2012
-
-Ellie Goulding. Figure 8 (2012) [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:159E69C1F90089C959CF41549FBDADF2EB55D9C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

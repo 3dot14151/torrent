@@ -1,3 +1,32 @@
+###  Публикация: 1789164   (68378) от 02.04.2025
+
+Paul Parker - Strong (The Album) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strong (Fantasia Mix) (6:20)
+02. So Dangerouos (6:22)
+03. You Cast A Spell (Mondomix) (6:01)
+04. More Than Just A Feeling (6:16)(   Читать дальше...   )Жанр: Pop, Disco, Hi-NRGПродолжительность: 01:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03BC475E4F094E9098A7AA8E0086CF001AFD93A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808442   (64950) от 25.07.2025
 
 Rapture - Rapture (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk>
@@ -710,35 +739,6 @@ VA - ZYX Italo Disco Dub Versions (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1159B2C786C615F7539EEC01CD7A1AC542997587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739797   (48474) от 29.07.2024
-
-Mflex Sounds - Shining Echoes (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Italo Synthwave>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Sand (redesigned) 05:55
-02. Clap Your Hands 05:37
-03. Waking Up 04:59
-04. Destiny 05:59(   Читать дальше...   )Жанр: Italo-Disco, Italo SynthwaveПродолжительность: 01:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D17B4F7F6AB485476D06AF0F55965B688B54265
 ```
 
 https://mybot314.ru/tekegram_catalog/

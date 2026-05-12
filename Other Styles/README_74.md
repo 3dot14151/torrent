@@ -1,3 +1,124 @@
+###  Публикация: 511723   (666103) от 17.06.2012
+
+Hrsta - 3 albums (2001-2007) [FLAC|Lossless] <Post-Rock, Experimental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_666103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entre La Mer Et L'eau Douce (03:50)
+02. Beau Village (05:01)
+03. The Orchard (04:34)
+04. Tomorrow Winter Comes (04:11)
+05. Haunted Pluckley (02:51)
+06. Hechicero Del Bosque (08:41)
+07. Saturn Of Chagrin (05:10)
+08. Kotori (04:30)
+09. Holiday (03:09)2001-2007Жанр: Post-Rock, ExperimentalПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224547   (666012) от 10.05.2018
+
+Kevin Wood - Eternal (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Search of Meaning (6:14)
+02. Light Shines Through (5:15)
+03. Father’s Love (2:59)
+04. Love’s Embrace (6:03)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:748B28F22ED59492E99B7A48632233644056CA4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224481   (666008) от 10.05.2018
+
+Jupiter Panic - Days of Sorrow (2018) [MP3|320 Kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Days of Sorrow (3:26)
+02. The Return (5:06)
+03. Retired By a Mistake (3:18)
+04. Futura (4:50)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5D040F7C50BCB1A70075FE0A9AF3993D39FDC15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137659   (665421) от 28.05.2017
+
+David Garcia Diaz - RiME (2017) Deluxe Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Song of the Sea (feat. Mirella Díez Morán)
+02. Departure
+03. Elder Silence
+04. Promenade(   Читать дальше...   )Жанр: ScoreПродолжительность: 1:27:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8527A324B9D7DA4A35A130990E1A181CE0033F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 511564   (664684) от 18.06.2012
 
 VA - Союз нерушимый... - Песни и танцы народов СCCP (2007) 5 CD [MP3|320 kbps] <Retro, Folk>
@@ -663,137 +784,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:755178FFC244F255C296C4471D3F4488A8E61235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514085   (656621) от 25.06.2012
-
-Daniel Licht - Silent Hill: Downpour / Сайлент-Хилл: Ливень (2012) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656621.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Silent Hill (Feat. Jonathan Davis) (3:10)
- 2. Intro Perk Walk (2:48)
- 3. In The Ravine (3:18)
- 4. Bus To Nowhere (3:42)
- 5. Meet JP (2:15)
- 6. Stalking For Dinner (4:27)
- 7. Don`t Go In The Basement (2:27)
- 8. Railcar Ride (3:01)
- 9. Downpour Intro (4:38)
- 10. Jump Monster (1:40)(   Читать дальше...   )2012Жанр: OSTПродолжительность: 00:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98776846F7DD875E8BAC768C43FE6AB49AB8552D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226346   (655655) от 20.05.2018
-
-VA - Latino Fitness Club 2018 (3CD) (2018) [MP3|320 Kbps] <Pop, Latin-Dance, Reggaeton>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655655.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-Продолжительность: 01:04:13
-
-01. J Balvin - Mi Gente(   Читать дальше...   )Жанр: Pop, Latin-Dance, ReggaetonПродолжительность: 01:09:08
-
-01. Anitta & J Balvin - Downtown
-02. Kaysha - Shape of You (Kizomba Remix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0066E73DC6C557091AE4BAA4276C7A3D364E1C35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514784   (655328) от 26.06.2012
-
-Нирвана / Nirvana (by Mauro Pagani, Federico De Robertis & VA) - 1997, FLAC (tracks+.cue), lossless (1997) [FLAC|Lossless]<Score / Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_655328.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Whatever It Is - Pagani, Della Volpe and Now (vocals) 4:17
-2.John Barleycorn (Must Die) - S.L. Winwood and Traffic (vocals) 6:24
-3.Eqbirotz - Mauro Pagani 2:34
-4.Sodae - Cabral, Morais and Cesaria Evora (vocals) 4:54
-5.Hotels - Federico De Robertis 3:51
-6.Chelsea Hotel - Mauro Pagani 3:27
-7.Nirvana - Federico De Robertis 6:54
-8.Last Dance - Eraldo Bernocchi, Bill Laswell and Monks of the Gyued Monastery (vocals) 3:41
-9.Town House - Mauro Pagani 1:50
-10.Tema di Lisa - Federico De Robertis 1:45(   Читать дальше...   )Жанр: Score / SoundtrackПродолжительность: 01:04:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903976   (655102) от 02.06.2015
-
-Marcin Przybylowicz & Mikolai Stroinski – The Witcher 3: Wild Hunt (2015) Unofficial / Game-Rip Soundtrack [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655102.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ambient Hims House (Mix)
-002. Ard Skellig - General Combat Layer 01
-003. Ard Skellig - General Combat Layer 02
-004. Ard Skellig - General Combat Layer 03(   Читать дальше...   )Жанр: GameRip, SoundtrackПродолжительность: 11:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:336E87523ABD531C5C5A7DA79C88A209D496792C
 ```
 
 https://mybot314.ru/tekegram_catalog/

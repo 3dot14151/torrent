@@ -1,3 +1,55 @@
+###  Публикация: 562778   (404638) от 21.10.2012
+
+Artworks by Derek Jones [Графика]
+
+>>Графика, Арт, Разное
+>>Классическое искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Artworks by Derek Jones
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A858DB00B8FFE7AA8EEDF81038E32AF816D57186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562800   (404637) от 21.10.2012
+
+[Фотография] Photos from Olga Zavershinskaya
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы фотографа Olga Zavershinskaya.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6C56F6D36B19E4E851683084A441743861B60FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 563225   (404635) от 21.10.2012
 
 [Фотография] Photo Manipulations from CryingSilence
@@ -640,58 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9324590EC3ED2E35AD4ED7D224A0B2EA5995E12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566178   (395939) от 30.10.2012
-
-[Рисованая графика] Artworks by Gnacio Bazan Lazcano
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художника-иллюстратора Gnacio Bazan Lazcano.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0178B65F7037976CE122083E7837484E55136417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 400727   (395914) от 17.10.2011
-
-Аватарки - Коллекция аватар 22000 шт. [JPEG, GIF]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка аватар на любой вкус, включая анимированныеФормат: JPEG, GIFРазрешение файлов: 98x98 - 400x300
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20151BB284A3032D53F372426DAF99FEFD007DEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

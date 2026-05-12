@@ -1,186 +1,22 @@
-###  Публикация: 1004680   (838533) от 06.04.2016
+###  Публикация: 1379457   (839574) от 29.04.2020
 
-Вести в 20-00. Большие Вести. Россия HD (06.04.2016) HDTVRip [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838533.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире - смотрите в последних выпусках новостей телеканала «Россия».В этом выпуске: Россия и Австрия укрепляют сотрудничество. В Кремле переговоры на высшем уровне. Говорили о Сирии, санкциях и отдельно о Турции. В Голландии завершается референдум, который покажет отношение жителей к Евросоюзу и Украине. Самый длинный в России мост, самый большой на Черном море плавучий кран и пять с половиной тысяч свай.Телекомпания: Россия HDЖанр: ТелепередачаПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:417427F0C4F763C0263CDEB45C297C7D78AB3124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113029   (838532) от 11.03.2017
-
-Bad Company - Live 1977 & 1979 (2016) [FLAC|Lossless|tracks + .cue] <Blues Rock, Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сформированная в 1973 году команда "Bad Company" являлась настоящей супергруппой, поскольку все ее участники ранее зарекомендовали себя в других известных проектах. Так, главные зачинщики всего дела Пол Роджерс (вокал) и Саймон Кирк (ударные) снискали себе славу во "Free", гитарист Мик Ральфс пришел из "Mott The Hoople", а басист Боз (   Читать дальше...   )Список:
-CD1 - Live at The Summit, Houston, Texas, U.S.A - May 23, 1977
-CD2 - Live at The Empire Pool, Wembley, London, England - March 9, 1979Жанр: Blues Rock, Classic Rock, Hard RockПродолжительность: 02:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D986782B0F0D88F0E1C142A36E3938B612C9748A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004300   (838531) от 06.04.2016
-
-Газета | Попутчик-Криминальное чтиво №4 (2016) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838531.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Криминальное чтиво» - свежая информация и фотографии с места событий, истории о криминальном мире, детективное чтиво, свежие новости и многое другое. В каждом номере вы найдете статьи о самых громких и сложных уголовных делах, которые когда-либо рассматривались в суде.Жанр: История, криминалистика, детективФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:902447C03DA886D640CFC81F14100AA7EC1F1E1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113381   (838530) от 11.03.2017
-
-Военная тайна с Игорем Прокопенко (2017.03.11) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838530.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 03:27:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7327392AE9F9B71FD17FA9AA942ECDAAB0651B31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004583   (838529) от 06.04.2016
-
-Время покажет с Петром Толстым (06.04.2016) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838529.jpg" />
-</div>
-
-
-###  Подробнее
-
-В студии программы "Время покажет" пытаются понять, как бороться с неэффективным использованием бюджетных средств. Более 2,5 миллиардов рублей в  2015 году потратили органы власти и госкомпании на предметы роскоши и развлечения. Так правительство Хабаровского края настолько любит вкусно поесть, что их банкеты шесть раз попали в "Индекс расточительности" (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:271E5BE38D156851943F7CB7F9CCBB881C0C6C57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004590   (838528) от 06.04.2016
-
-VA - Goa Session by X-Noize (2016) [MP3|320 кб/с] <Trance, Progressive Trance, PsyTrance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. X-NoiZe vs. SpaceCat - No Rules 06:43
-02. Iliuchina - Lucid Dream 06:47
-03. X-NoiZe & Volcano - Volcanoize 06:49
-04. Capital Monkey vs. Burn in Noise - Capital Noise 06:41(   Читать дальше...   )Жанр: Trance, Progressive Trance, PsyTranceПродолжительность: 02:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773ECCB049A39917609393B113962705CE1DFC59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113547   (838527) от 11.03.2017
-
-Mirror for Sony TV 1.4.1 [En]
+iBarcoder 3.11.3 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839574.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отображение экрана для телевизоров Sony
-Приложения для зеркального отображения экрана вашего Mac на любом Смарт-ТВ Sony. Никаких проводов и дополнительных аппаратных средств не требуется!
-
-Приложение работает на любой модели Смарт-ТВ Sony с 2012 и позже.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 марта 2017Разработчик: AirBeamTV BVПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+Cristallight iBarcoder - профессиональный генератор штрих-кодов Mac для создания любого количества отдельных или последовательных штрих-кодов, и их печати в виде красочных этикеток со штрих-кодом в собственном стиле, любого размера или формы или их экспорта в виде файлов графических изображений в обычном векторном и растровом изображении.Тип издания: macOS SoftwareРелиз состоялся: 28.04.2020Разработчик: Cristallight SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE9553DCD796A3FA20687113C07F7C855DE1F731
+magnet:?xt=urn:btih:ECAFF051EA3F1D52DBEC045B0FAE2C044CFBD278
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -188,28 +24,218 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004430   (838526) от 06.04.2016
+###  Публикация: 1379496   (839573) от 29.04.2020
 
-The Three Sounds and The Oliver Nelson Orchestra - Coldwater Flat (1968) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz, Modern Big Band>
+File Cabinet Pro 7.9.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839573.jpg" />
+</div>
+
+
+###  Подробнее
+
+File Cabinet Pro - файловый менеджер строки меню Mac OS. Программа позволяет быстро перейти к нужным файлам, не загружая рабочий стол. Открыть, переместить, переименовать, сжать, добавить теги, удалить, копировать и многое другое, все из строки менюбар. Вы можете открыть множество типов файлов в программе File Cabinet Pro или открыть файлы запустив другие приложения. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.04.2020Разработчик: Writes All Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский и Корейский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AEA59B18FF98020127837287458793175243E35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379514   (839572) от 29.04.2020
+
+Screencast 1.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Думаете о записи своего экрана? Тогда вам понравится Screencast! Screencast - это мощный экранный рекордер, который очень прост в использовании.Тип издания: macOS SoftwareРелиз состоялся: 28.04.2020Разработчик: wegenerlabsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:886F5E1E92B20D4DB11EC2D27C8F3BBD5CDE7F98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379635   (839571) от 29.04.2020
+
+B-Rather - Live @ Virtual Audio, Life Is Music Festival, Argentina 2020-04-25 [MP3|320 Kbps] <Electro House, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MEDUZA ft. Shells - Born To Love
+02. Jack Wins ft. Caitlyn Scarlett - Animals
+03. Galantis - Holy Water (Steff Da Campo Remix) w/Bob Sinclar ft. Steve Edwards - World, Hold On (Children Of The Sky)
+04. Nicky Romero vs. Axwell ^ Ingrosso & Kristoffer Fogelmark - More Than You Replica (B-Rather & Fuerte Edit)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:262E147EE9BC880BE78B928EF202DC2E70971345
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379541   (839570) от 29.04.2020
+
+DoubleTake 2.6.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839570.jpg" />
+</div>
+
+
+###  Подробнее
+
+DoubleTake - приложение предназначено тем пользователям, которым нравятся компактные фотокамеры, но которые мечтают о широкоугольном объективе. DoubleTake позволяет одним перетаскиванием решить эту проблему и получить снимок не хуже, а в некоторых случаях и лучше, чем снятый широкоугольной камерой.Тип издания: macOS SoftwareРелиз состоялся: 27.04.2020Разработчик: © 2016 Echo OneПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96F89E09463698163603AF63A799A3B8CD9B3196
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379527   (839569) от 29.04.2020
+
+VA - Pluto Loves You (2020) [MP3|320 Kbps] <Alternative Rock, Rock, Indie Rock, Punk Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cloud Room - Hey Now Now
+02. The White Stripes - Seven Nation Army
+03. The Subways - Rock And Roll Queen
+04. Depeche Mode - Wrong(   Читать дальше...   )Жанр: Alternative Rock, Rock, Indie Rock, Punk RockПродолжительность: 01:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31E1836D181783ADEF36290304905AD6200CE75C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379646   (839568) от 29.04.2020
+
+ExactScan Pro 20.4.27 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839568.jpg" />
+</div>
+
+
+###  Подробнее
+
+ExactScan – современное решение для сканирования, в состав которого входит более 400 различных драйверов для сканеров документов от таких изготовителей как Avision, Canon, Fujitsu, HP, Kodak, Oki, Panasonic, Visioneer и Xerox. для которых изготовитель не предоставляет драйверы под операционную Mac OS, и, соответственно, без таких драйверов они не могут работать под (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: ExactCODE GmbHПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22E4218D767BE39C68DAF9741E4025260A40B0D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379641   (839567) от 29.04.2020
+
+Logoist 4 v4.0.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839567.jpg" />
+</div>
+
+
+###  Подробнее
+
+От простых логотипов до разработки дизайна. Понадобится всего лишь мгновение для создания впечатляющих изображений и векторной графики с помощью Logoist 3.
+
+Наше универсальное приложение предоставляет вам всё, что вам нужно, чтобы воплотить свои творческие идеи на практике или найти новое вдохновение! Оно подходит для профессиональных дизайнеров и иллюстраторов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.04.2020Разработчик: Synium SoftwareПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EB77E3A6E034DB34ABF89DCACE313C206B62271
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379577   (839566) от 29.04.2020
+
+Scott Hamilton & Alan Barnes - Hi-Ya (2010) Woodville Records [FLAC|Lossless|image + .cue] <Mainstream Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839566.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Lonely Bottles [03:04]
- 02.The Look Of Love [02:32]
- 03.Georgia [04:59]
- 04.Grass Is Greener [03:03](   Читать дальше...   )Жанр: Hard Bop, Soul Jazz, Modern Big BandПродолжительность: 00:32:48
+01. Hi-Ya [5:54]
+02. First Klass [8:46]
+03. The Jeep Is Jumpin'. [7:50]
+04. Broadway Babe [7:17](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:01:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB05172D564BF6C66476AB6EB26FF1FB3B49DC18
+magnet:?xt=urn:btih:462DB65F8D4E63C1B7027F9DEF4AB6B25C5D2B8C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -217,80 +243,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113056   (838525) от 11.03.2017
+###  Публикация: 1379521   (839565) от 29.04.2020
 
-Bridget McMahon - Celtic Woman - Black Is the Colour (2016) Single [FLAC|Lossless|WEB-DL|tracks] <New Age, Vocal>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celtic Woman Black Is the Colour [00:04:55]Жанр: New Age, VocalПродолжительность: 00:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46C40C317F2219E9A2CBF795163D90DCB2A89B18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004666   (838524) от 06.04.2016
-
-В теме. Быть или не быть? (06.04.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто и для чего организовал референдум и прислушается ли к нему Брюссель, расскажет в программе "В теме" политолог Алексей МартыновТелекомпания: Москва 24Жанр: ДокументальныйПродолжительность: 00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF7193991E7A3DC0877046DF16FAE749244EC6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004304   (838523) от 06.04.2016
-
-VA - Trance Maniacs Party: Melody Of Heartbeat #161 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
+VA - Beatport Chillout: Electro Sound Pack #70 (2020) [MP3|320 Kbps] <Chillout, Ambient, Lounge>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839565.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wach & Leven Mervox - Whiteout (Original Mix) 06:38
-02. Luke Terry ft. Love Dimension - Phoenix (Original Mix) 05:45
-03. Witness45 feat. Jess Morgan - Lightspeed (Original Mix) 05:36
-04. Kayan Code feat. Juha V - Tear From The Stars (Original Mix) 06:07(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:56:47
+001. Pearldiver - Hold 'em Down
+002. Absentune - Todo Sigue
+003. Marcelo Berges - Montañas
+004. Giovanni Lucchetti - Su Tramont(   Читать дальше...   )Жанр: Chillout, Ambient, LoungeПродолжительность: 07:43:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5213BD6D33DF027C3168BB5F3AF292CFC4BA86E5
+magnet:?xt=urn:btih:DAFBFFF7142A3215F0A6AE663CF4DC6C671D89C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -298,28 +272,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004280   (838522) от 06.04.2016
+###  Публикация: 1379668   (839564) от 29.04.2020
 
-VA - Deeper Than Deep: A Brilliant Selection of Soulful Deep House Grooves (2016) [MP3|320 кб/с] <Deep House, Chill House>
+Souldia - Backstage (2020) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839564.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dava Di Toma - My Way
-02. Zirkuskind - People Are People - Christian Bruder Long Beach Style Mix
-03. 7Register - Arizon
-04. Joyfull Family - Fresh(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:56:51
+01. Invité mystère
+02. SKRAB
+03. Backstage
+04. Barillet(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 01:12:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3B005FCBBDFCFBD92A1CE1F575B5F08B18E3EFE
+magnet:?xt=urn:btih:4D2E0D8C1653FC84D6995C0CC4268023884E0D6B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -327,112 +301,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004493   (838521) от 06.04.2016
+###  Публикация: 1379441   (839563) от 29.04.2020
 
-VA - Miami The Warm Up (2016) [MP3|320 кб/с] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BRKLYN - Steal Your Heart (Bougenvilla Radio Mix) (feat. Lenachka) 02:53
-02. Noah Neiman - Meteorites (Original Mix) (feat. Haliene) 04:58
-03. WildOnes - You Dancing (Inpetto Remix) (feat. David Julien) 04:27
-04. Audien - Keep This Memory (Original Mix) 08:38(   Читать дальше...   )Жанр: Trance, Uplifting Trance
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0599BD704010FEBA08BACDF992B8618FADF5575B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004376   (838520) от 06.04.2016
-
-VA - Innocent Magic Future Spring (2016) [MP3|320 кб/с] <Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ciro Visone The - Drive (Glynn Alan Remix) 08:37
-02. Lema & Shafer Ft Roxanne Emery - Summer Air (Chris Metcalfe Remix) 07:11
-03. Attila Syah - When I See You Smile (Original Mix) 07:20
-04. Emanuele Braveri & Lisaya - Victory (Original Mix) 07:40(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 09:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DCF32DDF30E8D625E9B2F210A9DD015F86BE307
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004303   (838519) от 06.04.2016
-
-Журнал | Цветок №6 (288) (март 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практический журнал для цветоводов и дачников, рассказывает об уходе за садовыми и комнатными растениями, о возможностях ландшафтного дизайна. На страницах журнала собран лучший опыт цветоводов — профессионалов и любителей.Жанр: Домоводство, цветоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:823572FFACF0BAE3DC26C608BC02D593FFFC04FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004459   (838518) от 06.04.2016
-
-FocusList: daily planner & focus timer 1.0.3 [En]
+Swift Publisher 5 v5.5.4 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839563.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Планировщик и таймер фокусировки на основе Timeboxing и техники Pomodoro
-FocusList - приложение, чтобы планировать день и быть более продуктивным с использованием техники Pomodoro.
-
-Вот как:(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 марта 2016Разработчик: Vojtech RinikПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+Swift Publisher - это пакет графических утилит для macOS особенно пригодится тем, кто занимается полиграфией. Swift Publisher предназначен для создания макетов документов, печати листовок, газет, брошюр, буклетов и подобных документов. Swift Publisher работает с шаблонами страниц, благодаря чему пользователь может разместить на них объекты, используемые одновременно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.04.2020Разработчик: Belight Software, LtdПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Испанский, Итальянский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CAC67FF43A26486DEBD4763724BF48FBE3BF56F0
+magnet:?xt=urn:btih:BA418DFA7FF52D0947725433769F530DAFE25E0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -440,25 +327,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004438   (838517) от 06.04.2016
+###  Публикация: 1379548   (839562) от 29.04.2020
 
-Газета | Народный совет №9 (Февраль 2016) [PDF]
+Alan Barnes, Scott Hamilton with the David Newton Trio - Zootcase (2008) Woodville Records [FLAC|Lossless|image + .cue] <Mainstream Jazz>
 
->>Журналы
->>Другие журналы
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839562.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйФормат: PDF
+01. Zoot Case [5:53]
+02. Stella By Starlight [8:33]
+03. Bean Soup [7:48]
+04. Stardust [5:47](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:16:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DC80BDC1DD99982620A8D680F90CE5869968C6A
+magnet:?xt=urn:btih:6C504E2662E1B860692760091A23FEB3E3B6A986
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -466,27 +356,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004510   (838516) от 06.04.2016
+###  Публикация: 1379643   (839561) от 29.04.2020
 
-External Editors For Photos 1.0.2 [En]
+Blocs 3.4.8 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839561.jpg" />
 </div>
 
 
 ###  Подробнее
 
-External Editors For Photos добавляет расширение к приложению Photos, которое позволяет редактировать фотографии с помощью любого редактора изображений на вашем Mac.
+Blocs - простой способ создания красивых сайтов, который избавляет вас от необходимости написания кода вручную. Blocs генерирует хорошее качество кода без лишнего "мусора" и обеспечивает новый уровень работы, помогая Вам сосредоточиться на визуальном создании своего эксклюзивного дизайна.
 
-Отредактированные изображения сохраняются немедленно обратно в Photos и ваши оригинальные фотографии обновляются на месте при этом будут сохранены все метаданные. Откройте ваши импортированные файлы (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 февраля 2016Разработчик: Karsten BrunsПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+Кодирование без программирования - Вам не нужно понимать или использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.04.2020Разработчик: BlocsAppПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D74A889AAB7C990E98FEFD7F92EE4C4D92E28385
+magnet:?xt=urn:btih:667FCF0E3C4DFBBCE003AE75CBBFF1ED66554335
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -494,25 +384,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004538   (838515) от 06.04.2016
+###  Публикация: 1379550   (839560) от 29.04.2020
 
-Константин Кайтанов | Повесть о парашюте (1975) [FB2]
+Vivaldi 3.0.1874.33 [Multi/Ru]
 
->>Научная и техническая литература
->>Военная литература
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839560.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Автор книги, летчик-парашютист, рассказывает читателям о своей жизни и о развитии парашютного спорта и нашей стране.Жанр: История, Биографии и МемуарыФормат: FB2
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87B6865A0917CB5A400BB7C971DA5609AC33A5F4
+magnet:?xt=urn:btih:6A4FF93CF942EB35967A12675ECDDF703C4D5AEB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,25 +410,274 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004548   (838514) от 06.04.2016
+###  Публикация: 1379526   (839559) от 29.04.2020
 
-Дмитрий Булгаковский, Ив Рубакин | Живая смерть (2016) [FB2]
+VA - Ice Cream (2020) [MP3|320 Kbps] <Dance, Pop, Electro, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839559.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Illenium - Angel (Intro)
+02. Skrillex, Boys Noize, Ty Dolla $ign - Midnight Hour(   Читать дальше...   )Жанр: Dance, Pop, Electro, Deep HouseПродолжительность: 04:30:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EFEFB5BD6BCB76050EE7367244E9E7E5DBA9C4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379478   (839558) от 29.04.2020
+
+Джесс Кидд | Смерть в стекле (2020) [MP3, Наталья Беляева]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брайди Дивайн – анахронизм в Лондоне конца XIX века или его неотъемлемый атрибут? С одной стороны, добропорядочность ее вызывает сомнения у поборников викторианской морали (достопочтенная вдова, и вдруг на службе у полиции!). А с другой – кому, как не ей, ориентироваться в густом тумане этого монструозного города: она умеет обращаться с трупами и даже если увидит (   Читать дальше...   )Жанр: ДетективПродолжительность: 11:22:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA9D2D7CABB910528467360812F6F4FFF680096C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379445   (839557) от 29.04.2020
+
+VA - Touched By Silence (The Compilation) (2019) Touched Music [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apertures – Missing Skies (05:32)
+02. James Bernard – Repose (04:20)
+03. The Orb – Don't Let It Go To Your Head (The Orb's Smellosound Mix) (04:51)
+04. David Morley – Vertical System (04:29)(   Читать дальше...   )Жанр: Ambient, IDM, ExperimentalПродолжительность: 02:19:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE9BD7A2AAF9C0A4691DBE002B1B6FCA68966BBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379605   (839556) от 29.04.2020
+
+Above & Beyond - Anjunabeats Essentials (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond – Is It Love? (1001) (Grum Remix) (05:18)
+02. Boom Jinx – Phoenix From The Flames feat. Justine Suissa (Maor Levi Remix) (05:52)
+03. Gabriel & Dresden – Something Bigger (feat. Sub Teal) (04:45)
+04. Grum – Running (feat. Jinadu) (05:15)(   Читать дальше...   )Жанр: Progressive House, Tech TranceПродолжительность: 01:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0FD354E677374363BAD9F6C7C7C86566B7C28FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004109   (839555) от 05.04.2016
+
+Мощные лазеры могут скрыть наличие жизни на Земле от инопланетных цивилизаций
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_839555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некоторые известные ученые, включая Стивена Хокинга, высказали и продолжают высказывать озабоченность тем, что человечество без каких-либо ограничений постоянно выдает признаки своего присутствия на Земле. Инопланетные цивилизации, находящиеся на более высоком уровне развития, могут быть привлечены еще оставшимися природными ресурсами Земли, и первый контакт с инопланетянами (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003968   (839554) от 05.04.2016
+
+Аллан Пиз, Барбара Пиз | Говорите точно… Как соединить радость общения и пользу убеждения (2015) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разговаривать умеет и любит каждый, но правильно выбрать тему и интонацию, четко сформулировать и ясно выразить свои мысли, доверительно разговорить собеседника, убедить его в своей правоте – это целое искусство.
+
+Эта книга написана международными экспертами по «технологиям общения», она научит вас отделять фразы формальной вежливости от зерен истины и расшифровывать (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83B4A1048CC55A22249A4C43CE96B922BEFC6F74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004244   (839553) от 05.04.2016
+
+CCleaner 5.16.5551 Slim [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839553.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:863B6AF389DF0B667599703AA9EBB30904D060D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004060   (839552) от 05.04.2016
+
+Рон Лемен, Маршалл Вандрафф | Как рисовать анатомию (2010) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальная подборка уроков от Рона Лемена и Маршалла Вандраффа, представляющая собой полное руководство по анатомии человека и животных, выпущенного в формате журнала. Понимание анатомии - основа великолепных художественных работ и эта подборка от лучших мировых художников-профессионалов позволит художникам любого уровня воплотить своё искусство в жизнь.Жанр: Рисование и живопись для начинающихФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2553D94A78F57E3393C37EAF64685FDD32063AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004271   (839551) от 05.04.2016
+
+Проекты - VideoBlocks - Hashtag Art [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2518D338AEE09DC29C9B28D3A22C773B971A4BB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002671   (839550) от 05.04.2016
+
+Инна Раковская | Корни иврита (2008) [JPEG, MP3]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839550.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книгу включены «Поразительные случаи явления умерших» Д. Булгаковского (1896), готическая новелла «Живая смерть» и сказки о мертвецах лубочного писателя Ив. Рубакина (1865). Все вошедшие в книгу произведения переиздаются впервые.Жанр: Ужасы, Русская классическая прозаФормат: FB2
+Курс "Корни иврита" открывает вам новые перспективы роста на работе и в жизни!
+Этот курс разрушает миф о сложности иврита. Вы с удовольствием осваиваете иврит и убеждаетесь, что это просто, что иврит один из самых легких и доступных языков мира.
+Курс проводится по уникальной методике доктора филологии Инны Раковской.
+Инна Раковская – доктор филологических (   Читать дальше...   )Жанр: Аудиокурс для самостоятельного обученияФормат: JPEG, MP3
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B4C3A2805EE92F538DFFA3900A644B0E4F9CC23
+magnet:?xt=urn:btih:E1A887042A11E1C3EE1380167B97AF2E80E17556
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,160 +685,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004544   (838513) от 06.04.2016
+###  Публикация: 1004187   (839549) от 05.04.2016
 
-IP Scanner Pro 3.47 [En]
+Герман Клименко: Мне стыдно за всё скачанное на пиратских сайтах
 
->>Архив торрентов
->>Архив 4Apple
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_839549.jpg" />
 </div>
 
 
 ###  Подробнее
 
-IP Scanner Pro - сканер локальной сети для Mac OS X
-IP Scanner - приложение сканирует локальную сеть для установления всех компьютеров и устройств с IP-адресом. Результаты сканирования могут быть организованы так, как вам будет удобно. Как только устройство будет определено, ему можно присвоить любое имя и иконку, для более легкого распознавания в общем списке.
- (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 апреля 2016Разработчик: 10base-t interactiveПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+Клименко перестал качать с торрентов, когда появились деньги
+Советник президента по развитию интернета Герман Клименко сообщил, что ему стыдно за скачанные с пиратских сайтов файлы. Он рассказал, что всегда был уверен в необходимости платить за контент.Герман Клименко рассказал «Русской службе новостей», что в былые времена пользовался пиратскими сайтами, но с улучшением (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF2559C10C0C7D08338C5D5CD7ECD9975B525FC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004665   (838512) от 06.04.2016
-
-Политика. Кому выгоден карабахский конфликт? (2016.04.06) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838512.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ночь с 1 на 2 апреля в Нагорном Карабахе начались боевые действия. Позже сторонам удалось достичь перемирия, и на данный момент режим прекращения огня, объявленный Арменией и Азербайджаном 5 апреля, в целом соблюдается. В студии программы "Политика" говорят о том, кому выгоден конфликт в регионе, почему он вновь обострился и какие угрозы в себе несет.Телекомпания: Первый каналЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 01:18:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF9FEB71793AC15328947B467C365D7A819C64B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 652032   (838494) от 03.05.2013
-
-NG: Паранормальное. Круги на полях / Paranormal. Crop circles (2012) IPTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычно воспринимаемые как розыгрыш, загадочные круги на полях появляются в разных частях Земли. Могут ли они быть посланиями из других миров?Жанр: Документальный, научно-познавательныйПеревод: Профессиональный одноголосыйПродолжительность: ~ 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB49DA93DAF3553174092632CE32849491E7B7C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 879097   (838491) от 17.03.2015
-
-Искатель воды / The Water Diviner (2014) BDRip [1080p]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма разворачивается в 1919 году. Это история об австралийце, который отправляется на полуостров Галлиполи, где во время Первой мировой войны проходила ожесточенная битва, чтобы разыскать тела своих погибших сыновей. И неожиданно для себя он обретает надежду там, где и не мыслил ее найти.Производство: Австралия, Турция, США / Fear of God Films, Hopscotch FeaturesЖанр: драма, военныйРежиссер: Расселл КроуАктеры: Расселл Кроу, Джай Кортни, Ольга Куриленко, Изабель Лукас, Дэймон Херриман, Жаклин МакКензи, Джем Йылмаз, Йылмаз Эрдоган, Меган Гэйл, Райан Корр и др.Перевод: двуголосый закадровый, любительскийОзвучка / Автор перевода: Студия Пиратского ДубляжаСубтитры: вшитые отключаемыеЯзык субтитров: английскиеПродолжительность: 01:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE2829785F12022A6F1C8A479302DF32D13A3A99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747773   (838490) от 17.03.2015
-
-Full Mojo Rampage (2013) [Ru/Multi] (1.0.124) SteamRip Let'sРlay
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Full Mojo Rampage - это аркада с ролевыми элементами, в которой герой изучает подземелья, уничтожает орды нежити и поклоняется богам, что дарует ему особые способности..
-Сюжет игры крутится вокруг тайных обрядов черной магии и историях о куклах Voodoo. Вам предстоит уничтожать орды оживших зомби, скитаться по подземельям, выбивать всяческое снаряжение и прокачивать (   Читать дальше...   )Тип издания: SteamRipРазработчик: Over the Top GamesЖанр: Action / Arcade / RPGЯзык озвучки: -//-Язык субтитров: Русский, английский, испанский, французский, итальянский, немецкий, голландский, венгерскийЯзык интерфейса: Русский, английский, испанский, французский, итальянский, немецкий, голландский, венгерский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E083AFC6EB3B487AF1BB2D92081B426B401150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 794716   (838482) от 17.03.2015
-
-The Incredible Adventures of Van Helsing II/2 / Van Helsing 2: Смерти вопреки (2014) [Ru/Multi] (1.3.0d/7dlc) Repack R.G. Механики
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Van Helsing 2: Смерти вопреки (The Incredible Adventures of Van Helsing II) — это не только коллекция десятка новых карт и монстров, но настоящее продолжение, сохранившее все лучшее из первой игры. Кроме небольших улучшений и доделок, оно также обрело множество новых особенностей.
-
-И еще... Это не совсем особенность, но если вам нравились живые диалоги, развязный юмор и «пасхалки» первой игры, то вы будете счастливы услышать, что в продолжении такого еще больше.Тип издания: RepackРазработчик: Neocore GamesЖанр: Action / RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05EEC8526D26F3DB4488A7017D6641638B13D72C
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

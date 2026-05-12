@@ -1,3 +1,81 @@
+###  Публикация: 453487   (76803) от 17.02.2012
+
+Катя Самбука - Зашли мне лям (Uncensored) (2010) WEBRip [720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_76803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDCE8941741446526C6C17A383B3D50B9E36F4FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454124   (76719) от 17.02.2012
+
+Виа Гра - Алло, Мам (2012)[H.264/720p-LQ] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:172E5D81BAF0F8391E3789E78AA6AB32663063BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453485   (76578) от 16.02.2012
+
+Катя Самбука - Сказка (Uncensored) (2010) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DC9E8A3B1ABA6FC98F67ED0C79A629E1AD075B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 453481   (76550) от 16.02.2012
 
 Катя Самбука ft. DJ Grin - Райский Гимн (Uncensored) (2011)[H.264/720p-LQ] WEBRip
@@ -631,90 +709,6 @@ Cборник видеоклипов финской музыкальной гр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F8B082789C0A32573B6E0FE1712DEB7A1687B4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 241116   (51554) от 30.06.2024
-
-Chris Isaak  "BEST OF" (2006) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полное собрание клипов Криса Айзека1. Wicked Game
-2. Dancin'
-3. Somebody's Crying
-4. San Francisco Days(   Читать дальше...   )Жанр: Blues Rock/Southern Rock/PopПеревод: Оригинальный
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484206F5E971D1BB1782900808FCBE7BF4EB3533
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 51018   (50210) от 13.07.2024
-
-ZZ Top: Greatest Hits (2004) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Greatest videos, a groundbreaking collecton from the band that made chopped cars, great- -lookinf girls and fur-covered guitars an art form all their own. Right from the start, with "Gimme All Your lovin'" and the rest of the Elminator trilogy - "Sharp Dressed Man" And "Legs" - ZZ Top has pioneered the High-Concept video. And they're (   Читать дальше...   )1. Gimme All Your Lovin'
-2. Sharp Dressed Man
-3. Legs
-4. TV Dinners(   Читать дальше...   )Жанр: Музыка, Rock, Hard Rock, Blues RocПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:871AFA9761BC49C91AFB7AB29ECE1794E23F64D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737325   (49699) от 17.07.2024
-
-Агутин, Куценко, Полицеймако, Гутин – «ПОНТЫ» (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49699.jpg" />
-</div>
-
-
-###  Подробнее
-
-В анимационном видео четверо артистов играют участников популярной группы, отправляющейся на гастроли из Москвы в Сочи. Принарядившись в дорогом бутике, они выходят на сцену в дизайнерских костюмах, чем вызывают гнев публики и вынуждены бежать на необитаемый остров на катере, по дороге скормив обновки акуле.Жанр: PopРежиссер: Денис КузьминПродолжительность: 00:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:252568D511F5AEF946B8DE332C799C7119B6A100
 ```
 
 https://mybot314.ru/tekegram_catalog/

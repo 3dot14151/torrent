@@ -1,3 +1,117 @@
+###  Публикация: 996376   (881068) от 13.03.2016
+
+VA - All Music Of The World, A Collection Of Ambient Music Remixed With Native Sound (2001) 3CD [MP3|320 кб/с] <World Music, Native, Ethno>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hitching Place of the Sun
+02. Sichuan Mix
+03. Jokhang Soul
+04. Rwenzori Labyrinth(   Читать дальше...   )Жанр: World Music, Native, EthnoПродолжительность: 03:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BDE27E541071C9A909CC572C04E966E90C90AD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996118   (880836) от 13.03.2016
+
+Hans Zimmer & Richard Harvey - The Little Prince / Маленький принц (Original Motion Picture Soundtrack) (2015) [FLAC|Lossless|tracks+ .cue]<Score, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Preparation (02:10)
+02. Turnaround (03:27)
+03. The Life Plan (01:13)
+04. Driving (01:41)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB06BD6C1B3CB4728DD74CDCEA5C418C01B23E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 362948   (879840) от 06.04.2020
+
+Dr. Jeffrey Thompson - Natural Music For Sleep (2001) [FLAC|Lossless|tracks + .cue] <Ambient, Relax, Healing>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hidden Beauty (34:07)
+02. Kiss Good Night (35:20)Жанр: Ambient, Relax, HealingПродолжительность: 01:09:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6B47954BBE1A0FED73FAB5C4D9DD68B3B964E38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104125   (879826) от 15.02.2017
+
+VA, Lorne Balfe - The LEGO Batman Movie / Лего Фильм: Бэтмен (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black (07:32)
+02. Your Greatest Enemy (02:42)
+03. The Arrival of Robin (02:52)
+04. Joker Crashes the Party (01:33)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:34:32 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FFD882BF64A9B0B081C21C93249A235652CC560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 176490   (879722) от 06.04.2020
 
 Sulton Ali - Legend (2002), Мирзакарим Норбеков [FLAC|Lossless]<NewAge & Meditative>
@@ -634,123 +748,6 @@ VA - The Da Vinci Mysteries (2006) [MP3|320 Kbps] <Gregorian, New Age, Enigmatic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBB555B577F6B06ADCA9F1C2E6BF07BA448AE93E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106359   (873516) от 19.02.2017
-
-VA - Притяжение (Официальный Саундтрек) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ирина Старшенбаум - Когда я была маленькая (00:38)
-02. Иван Бурляев - Intro (01:26)
-03. Ирина Старшенбаум, Александр Петров - Готов вызволить принцессу из башни (00:17)
-04. L'One feat. Влади, Баста - Ракета (feat. Влади & Баста) (03:15)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF19EF67D8466DBABF4C51ECF729B1E05595E034
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106363   (873201) от 19.02.2017
-
-VA - Притяжение (Официальный Саундтрек) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ирина Старшенбаум - Когда я была маленькая (00:38)
-02. Иван Бурляев - Intro (01:26)
-03. Ирина Старшенбаум, Александр Петров - Готов вызволить принцессу из башни (00:17)
-04. L'One feat. Влади, Баста - Ракета (feat. Влади & Баста) (03:15)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A09F4B3FAC1FA959945C9EB3973C318535F508BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 368425   (872274) от 10.04.2020
-
-VA - Pan Pipes of the Andes - 3 альбома (1998) [FLAC|Lossless|tracks + .cue] <New age, Pan pipes>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pan flute или pan pipe или многоствольная флейта — флейтовый музыкальный инструмент, состоящий из нескольких соединённых или отдельных трубок как правило без пальцевых отверстий. Нижние концы трубок могут быть открытыми или закрытыми.
-На верхние срезы трубок направляют струю воздуха. Каждая трубка издаёт один основной тон, высота которого зависит от длины, диаметра (   Читать дальше...   )Список альбомов:
-1998 - Pan Pipes of the Andes - CD-1
-1998 - Pan Pipes of the Andes - CD-2
-1998 - Pan Pipes of the Andes - CD-3Жанр: New age, Pan pipesПродолжительность: 02:17:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A005889B180659F86931F455A0449F3C3618658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997635   (871752) от 18.03.2016
-
-Romantic Collection - HARP (2002) [FLAC|Lossless|image + .cue] <Instrumental, vocal>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erotica (05:23)
-02. Dee (03:49)
-03. Snowcaps (04:12)
-04. Peligroso Amor (03:44)(   Читать дальше...   )Жанр: Instrumental, vocalПродолжительность: 01:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6F27DEE66C8E4A7029B03696B6401247E515E4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

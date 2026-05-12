@@ -1,3 +1,119 @@
+###  Публикация: 1149150   (602518) от 09.07.2017
+
+Edelis - Sensation of the World (2009) Rerecorded Version, 2017, ROMAN Music Records [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, Ethno>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602518.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Aspiration For Awakening (04:31)
+2. Atlantis (04:23)
+3. Myth (04:24)
+4. New Capability (05:10)(   Читать дальше...   )Жанр: New Age, Ambient, EthnoПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D8CFF43D0F8CA62D782B56F24FF290A87C9CF8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148736   (602505) от 09.07.2017
+
+Dolly Parton - The Real... Dolly Parton (The Ultimate Collection) (2013) 3CD [FLAC|Lossless|tracks + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Dumb Blonde
+02. Just Because I'm A Woman
+03. D.I.V.O.R.C.E.(   Читать дальше...   )Жанр: CountryПродолжительность: 02:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:267F760097CC60CF88E2E195F2974EA17A9FB4CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148943   (602487) от 09.07.2017
+
+Empire Of Love - Mysterious I-II (2016-2017) [FLAC|Lossless|WEB|tracks] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Children Of The Sun (4:54)
+02. Heya (5:45)
+03. In The Dream Of The Monk (4:32)
+04. Inside You (4:36)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2B497B5B3FD313FCEE8D0A9E9A90AA07316FB9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149108   (602365) от 09.07.2017
+
+VA - Sax & Sex Collection (1995)(10CD)[FLAC|Lossless|tracks + .cue] <Smooth Jazz, Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dave Stewart & Candy Dufler - Lili Was Here (04:18)
+02. Kenny G. - Let Go (05:48)
+03. David Sanborn - Goodbye (05:32)
+04. George Howard - Baby Come To Me (06:37)(   Читать дальше...   )Жанр: Smooth Jazz, Instrumental, Easy ListeningПродолжительность: 11:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74E5D4D4F5E7C4A69643488F4E6820CC46660E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232014   (602223) от 23.06.2018
 
 VA - Deadpool 2 / Дэдпул 2 (2018) [MP3|320 Kbps] <Pop, Rap, Electronic>
@@ -649,122 +765,6 @@ Blue Medicine Music - Indian Groove (2005) [MP3|320 кб/с]<New Age, Native Ame
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2692E68222BD91D60820C1E3DC50472D2D71EE94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232599   (598375) от 25.06.2018
-
-Mark Pinkus - Deep Diving (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swedish Skies
-02. The Day of Absurdity
-03. The Endless Apartment Search Waltz
-04. Reminisce(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CF962DB175B1ABAF4258843BF0DF398E5863422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039243   (598045) от 31.07.2016
-
-Craig Padilla - Heaven Condensed (2016) [MP3|320 Kbps] <Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stonington Moon 09:24
- 02. Heaven Condensed 28:46
- 03. Across the Light 07:18
- 04. Heavenly Sails 28:31Жанр: Ambient, New AgeПродолжительность: 01:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF2073A8958CA56B9CC95AAFABD00381BDEA3C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038958   (597487) от 31.07.2016
-
-Levin Minnemann Rudess - From the Law Offices Of (2016) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Instrumental, Jazz-Rock>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back to the Machine [00:04:18]
-02. Ready, Set, Sue [00:03:31]
-03. Riff Splat [00:05:34]
-04. What is the Meaning? [00:04:21](   Читать дальше...   )Жанр: Progressive Rock, Instrumental, Jazz-RockПродолжительность: o1:09:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02E4CDEBC6A01F69440238CA4E19AAE6100EE935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039268   (597373) от 31.07.2016
-
-Ewan Dobson - 2 Альбома (2008, 2010) [FLAC|Lossless|tracks + .cue] <Acoustic, Bluegrass>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Know Your Pain    03:59
-02. Level 5    05:19
-03. Orange    04:04
-04. Dancing with Her    03:14(   Читать дальше...   )Жанр: Acoustic, BluegrassПродолжительность: 02:23:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8324EBC58AC27B0CD74D78C967F7B0D8A696108
 ```
 
 https://mybot314.ru/tekegram_catalog/

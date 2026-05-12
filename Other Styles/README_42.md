@@ -1,3 +1,119 @@
+###  Публикация: 1120304   (801967) от 31.03.2017
+
+Cerrone - Brigade Mondaine: Original Soundtracks (1978-1980) 2014, Because Music, Remastered, 3 CD Box Set [FLAC|Lossless|image + .cue] <Disco, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give Me Love
+02. Phonic
+03. Cloe
+04. Deauville(   Читать дальше...   )Жанр: Disco, SoundtrackФормат: 3хCD, Box Set, Compilation, Limited Edition, Numbered, RemasteredПродолжительность: 01:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B59C6C227A3FE2F7E89653750333B38FBE774E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120625   (801881) от 31.03.2017
+
+VA - Ghost in the Shell / Призрак в доспехах (Music Inspired by the Motion Picture) (2017) [MP3|320 кб/с]<Soundtrack, Dance & Electronic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kenji Kawai - Utai IV: Reawakening (Steve Aoki Remix) (04:30)
+02. Johnny Jewel - The Hacker (03:24)
+03. Boys Noize - Cathryn's Peak (03:25)
+04. DJ Shadow - Scars (feat. Nils Frahm) (03:35)(   Читать дальше...   )Жанр: Soundtrack, Dance & ElectronicПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B2307FAD3A666E4D2E066594E357E4E5468FE2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120627   (801797) от 31.03.2017
+
+VA - Ghost in the Shell / Призрак в доспехах (Music Inspired by the Motion Picture) (2017) [FLAC|Lossless|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kenji Kawai - Utai IV: Reawakening (Steve Aoki Remix) (04:30)
+02. Johnny Jewel - The Hacker (03:24)
+03. Boys Noize - Cathryn's Peak (03:25)
+04. DJ Shadow - Scars (feat. Nils Frahm) (03:35)(   Читать дальше...   )Жанр: Soundtrack, Dance & ElectronicПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CD333C869FAD0E1A65D5BE63165445032CE37D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199204   (801773) от 15.01.2018
+
+Padma Previ - Goddess Chants (2008) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Om Sri Rama (7:05)
+02. Om Shrim Swaha (7:09)
+03. Yasmin Vishvani (5:21)
+04. Om Tare Tare (7:01)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A612A52EE519974B4688A2D3D0F0F230B786F57D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198988   (801720) от 15.01.2018
 
 Padma Previ - Saraswati (2012) [FLAC|Lossless|image + .cue] <Meditative, Mantras, Chants>
@@ -629,119 +745,6 @@ David Arnold and Michael Price - Sherlock / Шерлок (Collection Original Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2E03AE893A3206B585512BE855DD41598E85CF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121231   (800424) от 02.04.2017
-
-VA - The Young Pope / Молодой Папа (Unofficial Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lele Marchitelli - Cardinals (02:12)
-02. Lele Marchitelli - Fear of God (03:08)
-03. Lele Marchitelli - Later (01:50)
-04. Lele Marchitelli - My Destiny (04:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 07:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBA5A88CBFF584AC13F5BA55E5582C33DADAEACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199720   (800348) от 17.01.2018
-
-Артель Роса - Саночки (2017) Single [MP3|320 Kbps] <Russian Urban Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. СаночкиЖанр: Russian Urban FolkПродолжительность: 00:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:598A14291FD9371694DC00FA62DD8307E6519BF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120729   (800327) от 02.04.2017
-
-Systems In Blue - Symphony In Blue: The Very Best Of (2011) 2CD [MP3|320 Kbps] <Pop, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800327.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. System In Blue (3:29)
-02. Sexy Ann (3:43)
-03. Jeannie Moviestar (Single Version) (3:40)(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 02:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C03D36AC745BB7EC865013883415CFD8B19EE2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120702   (800324) от 02.04.2017
-
-Mark Mancina, VA - Moana / Моана (Оригинальный саундтрек) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olivia Foa'i - Tulou Tagaloa (00:52)
-02. Vai Mahina - An Innocent Warrior (01:37)
-03. Денис Клявер - Дом родной (03:30)
-04. Зинаида Куприянович - Что меня ждет (02:43)(   Читать дальше...   )Жанр: Soundtrack, Score
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC844DABD9D997E66CEC77949CB26AD0945EE33D
 ```
 
 https://mybot314.ru/tekegram_catalog/

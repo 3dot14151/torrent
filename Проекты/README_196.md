@@ -1,3 +1,58 @@
+###  Публикация: 1234986   (565354) от 08.07.2018
+
+Проекты - VideoHive - LED Neon Screen - 21488559 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стильный, полностью настраиваемый проект для различных видео-презентаций.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5D8498DF7D1C51E7CC9A4BD1377551D33FB1BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 813429   (565187) от 17.08.2014
+
+VideoBlocks - Action Reveal [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Динамичный проект для начала дискотеки, спортивного мероприятия, вечеринки.
+
+Возможности:
+ - Requires Adobe After Effects CS4 or higher;(   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0851B811C9874EC9A7F84BAB871E673B2354916F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 813602   (565160) от 17.08.2014
 
 VideoHive - Channel Four - 1863659 [AEP]
@@ -639,58 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:943D1F76E040C9DF27608F19A89EEE5CC721970D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922986   (564436) от 31.07.2015
-
-Проекты - Motion Array - Poly Noise Logo [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон анимации для логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B42EB38B66700EB9B2187CCCAAAB4F7127D3A35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923451   (564393) от 31.07.2015
-
-Проекты - VideoHive - iMock-Up App Promo [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы можете изменить последовательность касаний к сенсорному экрану, и точку взаимодействия на экране. Имеется три шаблона версий проекта.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9D55C7C1C557C0A910BE73F87BC2E09DB265C8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

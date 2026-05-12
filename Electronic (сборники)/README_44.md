@@ -1,3 +1,32 @@
+###  Публикация: 1379962   (836107) от 01.05.2020
+
+VA - Beatport Trance: Electro Sound Pack #74 (2020) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836107.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Realm F vs Rankey - Nairobi
+002. Gadboa - How Long
+003. Estiva - Katana (Extended Mix)
+004. Ailand - Eclipse (Original Mix)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 09:55:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BB31AC347106048219E0BB4F02C5B282EDCA00E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113921   (835304) от 13.03.2017
 
 VA - Yoga Springtime Relaxation: Best of Chillout and Beach Cafe Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -720,35 +749,6 @@ VA - Bermuda Holidays: Uplifting Trance Party (2016) [MP3|320 кб/с] <Trance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28C288001BF183D3396E89C133933BE5F0C6E8E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005332   (832845) от 09.04.2016
-
-VA - Miami Beach Weapons (2016) [MP3|320 кб/с] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Boogeyman - Be Free 09:44
-02. Eugenio Fico, Vito Guerra - Balearic 05:12
-03. Sebbers - What the Funk (Nick Hook & Martin Sharp Remix) 06:31
-04. B.Vivant - It's the Sax House Thing (Nev Scott Remix) 07:00(   Читать дальше...   )Жанр: HouseПродолжительность: 01:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EB73D5245A0A98196402B12A4104E8283BAEC51
 ```
 
 https://mybot314.ru/tekegram_catalog/

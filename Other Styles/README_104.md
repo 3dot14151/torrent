@@ -1,3 +1,154 @@
+###  Публикация: 381868   (495301) от 31.08.2011
+
+Anthony Ventura And His Orchestra - 5 альбомов (1979-1993) [MP3|320 kbps]<Instrunental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495301.jpg" />
+</div>
+
+
+###  Подробнее
+
+1979 - Music For Making Love
+01. I Can't Stop Loving You 	(04:21)
+02. I'd Love You To Want Me 	(03:38)
+03. Don't Cry For Me, Argentina (02:20)(   Читать дальше...   )Жанр: Instrunental, Easy ListeningПродолжительность: 03:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2CD5416FD3FB3D17EA01094EB4E84BA4EC7B06A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936736   (494267) от 12.09.2015
+
+Myriam Cannas - Imana. Chants Arameens (2015) [MP3|320 кб/с]<New Age, World Music, Vocal>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imana Piano
+02. Nafsha
+03. Manau Gavra
+04. Alma(   Читать дальше...   )Жанр: New Age, World Music, VocalПродолжительность: 00:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F95216BDC3CFF190A85EF39B8DDDFBB58EC3387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242911   (493966) от 26.08.2018
+
+VA - Ska Anthems - The Ultimate Collection (5CD) (2018) [MP3|320 Kbps] <Jamaican Mento, Calypso, Reggae>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493966.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Madness - The Prince
+02. The Maytals - Monkey Man(   Читать дальше...   )Жанр: Jamaican Mento, Calypso, ReggaeПродолжительность: 00:54:35
+
+01. Bob & Marcia - (To Be) Young, Gifted & Black
+02. Nicky Thomas - Love Of The Common People(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9D90D5A55B7FB94F55590B60CC11D367B6445EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543785   (493898) от 06.09.2012
+
+Karin Nobbs & Philip N'bess - Avel & Roc'h (2006) [MP3|320 кб/с]<New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493898.jpg" />
+</div>
+
+
+###  Подробнее
+
+(7:22) 1. L'ordre Du Depart
+(9:02) 2. Les Heritiers Du Courage
+(7:44) 3. La Mer Et L'amant
+(7:27) 4. La Tempete Du Diable
+(4:31) 5. Le Pacte
+(7:30) 7. Les Bienfaits De La Terre
+(8:09) 8. Les Sanglots De Roc'hЖанр: New age, RelaxПродолжительность: 00:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0306A8AF78300E8348A2AA2589316C296E64F501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157696   (493694) от 15.08.2017
+
+VA - New Age Sensation (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magnific Senses – Spirit 02:11
+02. Xavier Boscher – A New Child Is Coming 05:11
+03. Mlle Julie – Petite chanson pour un ange 03:19
+04. Deborah Hofer – Pour l’eternite 03:14(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:219F903BFDA40974EFFC906AE11A699A2512D860
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 543864   (493411) от 06.09.2012
 
 VA - Best Of Chill Out 2012 (2012) [MP3|320 кб/с]<Chillout, Lounge, Downtempo>
@@ -612,151 +763,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7584B39C019C4EE66E853BA90ACC209968C8AA08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404955   (487020) от 28.08.2020
-
-Angel Olsen - Whole New Mess (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk, Dark Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whole New Mess (03:42)
-02. Too Easy (Bigger Than Us) (02:32)
-03. (New Love) Cassette (02:50)
-04. (We Are All Mirrors) (02:36)(   Читать дальше...   )Жанр: Indie Folk, Dark FolkПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8A95A9BA77FD2752CA18B15FAE2508AC81FF257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319256   (486809) от 10.08.2019
-
-Atom Music Audio - Legion (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Lies Beneath [02:07]
-02. Legion [02:19]
-03. Fear [02:40]
-04. Power of Imagination [02:16](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:23:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17FA50C4D820A7E6B1655E07F21D121D536BEAEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 383479   (486725) от 04.09.2011
-
-Billy Vaughn - 3 альбома (1987-2005) [FLAC|Lossless]<Instrumental | Orchestra | Sax>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486725.jpg" />
-</div>
-
-
-###  Подробнее
-
-1987 - The Best Of01. Spanish Eyes 		(02:28)
-02. Bridge over Troubled Water 	(04:03)
-03. Amazing Grace 		(02:27)
-04. Green, Green Grass Of Home 	(02:15)(   Читать дальше...   )Жанр: Instrumental | Orchestra | SaxПродолжительность: 02:46:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319262   (486692) от 10.08.2019
-
-Atom Music Audio - Singularity (2019) [MP3|320 Kbps] <Soundtrack, Synthwave, Cyberpunk>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyber Attack [02:13]
-02. Code Breaker [02:05]
-03. Undarkened [02:08]
-04. Into the Night [02:44](   Читать дальше...   )Жанр: Soundtrack, Synthwave, CyberpunkПродолжительность: 00:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E98330CCDA20BAAD47E478C569CC8976368E3455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319242   (486322) от 10.08.2019
-
-Various Artists - Sucker Punch (2011) Original Motion Picture Soundtrack [FLAC|Lossless|tracks + .cue] <Soundtrack, Electronic, Rock, Stage & Screen>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emily Browning – Sweet Dreams (Are Made Of This) (05:19)
-02. Björk – Army Of Me (Sucker Punch Remix) (feat. Skunk Anansie) (06:51)
-03. Emiliana Torrini – White Rabbit (05:09)
-04. Queen & Armageddon AKA Geddy – I Want It All / We Will Rock You (Mash-Up) (05:09)(   Читать дальше...   )Жанр: Soundtrack, Electronic, Rock, Stage & ScreenПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF51F01CA0081DB47248FFFC06026A0131BE2D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

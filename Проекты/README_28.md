@@ -1,3 +1,56 @@
+###  Публикация: 979115   (960681) от 25.01.2016
+
+Проекты - VideoHive - Epic Particles 3D Logo Formation Reveal - 11148018 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A55087348F15BC62E6EE68644643E2A65FA53E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360334   (960518) от 15.02.2020
+
+Проекты - VideoHive - Brush Paint Slideshow - 23643720 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайдшоу или презентации с эффектами рисования кистью.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7249239C56D2FA8393350477369D6862863C5F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979470   (959651) от 26.01.2016
 
 Проекты - Pond5 - Road Style [AEP]
@@ -641,61 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB7AEE12FB083970FD33E71C53D2D025BAD952FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980065   (957151) от 28.01.2016
-
-Проекты - BlueFX - Bob Business Promoter [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для бизнес-презентации.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC289D5EF298BD21BA15F4EA26032D060B43E2BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980092   (957089) от 28.01.2016
-
-Проекты - Проект ProShow Producer - Family Vacation [PSH]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторский проект от grandpajanek. Презентация в жанре "Туризм. Отдых."
-Презентация очень проста в редактировании, обычная замена файлов. Всё оставлено в авторском исполнении.
-Превью (авторский ролик) и аудиотрек (извлечённый из ролика превью) - в раздаче.Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7797CED0FE543043269BE89FA64FB35CCB6A01F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

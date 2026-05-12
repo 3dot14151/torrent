@@ -1,3 +1,32 @@
+###  Публикация: 1380482   (832943) от 03.05.2020
+
+Сергей Лемешев - Золотые россыпи романса (2000) [FLAC|Lossless|tracks + .cue]<Retro>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Средь шумного бала
+02. Серенада Дон Жуана
+03. На нивы желтые
+04. Я помню чудное мгновенье(   Читать дальше...   )Жанр: RetroПродолжительность: 01:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FED2710CB9FBDBC6A627774D99370139615538A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116201   (822482) от 20.03.2017
 
 L'escolania De Montserrat - Chante La Vierge Marie (2010) [FLAC|Lossless|tracks + .cue] <Classical>
@@ -727,41 +756,6 @@ Johann Sebastian Bach - The 6 Motets: Nikolaus Harnoncourt (1989) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91D5CF54A45E9AA7714777040B2767BFE4F92E42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523424   (616896) от 16.07.2012
-
-Henry Purcell – Songs of Welcome and Farewell: Suzie Leblanc, Barbara Borden et al, Tragicomedia, Stephen Stubbs & Erin Headley (1680-1695)/2001, Warner Classics/[FLAC|Lossless]<Vocal>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616896.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Welcome, viceregent of the mighty king, Z 340
-(Welcome song for Charles II, 1680) 12:28
-2. O dive custos Auriacae domus, Z 504
-(Elegy on the death of Queen Mary, 1695) 06:28
-3. Raise, raise the voice, Z 334
-(Ode for St. Cecilia`s Day, ca.1685) 12:28
-4. O let me ever, ever weep
-(The Plaint from “The Fairy Queen”, Z 629, 1692) 07:29
-5. Incassum, Lesbia, rogas
-(The Queen`s Epicedium) – Elegy on the death of Queen Mary, Z 383, 1695 07:32(   Читать дальше...   )Жанр: VocalПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B75BBF97B23FB35C40F7DEDFD0C0CA4E09EA0AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

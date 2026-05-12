@@ -1,3 +1,56 @@
+###  Публикация: 796348   (683245) от 15.06.2014
+
+VideoHive – The World Of Particles - 3689142 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Full HD проект с частицами для After Effects CS5.5Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D87406BF7E9E079D8FF5F14C514FD7B5C1B35FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134855   (682531) от 18.05.2017
+
+Проекты - Motion Array - Urban Dynamic Opener - 34152 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Urban Dynamic Opener - это современный и удивительный экшн. Городской стиль с динамичной анимацией. Творческий анимированный текст и быстрые переходы.
+Сделайте фантастическое промо-видео или стильное начальное видео для модного показа, спортивных мероприятий, различных событий, музыкальных концертов.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:185DE6D975C322C30544C0A326126C1EF1F4042D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134825   (682401) от 18.05.2017
 
 Проекты - Motion Array - Wood Logo - 33811 [AEP]
@@ -624,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D6335DC5E4897AD2990E98D517DE0837DF9ABD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 675925   (679866) от 06.07.2013
-
-Проекты - VideoHive - Travel Postcards [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания для фото-видео открыток путешествий, отпуска, туризма.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7248AB6FBB59C7F94650248613FDDF36DFD90646
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 676740   (679862) от 06.07.2013
-
-Проекты - Artificial Intelligence - A.I. [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Искусственный интеллект - A.I. это проект для создания слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38B9AD045EE9A27EF4005B1683E944ADD5DBEBB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,47 @@
+###  Публикация: 549108   (465171) от 19.09.2012
+
+VA - Classical in Lounge 2 Альбома (2012) [MP3|320 кб/с]<Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465171.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cristiano Heredia - Adagio From Piano Sonata No 8 - Patetica (3:46)
+ 2. Cristiano Heredia - Habanera - From Carmen (3:32)
+ 3. Stefano Mastronardi - Notturno - Nocturne Op 9 No 2 (2:45)
+ 4. Luca Brunetti - Gymnopedie No 1 (3:22)
+ 5. Cristiano Heredia - Bolero (5:15)
+ 6. Stefano Matronardi - Aria Sulla Quarta Corda - BWV 1068 Suite (Overture) No 3 (3:07)
+ 7. Stefano Mastronardi - Adagio In Sol Minore (2:22)
+ 8. Luca Brunetti - Pavane Op 50 (3:02)
+ 9. Cristiano Heredia - Intermezzo - Cavalleria rusticana (3:51)
+ 10. Eric Buffat/Fabrizio Martini - The Nutcracker suite 2 - Swan Lake (5:24)(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 01:06:36
+
+1. Cristiano Heredia - Elvira madigan - concert no. 21, k467 : Andante (4:17)
+ 2. Stefano Mastronardi - Clair de lune (4:34)
+ 3. Cristiano Heredia - Dreams of Love - Liebestraume No. 3 - Sogno D'amore (4:38)
+ 4. Cristiano Heredia - Nessun dorma - Turandot (3:26)
+ 5. Stefano Mastronardi - In the Hall of the Mountain King (2:55)
+ 6. Cristiano Heredia - Barcarolle - the Tales of Hoffmann - Les Contes D'hoffmann (5:52)
+ 7. Marco Marrone - Cello Suite No.2 - Prelude (4:10)
+ 8. Stefano Mastronardi - Also Sprach Zarathustra (1:40)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9552C3A7DFC85B4E0085A0FF62A0A919588A052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548753   (464861) от 19.09.2012
 
 VA - Инструментальная музыка (2012) vol. № 75 [MP3|320 кб/с]<Instrumental>
@@ -758,41 +802,6 @@ VA - Инструментальная музыка (2012) vol. № 87 [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4F2F742B1ADD3EDA7E77F728E0CF7D09272E1D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553269   (443534) от 28.09.2012
-
-VA - Инструментальная музыка (2012) vol. № 88 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Govi - Lovers Moon
-02. G.Marradi - Just For You
-03. Carlos Areias - Sombras Du Madrugada
-04. A.Findon - One Man, One Woman
-05. А.Серов - Улыбка
-06. Mario Battaini - Sul Bel Danubio Blu
-07. Neal Schon - Caruso
-08. Karunesh - Sapphire
-09. Armik - Maracles
-10. Golden Sax - Saving All My Love For You(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:793BA79B6CBEC51938585CD472AE9CDCA5A05626
 ```
 
 https://mybot314.ru/tekegram_catalog/

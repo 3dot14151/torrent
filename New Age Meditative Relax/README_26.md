@@ -1,3 +1,32 @@
+###  Публикация: 1627910   (238916) от 23.04.2023
+
+Atahualpa - Музыка у метро (2016) 2CD [MP3|320 Kbps] <Native American, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andino [04:24]
+02. Cultivos [05:16]
+03. La Furia y el Condor [06:15]
+04. Pio Pio [04:38](   Читать дальше...   )Жанр: Native American, WorldПродолжительность: 01:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5BDF5F38F33D43E4967CA5C37EFE6D66F5D87CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 586661   (227334) от 09.12.2012
 
 A. J. Asiain - 4 albums (2009-2010) [MP3|192 кб/с]<New age, Instrumental, Relax>
@@ -729,35 +758,6 @@ Medwyn Goodall - Medicine Woman 5: Transformation (2014) [MP3|320 кб/с] <New 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0865C08EBF727F0518B7E6C110E9EF18EF06B65A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086700   (148344) от 26.12.2016
-
-David Thomas - Ani Yun Wiya, Vol. 2 (2016) [MP3|320 Kbps] <Native American, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whisper of the Wind [00:04:05]
-02. Indians [00:03:12]
-03. The Way of Life [00:03:26]
-04. Wisdom Born in the Heart [00:03:37](   Читать дальше...   )Жанр: Native American, WorldПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F811A506E505CBA90EFA6AB3747CCB8F23164B
 ```
 
 https://mybot314.ru/tekegram_catalog/

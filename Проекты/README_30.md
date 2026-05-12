@@ -1,3 +1,57 @@
+###  Публикация: 980708   (954139) от 30.01.2016
+
+Проекты - Проект ProShow Producer - Elegance Slideshow [PSH]
+
+>>Проекты
+>>Свадебные и романтические (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект отредактирован в PSP-6. Романтическое слайдшоу.
+Проект может быть использован в оригинальном исполнении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов. Превью и саундтрек - в раздаче.Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDAAFB0750E2A0A94FAC565B82285A09A13A7C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981185   (952541) от 31.01.2016
+
+Проекты - VideoHive - Vegas Neon [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания титров в стиле неоновых реклам ночного Вегаса.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:706631CEE1B2E3A31F6089743B63960B082D50B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981222   (952540) от 31.01.2016
 
 Проекты - BlueFX - Premium Business [AEP]
@@ -631,60 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBA2D1142D6789BCADF4AF72F7B4B8F746C54716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981936   (949532) от 02.02.2016
-
-Проекты - VideoHive - Fast Media Slideshow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:223AFDEFAC30A7CD1EC17505EF7BA0DA9DE979FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982176   (949526) от 02.02.2016
-
-Проекты - VideoHive - Watercolor Quotes and Animated Font [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстовой проект.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:767CEFAAF93B0242C33C0E10FF849A0E339DAC2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

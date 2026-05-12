@@ -1,3 +1,119 @@
+###  Публикация: 1550837   (591192) от 13.05.2022
+
+Giovanni Marradi - Feelings (1997) [FLAC|Lossless|image + .cue] <Piano, Instrumental, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For All We Know (4:40)
+02. Annie's Song (2:43)
+03. Mozart's Piano Concerto No. 21 (3:21)
+04. Come Back To Sorrento (3:22)(   Читать дальше...   )Жанр: Piano, Instrumental, New AgeПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01CA82855CCEA686B2F3AD485C7253D1A7447C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915680   (589960) от 10.07.2015
+
+TYA - Echoes (2015) [MP3|320 кб/с]<New Age, Chillout, World, Tribal>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Open Road (07:45)
+02. Whispering Wind (05:57)
+03. The Love We Share (05:24)
+04. Blossom of Bliss (05:47)(   Читать дальше...   )Жанр: New Age, Chillout, World, TribalПродолжительность: 01:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:204AB4D6C2B1A9F5BBA9D0B6D8DE18E7CA229246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915526   (589947) от 10.07.2015
+
+Indios de America - Indios de America (2004) [MP3|160 кб/с]<Native american, Ethnic, Folk, New Age>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing moon
+02. Ananas
+03. Indios de America
+04. Yeha - noha(   Читать дальше...   )Жанр: Native american, Ethnic, Folk, New AgeПродолжительность: 00:58:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54E1862D0924C48D0D40C7A2D151202AE96613DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917180   (589532) от 11.07.2015
+
+Valentina Babor - Piano Princess (2015) [MP3|320 кб/с]<Instrumental, Classical, Pop, Piano Solo>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Children (04:21)
+02. Nobody Does It Better (03:27)
+03. I Believe I Can Fly (04:16)
+04. When The Rain Begins To Fall (03:49)(   Читать дальше...   )Жанр: Instrumental, Classical, Pop, Piano SoloПродолжительность: 00:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA2A43700A4B46CB02A06A1B7BFA1E30DDA65097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552209   (588516) от 19.05.2022
 
 Evgeny Grinko - Orange Marmalade (2021) [MP3|320 Kbps] <Instrumental, Piano>
@@ -644,119 +760,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDAEBCCDEA2A0107A940B2A0A8BF81B838845259
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552696   (585650) от 22.05.2022
-
-Era - The Live Experience (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agnus Deorem (3:45)
-02. Enae Volare (4:39)
-03. Nomen Adore (3:44)
-04. Something Exciting (3:46)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F79ADB53EEF1DCFE1FF2851EB347048CFC5A32C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040452   (585090) от 06.08.2016
-
-Suicide Squad: The Album - Отряд самоубийц (2016) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skrillex & Rick Ross - Purple Lamborghini (03:36)
-02. Lil Wayne, Wiz Khalifa & Imagine Dragons - Sucker for Pain (with Logic, Ty Dolla $ign & X Ambassadors) (04:04)
-03. Twenty One Pilots - Heathens (03:16)
-04. Action Bronson, Mark Ronson & Dan Auerbach (of The Black Keys) - Standing in the Rain (03:22)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F1B195BD7657A554D5381B0DF13B3B44C78577E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358087   (584933) от 03.07.2011
-
-OST - Vangelis - Blade Runner (Esper Edition) [2 CD] (2003) [OGG|192-320 kbps]<Electronic, Jazz, Stage & Screen>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electronic, Jazz, Stage & ScreenПродолжительность: 01:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09165685B6C6B9804974A3E3806686755B4C0C04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918951   (584880) от 17.07.2015
-
-Zhang Yi - Strings Of Love (2015) [MP3|320 кб/с]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maple Love
-02. Mythos
-03. The Unforgettable Love Affair
-04. Prayer(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:838FADBACC1869545B4F00341217D74C1BF0445F
 ```
 
 https://mybot314.ru/tekegram_catalog/

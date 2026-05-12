@@ -1,3 +1,109 @@
+###  Публикация: 1202167   (790490) от 28.01.2018
+
+Растровый клипарт - Different delicious dishes 58 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Различные вкусные блюда, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 5472x3648-6016x4016
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03004DE03FC230A16F404F7CA78F98B3B9DA844E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202176   (790463) от 28.01.2018
+
+Векторный клипарт - Creative Travel Icons 4 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Иконки творческого путешествия
+3 AI +TIFF PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE16277336721B2AE45A4A5357DCBCB444C86AFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275354   (790437) от 11.01.2019
+
+NNM-Club Sound Cleaner Collection from tuxac
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксклюзивная коллекция музыкальных треков и звуковых эффектов AudioJungle к проектам After Effects от нашего одноклубника tuxac, стоявшего у истоков группы Sound cleaner.Формат: WAV, MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAAEBA97DF7DC388712DCFAADA0F0D7CF2FB8D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275357   (790436) от 11.01.2019
+
+NNM-Club Sound Cleaner Collection from andrey25991
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксклюзивная коллекция музыкальных треков и звуковых эффектов AudioJungle к проектам After Effects от нашего одноклубника andrey25991, члена группы Sound cleaner.Формат: WAV, MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:363247710E52D0D51EB7C7475C16DDAA9330A5F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275451   (790433) от 11.01.2019
 
 NNM-Club Sound Cleaner Collection from Stranger-13
@@ -572,111 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEBD487FE9C37DE6F0B1E568B5004BB5652A1A76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275580   (789754) от 12.01.2019
-
-Шрифты - Creative Market - Sladosti CYRYLLIC - 529733 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sladosti - это потрясающий рукописный кириллический шрифт. Теперь можно оформлять все дизайны используя русские буквы. Надеюсь вам понравится.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D5DFF4485D3E9840BF6F2922BE72866D244DC46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275578   (789751) от 12.01.2019
-
-Шрифты - Creative Market - Smile Pro+ Cyrillic -80% All Family - 365922 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smile pro - этот шрифт содержит различные стили, шрифт без засечек, especila для детских названий и кириллицу.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE32A2C480AEC27E670FEF61936384C5A616EC7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275603   (789719) от 12.01.2019
-
-3D модели - Daz 3D - Eva 8 Pro Bundle - 55723 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Eva 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5E1ACA087518034415DEF59AEA27D6D9734330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275575   (789665) от 12.01.2019
-
-Фоны и наложения - Creative Market - Magic Book Light Photo Overlays - 3069587 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magic Book это небольшой пакет волшебных оверлеев, с помощью которых вы получите множество фантастических идей о том, как превратить ваши обычные изображения в настоящее чудо!Формат: PNGРазрешение файлов: 4000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CEB982A6665B8C917AB6481DDF30ECFCB1FB8B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

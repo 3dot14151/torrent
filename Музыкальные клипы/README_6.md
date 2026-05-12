@@ -1,3 +1,87 @@
+###  Публикация: 623202   (955554) от 26.02.2013
+
+"O2label" / Label O2 and...(vol.2.) (2013) HDTV [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sergey Nsd - Gattaka - Planet X
+02. Sergey Nsd - Gorgon Despair
+03. Tenth Cloud - Cloud In A Pocket
+04. Tenth Cloud - Tears Of Clouds(   Читать дальше...   )Жанр: Музыка, New Age, Downtempo, Ambient, Electronic, Chillout, SpaceПродолжительность: 01:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B55963E1C7E06C4EF06C7EAFCD762D62712EC00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359809   (955512) от 19.02.2020
+
+Зверобой - 19 Music Videos (2016-2020) WEB-DLRip [H.264/360p/720p/1080p-LQ] <Альтернативный Рок>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955512.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2016 Зверобой - Мой Ленинград
+002 2016 Зверобой - Чистое Небо
+003 2017 Зверобой - Головково
+004 2017 Зверобой - Едут-едут БТРы(   Читать дальше...   )Жанр: Альтернативный РокПродолжительность: 01:18:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00573EFE1C07A060A7DEDE07DAE64490B6743A29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088640   (955066) от 01.01.2017
+
+Дато Худжадзе/ David (Dato) Hudjadze  - Песчаный Сон / Sand Dream (2005) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальное видео "Sand Dream" на песню "Махинджи Вар" стало первым в мире, где использовалась уникальная технология рисунка на песке. Многие музыкальные критики признали клип самым сенсационным видео 2005 года. Клип “Sand Dream” занимал лидирующие позиции в чартах канала “Music Box” и на других телеканалах.Производство: Paranoia FilmЖанр: МузыкальныйРежиссер: Константин ЧапмадовАктеры: Дато Худжадзе и Илана ЯхавПродолжительность: 00:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71AC84BAB4AC4508DF06CDBCCCCC816FAEB063BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 622488   (955042) от 26.02.2013
 
 "O2label"/Stive Morgan  (2013) HDTV [H.264]
@@ -648,90 +732,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BBE450A4E98870ED1CB42657CE39EB33CBFBB50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984741   (936364) от 10.02.2016
-
-VA - Сборник видеоклипов 80х - 90х: Бабка Жжёт! (1981-1999) VHSRip
-
->>След.
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все клипы одного разрешения, битрейта и частоты кадров001. 2 Brothers on the 4th Floor - Come Take My Hand (4:22)
-002. Backstreet boys - Show me the meaning of Beng lonely (4:18)
-003. Bon Jovi - You Give Love a Bad Name (3:42)
-004. Culture Beat - Crying In The Rain (4:04)(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 33:24:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C502D0842D888A92BEBFCF7796E3A0FC56D459E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753282   (936157) от 05.02.2014
-
-Сборник клипов - VA - Various Music part. 50 (2014) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936157.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A M - Million ft. MFS 1080p (3:37)
-2. Armin van Buuren - Save My Night 1080p (3:17)
-3. Arty - Flashback 1080p (3:49)
-4. Bad Boys Blue - Come Back And Stay 2013 720p (4:18)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~05:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275221E0C5039D89D175A42B1A3BD48B512637AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628623   (935316) от 11.03.2013
-
-Danielle - Pat It Up (2013) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ReggaeПродолжительность: 00:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35A9094AC13BF9A5BDF5232E3BBC2972AE93E09C
 ```
 
 https://mybot314.ru/tekegram_catalog/

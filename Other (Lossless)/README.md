@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1869754   (1068509) от 
+
+VA - The Orient Collective: Between Dust & Clouds (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Pura Luhur (4:38)
+02. Kaisser Bouzriba - Dreamers (6:31)
+03. D.J. Thor - Rinascita (5:00)
+04. LØDZIKØVSKY - Spiritual Tabla (5:09)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99A607D8FE724D739FC17DF713F7C48EEDB87D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868855   (1067681) от 02.05.2026
+
+VA - The Orient Collective: Ash & Amber (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Lockwood - Morning Clouds (5:38)
+02. Kaisser Bouzriba - Hayeti (5:08)
+03. Marga Sol - Memoria (4:45)
+04. Johny Luv - Palinka (7:32)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B1721ADD32322ACF1848319010E1E2332797574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867499   (1066971) от 25.04.2026
 
 VA - The Orient Collective: Path of the Drum (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -688,70 +746,6 @@ Fernand Deroussen - Islande: Carnet de voyage (2001) [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C616F1A216620FF9771BA6F0209FE69E2E48B9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 422630   (1006219) от 18.07.2021
-
-Хор Турецкого - Такая Великая любовь... (2004) [FLAC|Lossless|tracks] <Vocals, Art>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Une vie d'amour (3:44)
-02. Композиция 'Money' (4:08)
-03. Попурри "СССР" (5:38)
-04. Une amore cosi grande (4:08)(   Читать дальше...   )Жанр: Vocals, ArtПродолжительность: 01:01:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61D208ED3EBC1E51B5AC971022F1F6840136F74B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483488   (1002263) от 10.08.2021
-
-Eivoer Polsdoeter (Eivør Pálsdóttir) - Trollabundin (Trøllabundin) (2005) [FLAC|Lossless]<folk, jazz, ambient>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002263.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nú Brenner Tú I Mær [06:21]
-2. Rósufarið [06:23]
-3. Om Jag Våger [06:57]
-4. Prelude To Endurfødd [01:23]
-5. Endurfødd [04:56]
-6. Mín Móðir [08:28]
-7. Lær Meg Guð At Liva [08:52]
-8. Jeg Vil Mig Herren Lovae [08:02]
-9. Prelude To Trøllabundin [03:03]
-10. Trøllabundin [03:01](   Читать дальше...   )2005Жанр: folk, jazz, ambientПродолжительность: 01:08:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C5155E4E52221FE79CAE44871ECDB3A11FB09F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

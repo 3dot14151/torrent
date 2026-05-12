@@ -1,22 +1,25 @@
-###  Публикация: 1453291   (1003691) от 04.08.2021
+###  Публикация: 1349694   (1004311) от 02.01.2020
 
-Forza Horizon 4 (2018) [Ru/Multi] (1.473.944.0/dlc) SteamRip InsaneRamZes [Ultimate Edition]
+Type O Negative - World Coming Down (1999) Japanese Edition [FLAC|Lossless|image + .cue] <Gothic Metal, Gothic Rock>
 
->>3
->>22
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004311.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Времена года полностью меняют облик главного автомобильного фестиваля планеты. Исследуйте чудесные пейзажи и исторические достопримечательности Великобритании, путешествуя по открытому миру в одиночку или вместе с другими игроками. Собирайте, модифицируйте и испытывайте более 450 автомобилей. Участвуйте в гонках, выполняйте трюки, творите и исследуйте, чтобы стать (   Читать дальше...   )Тип издания: SteamRipРазработчик: Playground GamesЖанр: Racing, Arcade, Simulator, Open World, 3DЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+01. Skip It (0:11)
+02. White Slavery (8:22)
+03. Sinus (0:53)
+04. Everyone I Love Is Dead (6:11)(   Читать дальше...   )Жанр: Gothic Metal, Gothic RockПродолжительность: 01:14:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8643556351CD4E940B05FA2F8BB1A63CC224421
+magnet:?xt=urn:btih:9861B20CCA0C39C8A3DE26AE2938D979B64AD648
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350006   (1003690) от 04.01.2020
+###  Публикация: 1349713   (1004310) от 02.01.2020
 
-Экшены - Creative Market - Modern Vector Art - 4270724 [ATN, ABR, PAT]
+Barrock - Oxian (1994) [FLAC|Lossless|image + .cue] <RPI>
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004310.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Modern Vector Art - Это действие Photoshop превратит ваши фотографии в профессиональные векторные эффекты. Очень подробный результат, множество возможностей для легкой настройки и улучшения. Это действие специально сделано для фотографов, дизайнеров и художников. Каждый раз, когда вы запускаете действие, вы получаете уникальный результат, даже если вы используете (   Читать дальше...   )Формат: ATN, ABR, PAT
+1. Fuga Sul Tema Di Oxian (1:35)
+2. Profughi
+  a) Intro (1:55)
+  b) Oltre I Monti (5:28)(   Читать дальше...   )Жанр: RPIПродолжительность: 00:47:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C41F07A35C3C61D5B24AE8D283E93F19356CEF02
+magnet:?xt=urn:btih:610BC7EAFA848D3228336289117B95386323A1CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350056   (1003689) от 04.01.2020
+###  Публикация: 1349696   (1004309) от 02.01.2020
 
-Modern Talking - Back For Gold: The New Versions (2017) [FLAC|Lossless|image + .cue] <Eurodance, Euro-Disco>
+Type O Negative - Life Is Killing Me (2003) Japanese Edition [FLAC|Lossless|image + .cue] <Gothic Metal, Gothic Rock>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004309.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Brother Louie (New Version 2017)
-02. You're My Heart You're My Soul (New Version 2017)
-03. Cheri Cheri Lady (New Version 2017)
-04. You Can Win If You Want (New Version 2017)(   Читать дальше...   )Жанр: Eurodance, Euro-DiscoПродолжительность: 01:13:56
+01. Thir13teen (1:08)
+02. I Don't Wanna Be Me (5:09)
+03. Less Than Zero (<0) (5:25)
+04. Todd's Ship Gods (Above All Things) (4:11)(   Читать дальше...   )Жанр: Gothic Metal, Gothic RockПродолжительность: 01:14:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:008E07872E0C9F8F3B3ECE2BAF904030A639B892
+magnet:?xt=urn:btih:C251F7BB5D20473B458A7262F6BB22F0E2A1D26D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,26 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350061   (1003688) от 04.01.2020
+###  Публикация: 1349546   (1004308) от 02.01.2020
 
-Спасите Грейс / Saving Grace (2000) BDRemux [VC-1/1080p]
+Yugen Blakrok - Anima Mysterium (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Grime, Trip Hop>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004308.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У Грейс было свое маленькое уютное счастье: дом и садик с оранжереей. Когда ее гулящий муж свел счеты с жизнью, она с ужасом узнала, что супруг не оставил ей ни пенни, только ужасные долги.
-Где взять деньги, что выкупить дом и оплатить астрономические счета мужа? Понятно, что осваивать какую-то новую «прибыльную» профессию немолодой и скромной женщине из маленького (   Читать дальше...   )Производство: Великобритания / Portman Entertainment, Sky Pictures, WAVEpictures, Homerun Productions, Rich Pickings LtdЖанр: Комедия, криминалРежиссер: Найджел КоулАктеры: Бренда Блетин, Крэйг Фергюсон, Мартин Клунес, Чеки Карио, Джэми Формен, Билл Бэйли, Валери Эдмонд, Тристан Старрок, Клайв Меррисон, Лесли ФиллипсПеревод: Профессиональный (многоголосый, закадровый), авторский (одноголосый, закадровый)Субтитры: Русские, английскиеПродолжительность: 01:34:25
+01. Gordon Madonna (5:06)
+02. Obsidian Night (4:12)
+03. Picture Box (3:39)
+04. Hibiscus (feat. Fifi the Raiblaster & Historian Himself) (4:15)(   Читать дальше...   )Производство: IOT Records – IOT67CDЖанр: Hip-Hop, Grime, Trip Hop, Darkwave, Boom BapПродолжительность: 00:52:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAB549CD730093CA02A3B6014956AA9C9C8B2C77
+magnet:?xt=urn:btih:4A2F761F73FDB17DA01E6EBCD9B1B6E96398C80A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -106,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350152   (1003687) от 04.01.2020
+###  Публикация: 1349629   (1004307) от 02.01.2020
 
-Strozzi, Monteverdi, Kapsberger, Carissimi, Frescobaldi - Lamento (Romina Basso) (2014) [FLAC|Lossless|image + .cue] <Classical vocal>
+Kryder - Kryteria Radio 219 (Best Of 2019) 2020-01-01 [MP3|192 Kbps] <House, Tech House, Progressive House>
 
->>Классика
->>Вокал (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004307.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Johann Hieronymous Kapsberger - Toccata Seconda Arpeggiata - Lamento Della Regina De Svezia
-2. Giacomo Carissimi - Lamento in Morte Di Maria Stuarda
-3. Barbara Strozzi - Lagrime Mie
-4. Claudio Monteverdi - Capriccio Di Durezze - Lamento D'Arianna(   Читать дальше...   )Жанр: Classical vocalПродолжительность: 01:04:33
+01. David Guetta & MORTEN ft. RAYE - Make It To Heaven
+02. Meduza X Becky Hill X Goodboys - Lose Control (Jose De Mara & Crusy Remix)
+03. SWACQ - No Strings Attached
+04. Cato Anaya & Dave Ruthwell & Mr. Sid ft. Dragonfly - Salomé(   Читать дальше...   )Жанр: House, Tech House, Progressive HouseПродолжительность: 02:34:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F75F5FD109FB0DE20D6E30848EDDA785331C4C1C
+magnet:?xt=urn:btih:1184DBD16C49A13FED4E8A062D6B640B93518F14
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -135,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 933856   (1003686) от 04.01.2020
+###  Публикация: 1349542   (1004306) от 02.01.2020
 
-Throne Room Company - 4  альбома (2011-2013) Discography [MP3|320 кб/с]<New Age, Gospel, Trance>
+Kano - Hoodies All Summer (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Grime>
 
->>Other Styles
->>New Age/Meditative/Relax
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004306.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Children Of Light (3:33)
-02. Grace (3:42)
-03. The Prayer (7:13)
-04. Spirit Of Life (5:32)(   Читать дальше...   )Жанр: New Age, Gospel, TranceПродолжительность: 03:25:33
+01. Free Years Later (3:53)
+02. Good Youtes Walk Amongst Evil (4:25)
+03. Trouble (5:02)
+04. Pan-Fried (feat. Kojo Funds) (3:30)(   Читать дальше...   )Производство: Parlophone, Bigger Picture Music - 0190295474386Жанр: Hip-Hop, GrimeПродолжительность: 00:39:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A312BE14C34B3501028186ABD67F4C2A7F0AEC9
+magnet:?xt=urn:btih:06A54DDD1BFBE970DB5AF42FC97995AE69C188F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -164,216 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350156   (1003685) от 04.01.2020
+###  Публикация: 1349685   (1004305) от 02.01.2020
 
-Ray Conniff - The Happy Sound Of Ray Conniff & Love Story (2019) 1974, 1971 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003685.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Happy Sound Of Ray Conniff (1974)
-
-01. I'll Be With You In Apple Blossom Time
-02. You Made Me Love You (I Didn't Want To Do It)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC8F321262E4702BDB4E58280921155B8EF7C54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350122   (1003684) от 04.01.2020
-
-Кавказская пленница, или Новые приключения Шурика (1967) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправившись в одну из горных республик собирать фольклор, студент Шурик влюбляется в симпатичную девушку Нину — спортсменку, отличницу, комсомолку и просто красавицу. Но её внезапно похищают банда их трёх человек, чтобы насильно выдать замуж. Наивный Шурик не сразу сообразил, что творится у него под носом, — однако затем отважно ринулся освобождать кавказскую пленницу.Производство: СССР / Киностудия «Мосфильм»Жанр: Комедия, приключения, мелодрама, мюзиклРежиссер: Леонид ГайдайАктеры: Александр Демьяненко, Наталья Варлей, Юрий Никулин, Георгий Вицин, Евгений Моргунов, Владимир Этуш, Фрунзик Мкртчян, Руслан Ахметов, Нина Гребешкова, Михаил ГлузскийПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F500DD9F8BB4F8AFE5FA7043C32644D681C01FCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350131   (1003683) от 04.01.2020
-
-Гретхен Рубин | Хорошие привычки, плохие привычки. Как перестать быть заложником плохих привычек и заменить их хорошими (2017) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы неоднократно пытались (и всё ещё хотели бы) питаться правильно, перестать так часто проверять телефон, спать по 8 часов ежедневно, бросить курить, поддерживать порядок на рабочем столе, похудеть и удержать результат, но надолго вас не хватило, – значит, вы созрели для этой книги.
-
-Автор блокбастеров «Проект Счастье» и «Счастлива дома» Гретхен Рубин рассказала (   Читать дальше...   )Жанр: Зарубежная прикладная литература, Зарубежная психология, Саморазвитие / личностный ростФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8F3F7B04B832EBB03927C7B8CF6EF394E471C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350136   (1003682) от 04.01.2020
-
-Л.А. Петрова | Самоучитель итальянского языка для начинающих (2018) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самоучитель состоит из 57 уроков. Каждый урок начинается с необходимых знаний по грамматике и правильной разговорной речи. Все новые слова сопровождаются транслитерацией. Помимо грамматической части урока вас ждут диалоги, занимательные тексты и упражнения. В конце самоучителя вы сможете проверить себя по ключу и воспользоваться итальянско-русским словариком к учебнику, (   Читать дальше...   )Жанр: Иностранные языкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE1D6346B9EB8CE5C544132AE9F48B9DB6A18D8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 620521   (1003681) от 04.01.2020
-
-С.В.Ковалева | Лучшие рецепты самых вкусных фаршированных блюд [2012] [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003681.jpg" />
-</div>
-
-
-###  Подробнее
-
-История кулинарии насчитывает много тысячелетий. За это время было придумано огромное количество разнообразных способов кулинарной обработки продуктов: варка, запекание, жарка, тушение, маринование, соление. Но, пожалуй, самым изысканным и интересным способом является фарширование.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFCA7AB3502EE16FD2F3BF204056A48A86848490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350050   (1003680) от 04.01.2020
-
-Неопалимый Феникс (2018) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-4 из 4)
-
->>Отечественные сериалы
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003680.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своем литературном кафе «Феникс» Алена Дубровицкая проводит интервью с известным музыкантом Саввой Артамоновым. Это творческий вечер на сцене, но с трансляцией в интернете. Алена делает все, чтобы вечер удался — в последнее время рейтинг кафе упал. Именно поэтому такой известный музыкант, как Савва, который редко дает интервью, согласился помочь Алене, поскольку (   Читать дальше...   )Производство: Россия / NRG FilmЖанр: детективРежиссер: Дмитрий АверинАктеры: Татьяна Колганова, Илья Носков, Валентина Панина, Екатерина Панасюк, Антон Сычев, Денис Пьянов, Софья Присс, Игорь Головин, Никита Барсуков и др.Продолжительность: ~00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DED8A3438A20E186A366A65E7F556F76FD1CB8ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350016   (1003679) от 04.01.2020
-
-Дельта / Рыбнадзор (2013-2015) HDTVRip (сезон 1-2, серии 1-48 из 48)
-
->>Отечественные сериалы
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Там, где царит беспредел, где закон никому не писан, найдется настоящий мужик, который пойдет на принцип!
-Андрей Бекетов приехал в дельту Волги отдохнуть и навестить своего друга Сергея Лобанова, работающего инспектором рыбоохраны. Когда-то они вместе служили в спецназе, потом Лобанов вернулся в родную деревню, а Бекетов ушел на работу в городскую полицию, но был (   Читать дальше...   )Производство: Россия / «Мостелефильм»Жанр: боевик, криминал, драмаРежиссер: Сергей Лялин, Андрей ТартаковАктеры: Вадим Колганов, Анна Казючиц, Сергей Селин, Александр Баширов, Ксения Громова,Егор Клинаев, Степан Абрамов, Ева Авеева, Татьяна Демидова, Александр Андриенко и др.Продолжительность: ~00:46:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2156C9A65556C217CA89986900FC32C2F4F1B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637893   (1003678) от 04.01.2020
-
-York - Islanders (2012) Planet Love Records #ARDI3244 [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Trance>
+Hardwell - Hardwell On Air Yearmix 2019 (2019) [MP3|~245 Kbps (V0)] <Electro House, Progressive House>
 
 >>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004305.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. York - Dying Star (Chill Out Mix) (7:14)
-02. York & Mike Oldfield - Islanders (Chill Out Mix) (9:12)
-03. York & Art Halpertin - Abyss (Chill Out Mix) (5:23)
-04. York & The Thrillseekers feat. Asheni - Daydream (York's Album Mix) (06:08)(   Читать дальше...   )Жанр: Lounge, Chillout, Trance, LeftfieldПродолжительность: 02:35:34
+Time to celebrate 2019, here's the first part of my Yearmix!
+1. Hardwell feat. Trevor Guthrie - Summer Air (DubVision Remix)
+2. Calvin Harris & Rag'n'Bone Man - Giant (Audien Remix)
+3. Tiesto, Jonas Blue feat. Rita Ora - Ritual(Jonas Aden Remix)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 01:55:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:704D35A0EEB3A1C06DE33C872F95C7751999BB18
+magnet:?xt=urn:btih:B85F708E227CD323D11FB33B2DDBB03F2F6281E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -381,26 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350157   (1003677) от 04.01.2020
+###  Публикация: 1349699   (1004304) от 02.01.2020
 
-А.В. Бабаш, Е.К. Баранова | Криптографические методы защиты информации (2016) [PDF]
+Type O Negative - Dead Again (2007) Japanese Edition [FLAC|Lossless|image + .cue] <Gothic Metal, Gothic Rock>
 
->>Научная и техническая литература
->>Учебники
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004304.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рассмотрены основные вопросы криптографической зашиты информации: математические основы криптографии; элементы истории развития криптографии; алгоритмы наиболее распространенных современных симметричных и асимметричных систем шифрования и современные области их применения.
-Учитывая специфику студентов гуманитарного профиля, доступно излагается необходимый математический (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+01. Dead Again (4:15)
+02. Tripping A Blind Man (7:05)
+03. The Profit Of Doom (10:47)
+04. September Sun (9:48)(   Читать дальше...   )Жанр: Gothic Metal, Gothic RockПродолжительность: 01:17:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A224F2E0DE53245F21C6EA9E25FD9FD95329BEF
+magnet:?xt=urn:btih:8C2B22C4377004A71114A16667E96BB1112A5059
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -408,25 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349953   (1003676) от 04.01.2020
+###  Публикация: 1349565   (1004303) от 02.01.2020
 
-Г.А. Вейхман | Разговорный английский без ошибок (2005) [PDF]
+VA - Finest Hour: Country Collection (2019) [MP3|320 Kbps] <Country>
 
->>Научная и техническая литература
->>Иностранные языки (литература)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004303.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В основу пособия положены исследованные автором структурные закономерности английской речи. Для успешного овладения ими в пособие включено около 500 упражнений с ключами для самоконтроля. Их выполнение обеспечивает грамматически безошибочное общение на английском языке. Для студентов вузов, преподавателей английского языка, переводчиков и всех, кто хотел бы научиться (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+001. Smooth Hound Smith - Three Shades Of Lonely
+002. Kane Brown - American Bad Dream
+003. Dirty Deep - Holy Pocket Boogie
+004. Johnny Cash - One More Ride(   Читать дальше...   )Жанр: CountryПродолжительность: 07:02:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBC00BF8FC318EECB3E6D1F932AF6EC9EB225D6F
+magnet:?xt=urn:btih:6B25CE78DE382B97DD95906CC405A6E85BA5C527
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -434,25 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349863   (1003675) от 04.01.2020
+###  Публикация: 1349508   (1004302) от 02.01.2020
 
-Сборник - Creative Fabrica - 2020 Calendar Overlay Templates PSD SVG [PSD, SVG, PNG, EPS]
+VA - Hi Games Vol.4 (Chiptune Edition) (2020) [MP3|320 Kbps] <Chiptune>
 
->>Материалы для мультимедиа и дизайна
->>Сборники
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004302.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 календарных месяцев. Сборка для тех кому нужен всего лишь 1 месяц макета, или все 12 месяцев в году ... Получите все это в этом пакете!.Формат: PSD, SVG, PNG, EPSРазрешение файлов: 2100x2100
+01. Vince Kaichan - Drag Strike
+02. H-Mister - Destination
+03. Glenntai, RoBKTA - ASGORE (from UNDERTALE)
+04. Jredd - Moon Glider(   Читать дальше...   )Жанр: ChiptuneПродолжительность: 02:13:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDB437989A95BABC13D67176BAAD9144A1EB0A98
+magnet:?xt=urn:btih:C6D04DEB92B18DD99DCD8AFB31C2610595702365
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -460,28 +288,197 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350013   (1003674) от 04.01.2020
+###  Публикация: 1349676   (1004301) от 02.01.2020
 
-Genesis - Greatest Hits (2020) 2CD [MP3|320 Kbps] <Rock, Progressive Rock>
+Type O Negative - Bloody Kisses (1993) Japanese Edition [FLAC|Lossless|image + .cue] <Gothic Metal, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Machine Screw (0:41)
+02. Christian Woman (8:58)
+03. Black No. 1 (11:15)
+04. Fay Wray Come Out and Play (1:04)(   Читать дальше...   )Жанр: Gothic Metal, Gothic RockПродолжительность: 01:13:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2E5D1FA3C8E07FED943D4FC7CC3E060F2CE251F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349684   (1004300) от 02.01.2020
+
+Type O Negative - October Rust (1996) Japanese Edition [FLAC|Lossless|image + .cue] <Gothic Metal, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Ground (0:38)
+02. Intro (0:21)
+03. Love You To Death (7:09)
+04. Be My Druidess (5:26)(   Читать дальше...   )Жанр: Gothic Metal, Gothic RockПродолжительность: 01:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:634B7881B110E94A1FFD96F2CC5A3C2D2BDCF1D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349658   (1004299) от 02.01.2020
+
+Andrew Rayel - Find Your Harmony Radioshow Yearmix 2019 (2020-01-01) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Rayel - Originem (FYH 150 Anthem)
+02. Andrew Rayel - Originem (FYH 150 Anthem) (Husman Remix)
+03. Avao - Cosmic Order
+04. Ruben de Ronde & Elevven - Lucky Penny(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB9C206CB32D8C758CD1F10ACA9BEF0522BA758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349559   (1004298) от 02.01.2020
+
+Симона Вилар и др. | Новогодние истории [сборник] (2018) [EPUB]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Может ли домовенок стать человеком, чтобы хоть немного пожить по-настоящему? Не зря ведь говорят, что в Новый год случаются чудеса. Знать бы только, к чему приведет это желание и не наделает ли мечтательный домовенок своей затеей больших бед…
+Может ли обычная лотерея изменить жизнь? Оказывается, лишь один билетик способен разрушать семьи и создавать новые, приносить (   Читать дальше...   )Жанр: Сентиментальная отечественная прозаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:471C61A3E4598B28D714852D51A5C3AFCA14E9A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349677   (1004297) от 02.01.2020
+
+Type O Negative - Bloody Kisses (1993) Japanese Edition, Reissue, 1996, Roadrunner Records [FLAC|Lossless|image + .cue] <Gothic Metal, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Machine Screw (0:41)
+02. Christian Woman: A) Body Of Christ (Corpus Christi) / B) To Love God / C) J.C... (8:58)
+03. Black No. 1 (Little Miss Scare-All) (11:15)
+04. Fay Wray Come Out And Play (1:03)(   Читать дальше...   )Жанр: Gothic Metal, Gothic RockПродолжительность: 01:13:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1753FF41E98FBCFEFAC16A0ADA3916FF46E1D20E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349724   (1004296) от 02.01.2020
+
+Александр Избуцкий | Девочка со скрипкой (1967) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Галя учится в музыкальном училище. Ее отец, геолог по профессии, редко бывает дома. Во время учёбы Галя знакомится со многими окружающими её людьми. Среди них и талантливый пианист Геннадий Замковый... И вот к ней приходит первая любовь.Жанр: Радиоспектакль. ДрамаВ ролях: Юлия Борисова, Анатолий Кацынский, Любовь Горячих, Геннадий Бортников, Анатолий Баранцев, Ирина Потоцкая, Всеволод ЛазаревПродолжительность: 01:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A7A8A4C7B64692EE7B74E8BAEB5237B575160F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349592   (1004295) от 02.01.2020
+
+VA - Animalistic Vol.02 (2019) [MP3|320 Kbps] <Hard Rock, Metal, Hardcore>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004295.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Illegal Alien
-02. Many Too Many
-03. In The Cage
-04. Silver Rainbow(   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 01:54:47
+001. Beyond The Grey - Unthinkable Tragedy
+002. Vitaform - Devil's Mirror
+003. Hands Of God - 2 Shotz
+004. Primal Fear - Apocalypse(   Читать дальше...   )Жанр: Hard Rock, Metal, HardcoreПродолжительность: 08:33:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B198FCCDA17E601EA49500050DACA4542F9F107
+magnet:?xt=urn:btih:E0AFD90A2141979EF82A080F0C8042C9973D0C40
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -489,25 +486,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028813   (1003673) от 04.01.2020
+###  Публикация: 1486913   (1004294) от 02.08.2021
 
-Андрей Мак | Ножи боевые и универсальные / Fighting and Utility Knives (2008) [DJVU]
+Symphonia (2021) [Multi] (1.0) License GOG
 
->>Научная и техническая литература
->>Военная литература
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004294.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга посвящена в основном ножам, кинжалам и стилетам, использовавшимся в ХХ-м веке на европейском театре военных действий. Боевые, охотничьи, полевые, универсальные, повседневные и специальные ножи и кинжалы охватывают практически все сферы применения холодного оружия. На примере 450-ти образцов показана история развития боевого и универсального короткоклинкового (   Читать дальше...   )Жанр: Холодное оружиеФормат: DJVU
+Играйте за скрипача и разбудите гигантский заброшенный мир в этом поэтичном платформере! Используя свою скрипку и смычок, двигайтесь к сердцу мира, чтобы понять свою роль в этой вселенной и сыграть лучший концерт!Тип издания: LicenseРазработчик: Sunny Peak, ISART DigitalЖанр: Platformer, ActionЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28D1A41475F66CDB300BA89B11098024A8D52430
+magnet:?xt=urn:btih:BD016A52A9A8BD73DB0E91B022471F4121872AD9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -515,26 +512,160 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350038   (1003672) от 04.01.2020
+###  Публикация: 1486947   (1004293) от 02.08.2021
 
-Л.К. Бабенко и др. | Параллельные алгоритмы для решения задач защиты информации (2014) [PDF]
+Kaspersky Update Utility 4.0.0.287 Portable [Ru]
 
->>Компьютерная литература
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kaspersky Update Utility - утилита обновления, которая позволяет обновлять продукты для домашних пользователей и корпоративные решения «Лаборатории Касперского».
+Новые угрозы возникают каждый день. Чтобы успешно им противостоять, защитные решения должны регулярно обновлять свои антивирусные базы. Если на компьютере нет доступа в Интернет, то для своевременного обновления (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3925BFD646234C71D3DFB6586449AC1F54220F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480408   (1004292) от 02.08.2021
+
+Прыжок на заре (1960) VHSRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004292.jpg" />
+</div>
+
+
+###  Подробнее
+
+По роману Г. Березко «Сильнее атома».
+В подразделении десантников - одни первогодки. Заводила и общий любимец - Андрей Воронков. Командует солдатами немолодой старшина Елистратов (Владимир Кашпур), прозванный Додоном. Он кажется Андрею педантом, признающим только муштру. Отношения между Додоном и Воронковым напряжённые.Однажды Андрей прогулял со своей девушкой Варей (   Читать дальше...   )Жанр: КиноповестьРежиссер: Людмила БезсмертноваАктеры: Владимир Костинн, Владимир Кашпур, Тамара Витченко, Валентина Владимирова, Елизавета Кузюрина, Владимир Колокольцев, Владимир Златоустовский, Эрнест Мартиросов, Никифор Колофидин, Георгий Куликов, Евгений Новиковв, Павел Винник, Юрий Горобец, Виктор Беседин, Анатолий ГоликПродолжительность: 01:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8595D1CC298EC658229CAC57087CC24FCB712DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486410   (1004291) от 02.08.2021
+
+CGMA, Erik D. Martin | Digital Painting Workshop (2011) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот воркшоп будет посвящен цифровой живописи и дизайну для анимации (с упором на сюжетную составляющую). Это включает в себя создание функциональных задников, персонажей и бутафории с использованием Photoshop.
+Эрик также затронет некоторые основы цветовой теории, нюансов перспективы и использования текстур.Производство: CGMAЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0A4B03A3F526CF61628D395413EED12A56C318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486974   (1004290) от 02.08.2021
+
+AOMEI Partition Assistant Pro 9.3 (акция Comss) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004290.jpg" />
+</div>
+
+
+###  Подробнее
+
+AOMEI Partition Assistant Pro позволяет создавать, удалять, изменять размеры, производить форматирование разделов жесткого диска, объединять, разделять и перемещать их (или копировать), в том числе на другой жесткий диск или SSD-диск.
+Приложение предоставляет пользователям пошаговый интерфейс для выполнения основных действий, связанных с управлением разделами жесткого (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC7B4C8BCFD8011C2B2541584CF4B253ED674AB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486992   (1004289) от 02.08.2021
+
+Из жизни Федора Кузькина (1989) WEBRip (2 серии)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004289.jpg" />
+</div>
+
+
+###  Подробнее
+
+По повести Бориса Можаева "Живой".
+Печальная история Федора Кузькина, разделившего с родной страной все тяготы тридцатых, а затем и сороковых годов. Теперь Кузькин решает стать единоличником. Но вновь начинаются мытарства крестьянина - и уже без надежды...Производство: СССР / Киностудия им. М. ГорькогоЖанр: Драма, экранизацияРежиссер: Станислав РостоцкийАктеры: Александр Суснин, Татьяна Бедова, Михаил Кокшенов, Федор Валиков, Петр Щербаков, Юрий Потемкин, Анатолий Бородин, Николай Погодин, Петр Любешкин, Александр ЛебедевСубтитры: ОтсутствуютПродолжительность: 01:18:18 + 01:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6F44EDDD0533DCAAAEB5978E039A7D4856C1025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486629   (1004288) от 02.08.2021
+
+Битва при Сан-Себастьяне / La bataille de San Sebastian (1968) BDRip [H.264/720p-LQ]
+
+>>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004288.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кратко представлены основные составляющие современных криптографических систем: симметричные алгоритмы шифрования, асимметричные алгоритмы шифрования, функции хэширования. Основной упор сделан на рассмотрение практической возможности применения существующих способов анализа современных криптосистем с целью оценки их криптографической стойкости.
-В работе рассмотрен (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+Мексика. 1746 год. Беглого преступника Леона Аластрея, переодетого монахом, в деревне Сан-Себастьян ошибочно принимают за священника. Сами жители деревни страдают из-за нападений индейского племени яки, которых возглавлял индеец Золотой Глаз, и появление священника считают знаком свыше. Сначала Леон отказывается принять на себя роль спасителя, но в итоге вынужден (   Читать дальше...   )Производство: Франция, Италия, Мексика, США/ C.I.P.R.A., Filmes Cinematografica, Metro-Goldwyn-Mayer (MGM), Producciones Enríquez S.A.Жанр: драма, приключения, вестернРежиссер: Анри ВернейАктеры: Энтони Куинн, Анжанетт Комер, Чарльз Бронсон, Сэм Джаффе, Сильвия Пиналь, Хорхе Мартинес де Ойос, Хайме Фернандес, Роса Фурман, Леон Эскин, Хосе ЧавесПеревод: Многоголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:51:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05F3B7E6F3D2C20FB05FE6366C9B3E1A7C5E3003
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -542,25 +673,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350000   (1003671) от 04.01.2020
+###  Публикация: 1486839   (1004287) от 02.08.2021
 
-В.М. Буре, Е.М. Парилина | Теория вероятностей и математическая статистика (2013) [PDF]
+Чудо-женщина: 1984 / Wonder Woman 1984 (2020) BDRemux [H.264/1080p] [2D/3D] [IMAX Edition] [ISO]
 
->>Научная и техническая литература
->>Учебники
+>>Зарубежное кино
+>>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004287.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге изложены основные разделы современного курса теории вероятностей и математической статистики, включая условные распределения, основные предельные теоремы, метод характеристических функций, принципы статистического оценивания, методы построения доверительных интервалов, методы проверки статистических гипотез, регрессионный анализ и бинарная регрессия. Книга (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+1984 год. Диана всё ещё грустит по погибшему Стиву, борется с мелким криминалом и работает в музее Смитсоновского института. Однажды она знакомится с новой коллегой Барбарой, специалисткой широкого профиля, которой поручено изучить новые артефакты. Среди древних предметов оказывается загадочный кристалл, который исполняет желания. Так к Диане внезапно возвращается (   Читать дальше...   )Производство: США, Великобритания, Испания / Atlas Entertainment, DC Comics, DC Entertainment, The Stone Quarry, Warner Bros.Жанр: Фэнтези, боевик, приключения, фантастикаРежиссер: Пэтти ДженкинсАктеры: Галь Гадот, Крис Пайн, Кристен Уиг, Педро Паскаль, Робин Райт, Конни Нильсен, Лилли Аспелл, Амр Вакед, Кристоффер Полаха, Наташа РотуэллПеревод: Дублированный (Мосфильм-Мастер, Postmodern), Профессиональный, многоголосый (HDRezka Studio)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские (Forced), Английские (Full)Продолжительность: 02:31:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B1DD726388AFD894AECE0C11D5B76EB89CA78822
+magnet:?xt=urn:btih:4BEC8E165AB7C58220E70C92AA6972B8B5F12FDA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -568,131 +699,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350086   (1003670) от 04.01.2020
+###  Публикация: 1485266   (1004286) от 02.08.2021
 
-Берни Кларк | Инь-йога: полный курс. Очищение и оздоровление организма на всех уровнях (2019) [PDF]
+Кутузов (1943) DVDRip [H.264]
 
->>Разное (категория книг)
->>Эзотерика
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004286.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Более пяти лет эта книга – мировой бестселлер. Она переведена на семь языков и издана тиражом более 80 тысяч экземпляров. Автор книги – Берни Кларк – признан сообществом йоги как один из трех величайших Учителей. В чем секрет такого успеха? Автор собрал и описал уникальные даосские практики инь-йоги.
-Только инь-йога работает с глубокими слоями соединительной ткани, (   Читать дальше...   )Жанр: Здоровье, Спорт, Фитнес, Эзотерика, ПарапсихологияФормат: PDF
+Вступление Наполеона в Россию, Бородинское сражение, пожар Москвы, Тарутинский маневр, партизанская война и, наконец, бегство французской армии из России - все главные эпизоды Отечественной войны 1812 года в историческом фильме, посвященному великому русскому полководцу Михаилу Илларионовичу Кутузову и его соратникам.Производство: СССР / "Мосфильм"Жанр: драма, биографияРежиссер: Владимир ПетровАктеры: Алексей Дикий, Семен Межинский, Евгений Калужский, Серго Закариадзе, Николай Охлопков, Сергей Блинников, Владимир Готовцев, Аркадий Поляков, Михаил Пуговкин, Борис ЧирковПродолжительность: 01:42:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06B7BE0C1EAA7ABE9B9467F1279C903355BB510F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349966   (1003669) от 04.01.2020
-
-Фонс Тромпенаарс, Пит Хейн Куберг | 100 ключевых моделей и концепций управления (2019) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта краткая иллюстрированная энциклопедия помогает разобраться в теориях и истории менеджмента. Лаконичные обзоры 100 главных моделей управления собраны в девять направлений, и развитие каждого направления можно проследить хронологически.
-Необходимое издание для менеджеров любого уровня, а также для тех, кто изучает науку управления.Жанр: Менеджмент, управление бизнесомФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A17A96DDB904AEB227FC7B0EA7892788BB3F4DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349942   (1003668) от 04.01.2020
-
-Найджел Бенсон, Борин Ван Лоон | Психотерапия в комиксах (2019) [PDF]
-
->>Комиксы и Артбуки
->>Комиксы на русском языке
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга расскажет увлекательную историю возникновения и развития психотерапии с древних времен до наших дней. Вы узнаете, как Зигмунд Фрейд разработал психоанализ, почему в XX веке закрылись множество сумасшедших домов, сколько психотерапевтических методов и практик существует сейчас и какие проблемы они помогают решить. А забавные комиксы сделают погружение в (   Читать дальше...   )Жанр: Психология, комиксы, мангаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50CB7C6558336B422017BB58BB5DA8276CA85639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349869   (1003667) от 04.01.2020
-
-Векторный клипарт - Creative Market - Background for Social Media Story - 4373478 [EPS, AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003667.jpg" />
-</div>
-
-
-###  Подробнее
-
-240 Фононов для истории в социальных сетях.Формат: EPS, AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F29DA7E189029EECD70E60F4A7CD520298CE3813
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349950   (1003666) от 04.01.2020
-
-Ж.Л. Оганян | Английский язык. Тренажер для путешественников (2017) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разговорник содержит самые популярные для общения темы и предназначен для российских граждан, с различными целями выезжающих за границу. Для наиболее распространенных ситуаций, а также проблематичных (таможня, покупки, ресторан) предлагаются диалоги-клише, позволяющие легко выстроить общение в той или иной ситуации по образцу. Разговорник содержит типичные модели (   Читать дальше...   )Жанр: Учебное пособие, РазговорникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A0B3B9EE05F627CD51580A705EE39D2CCC04ED6
+magnet:?xt=urn:btih:60977FCF72B5E90F2E9D96A76D34733767E15D6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

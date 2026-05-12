@@ -1,22 +1,25 @@
-###  Публикация: 1679881   (135006) от 27.11.2023
+###  Публикация: 1825402   (136721) от 17.10.2025
 
-GraphicConverter for Mac 12.0.8 Beta [Multi/Ru]
+David Gilmour - The Luck And Strange Concerts (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136721.jpg" />
 </div>
 
 
 ###  Подробнее
 
-GraphicConverter 11 — полнофункциональный графический редактор, позволяющий импортировать изображения из файлов в 200 различных форматах, провести все необходимые изменения, а затем сохранить в одном из 80 поддерживаемых форматов. Программа позволяет производить все основные операции с файлами: цветокоррекцию, кадрирование, изменение размеров и разрешения, несложные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.11.2023Разработчик: © 2023 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+01 - 5 A.M. (Live from the Luck and Strange Concerts)
+02 - Black Cat (Live from the Luck and Strange Concerts)
+03 - Luck and Strange (Live from the Luck and Strange Concerts)
+04 - Breathe (In the Air) (Live from the Luck and Strange Concerts)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:16:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB7A569DB1632E349FADBBE7D98BB52757D41ADA
+magnet:?xt=urn:btih:4A32DD0B816EEDCA0459D1062EF0E2792B3D43E3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680012   (135003) от 27.11.2023
+###  Публикация: 1825600   (136720) от 17.10.2025
 
-PhotoRoom 4.7.5 (b1178) Mod by ZackModz [Ru/Multi]
+Jump King (2019) [Ru] (Build 14374430) Repack Necros
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136720.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PhotoRoom - приложение, что будет одинаково полезным и для работы и для творчества. Проект представляет собой процесс автоматического удаления фона у выбранного главным объекта. А так же последующего добавления замены и дополнительных предметов. Спектр применения весьма широк, а высокая скорость достижения результатов порадует всех кто не хочет связываться с профессиональными (   Читать дальше...   )Тип издания: ProРелиз состоялся: 18.11.2023Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+Примите вызов и погрузитесь в мир настоящего платформера Jump King, где ставка очень высока! Стремление к высоте приблизит вас к Горячей Девчонке, воспетой в легендах. Но будьте осторожны в своих поисках - один неверный прыжок может привести к очень долгому падению.Тип издания: RepackРазработчик: NexileЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF9F477CDA546DC1BE1AA8F579336CC6CAE641D4
+magnet:?xt=urn:btih:2CFC4ED10676647F11F893F5BE654820AF93CB7F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593646   (135002) от 24.12.2012
+###  Публикация: 1825409   (136719) от 17.10.2025
 
-Sexy Girls Pack Wallpapers (22.12.12) [Wallpapers 16+]
+Scorpions - From The First Sting (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136719.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+01 – This Is My Song (Live at Rock & Pop, 09.11.1973)
+02 – Speedy’s Coming (Remastered 2023)
+03 – In Trance (Remastered 2023)
+04 – Pictured Life (Remastered 2023)(   Читать дальше...   )Жанр: RockПродолжительность: 01:57:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49B67E0140E815DEA5A58A61B417DB0BFD5B36D4
+magnet:?xt=urn:btih:FD3C52C1F235EDD228B7B7F7BE53CCF5FDBC3D58
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593649   (135000) от 24.12.2012
+###  Публикация: 1825417   (136718) от 17.10.2025
 
-Gilrs Wallpaper Collection (22.12.12) [Wallpapers 16+]
+Rick Wakeman - Melancholia (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136718.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 4000х3000
+01. Sitting at the Window [00:03:23]
+02. Reflection [00:03:41]
+03. Pathos [00:04:12]
+04. Dance of the Ghosts [00:03:57](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:343F7066B6250E74BBCA9AF15C2AA954F3A1F375
+magnet:?xt=urn:btih:69800564A5301127E24D6F73006A4EEF68B9BA91
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,28 +111,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680079   (134999) от 27.11.2023
+###  Публикация: 1825478   (136717) от 17.10.2025
 
-Chris Maragoth - Gatherer of Souls (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic Metal, Symphonic Metal>
+Ключ без права передачи (1976) WEBRip [H.264/1080p]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136717.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gatherer of Souls [00:01:47]
-02. No Breath Left [00:05:42]
-03. On the Brink of Death [00:03:25]
-04. Remembrance [00:04:22](   Читать дальше...   )Жанр: Gothic-Metal, Symphonic-MetalПродолжительность: 00:39:34
+Кирилл Алексеевич, отставной армейский офицер, становится директором школы. Привыкший к строгости и распорядку дня, он сталкивается с беспорядочной суетой повседневной школьной жизни. Нелегко найти понимание с детьми и учителями, особенно с любимицей студентов — Мариной Максимовой, преподавателем литературы. Однако Марина немало удивляется, обнаружив в «придирчивом» (   Читать дальше...   )Производство: СССР / Ленфильм, Первое творческое объединениеЖанр: драма, мелодрамаРежиссер: Динара АсановаАктеры: Елена Проклова, Алексей Петренко, Лидия Федосеева-Шукшина, Любовь Малиновская, Зиновий Гердт, Екатерина Васильева, Олег Хроменков, Марина Левтова, Анвар Асанов, Александр БогдановСубтитры: Русские, английскиеПродолжительность: 01:33:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:221FA57FF04133B79BBD8E3F2BBCBD43785CEBB4
+magnet:?xt=urn:btih:04C8CCB6ED9E98C2377485DDB3CF0C67F0670501
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,34 +137,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592904   (134998) от 24.12.2012
+###  Публикация: 1825480   (136716) от 17.10.2025
 
-Infested - 1000 Doors (2009) [MP3|320 кб/с]<Technical Brutal Death>
+Chrissie Hynde - Duets Special (2025) [MP3|320 Kbps] <Post-Punk>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136716.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 1000 Doors. [01:25]
- 02. Metaphysical Grotesqueries. [02:53]
- 03. Spineless. [05:04]
- 04. Knives. [04:04]
- 05. Voices. [03:39]
- 06. Withdrawal From Reality. [03:59]
- 07. Collapse. [03:19]
- 08. Second Smile. [02:53]
- 09. Trancendental Habitat. [03:33]
- 10. Avalokiteshvara. [01:37](   Читать дальше...   )Жанр: Technical Brutal DeathПродолжительность: 00:36:35
+01 - Chrissie Hynde; k.d. lang - Me & Mrs Jones (feat. k.d. lang) [00:04:14]
+02 - Chrissie Hynde; Mark Lanegan - Can’t Help Falling In Love (feat. Mark Lanegan) [00:03:16]
+03 - Chrissie Hynde; Lucinda Williams - Sway (feat. Lucinda Williams) [00:03:23]
+04 - Chrissie Hynde; Dave Gahan - Dolphins (feat. Dave Gahan) [00:03:15](   Читать дальше...   )Жанр: Post-PunkПродолжительность: 00:47:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:581975C71C082B2D80181C5C1EACCDC46A1859FA
+magnet:?xt=urn:btih:ACBE6ED8BEB74C3210E5978DF2DB6C1CEED31313
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,25 +166,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679988   (134997) от 27.11.2023
+###  Публикация: 1825512   (136715) от 17.10.2025
 
-Борис Лавренёв | Рассказы (2021) [MP3, Вячеслав Невинный, Борис Моргунов и др.]
+The Dream Syndicate - Medicine Show: I Know What You Like (1984) Reissue, Remastered, Deluxe Edition, 2025, Fire Records [MP3|320 Kbps] <Alternative Rock>
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136715.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Борис Андреевич Лавренёв (1891–1959), русский советский писатель, прозаик, публицист, драматург. Наряду с Константином Тренёвым и Всеволодом Ивановым считается одним из создателей жанра советской героико-революционной драмы. Одно из лучших произведений, ставшее классикой советской литературы – повесть «Сорок первый», неоднократно инсценированная и экранизированная. (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Радио «Культура»Продолжительность: 01:37:29
+01. Suzie Q (Live at Club Zader New Hope PA 1983) [00:17:50]
+02. Evil Ways (Live at Club Zader New Hope PA 1983) [00:08:51]
+03. Don't Fear the Reaper (Live at Club Zader New Hope PA 1983) [00:02:44]
+04. Bullet with My Name on It (Live at Club Zader New Hope PA 1983) [00:04:02](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 4 CD, 04:09:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCB96C49E2158EE452F6874DA375E477EAEE220F
+magnet:?xt=urn:btih:EB39EB6EDF2F7A1DB079220A7A2A6967DE7A5EB9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -192,26 +195,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679854   (134995) от 27.11.2023
+###  Публикация: 1825611   (136714) от 17.10.2025
 
-Find Any File (FAF) 2.4.2 beta1 [Multi]
+The Legacy (2025) [Ru/Multi] (build 20303577) Repack seleZen
 
->>Архив торрентов
->>Архив 4Apple
+>>Win Игры
+>>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136714.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Find Any File - утилита для быстрого поиска любого файла на вашем Mac
-Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.11.2023Разработчик: © 2005-2021 Thomas TempelmannПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский и др.
+The Legacy - это кооперативное выживание в жанре хоррор. В 1990 году на наш родной город пало проклятие, наш дедушка, местный мольфар и маг, по зловещей традиции - раз в 66 лет должен принести в жертву тёмным лесным силам одного из своих потомков, но он не смог этого сделать, поэтому отправил меня, двух братьев и сестру в столицу, чтобы уберечь нас от проклятия. (   Читать дальше...   )Тип издания: RepackРазработчик: Second RealityЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:824D4D2632AFBA06293019B125154B97FB5629B9
+magnet:?xt=urn:btih:B48AF4833800FEEC9601253E30A310BDE809B56C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -219,25 +221,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593648   (134994) от 24.12.2012
+###  Публикация: 1825608   (136713) от 17.10.2025
 
-Sexy Girls Wallpapers (22.12.12) [Wallpapers 16+]
+Везунчики / Good Fortune (2025) Telecine [H.264/1080p] [звук с TS] [AD]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Горячие новинки
+>>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136713.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+Доброжелательный, но довольно неумелый ангел по имени Гавриил вмешивается в жизнь бедствующего работника и богатого венчурного инвестора.Производство: США / Lionsgate, Media Capital Technologies, Oh Brudder ProductionsЖанр: комедия, фэнтезиРежиссер: Азиз АнсариАктеры: Киану Ривз, Бланка Арасели, Азиз Ансари, Джо Манде, Aditya Geddada, Александр Джо, Kristen Henley, Сет Роген, Кеке Палмер, Shoukath AnsariПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: Английский, Китайские (hardsub)Продолжительность: 01:35:22Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B5C79F92F0F9F63BAC2FDCB53DF101A02149074
+magnet:?xt=urn:btih:34BA25AAFB89C531272150CC998FEBFF9BB37062
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -245,25 +247,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680011   (134993) от 27.11.2023
+###  Публикация: 1825609   (136712) от 17.10.2025
 
-PhotoRoom 4.7.5 (1178) Mod by Maximoff [Ru/Multi]
+Везунчики / Good Fortune (2025) Telecine [звук с TS] [AD]
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Горячие новинки
+>>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136712.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PhotoRoom - приложение, что будет одинаково полезным и для работы и для творчества. Проект представляет собой процесс автоматического удаления фона у выбранного главным объекта. А так же последующего добавления замены и дополнительных предметов. Спектр применения весьма широк, а высокая скорость достижения результатов порадует всех кто не хочет связываться с профессиональными (   Читать дальше...   )Тип издания: ProРелиз состоялся: 20.11.2023Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+Доброжелательный, но довольно неумелый ангел по имени Гавриил вмешивается в жизнь бедствующего работника и богатого венчурного инвестора.Производство: США / Lionsgate, Media Capital Technologies, Oh Brudder ProductionsЖанр: комедия, фэнтезиРежиссер: Азиз АнсариАктеры: Киану Ривз, Бланка Арасели, Азиз Ансари, Джо Манде, Aditya Geddada, Александр Джо, Kristen Henley, Сет Роген, Кеке Палмер, Shoukath AnsariПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: Английский, Китайские (hardsub)Продолжительность: 01:35:22Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18600532D166625288868AB3C98CFFDA4E20FDD2
+magnet:?xt=urn:btih:18111D74740EFA765CDBA96515B19B5A4991B2D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -271,34 +273,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592718   (134992) от 24.12.2012
+###  Публикация: 1825204   (136711) от 16.10.2025
 
-VA - The Club music 2 (2012) [MP3|256 кб/с]<Club,Dance>
+Terminator-Rex - Holograms - Ghosts (2017) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthwave, New Retrowave, Electronic>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Electronic
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136711.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Neil Davidge - Arrival (Norin & Rad Remix)
-02. Europe - The Final Countdown (DJ Shevtsov & Slash Junior Remix)
-03. Klonez - Funked
-04. DJ Pitkin - club opera
-05. Иван Дорн - That Girl ( Johnny Funk Mash-Up)
-06. Lolita Hunters feat. Robkay - Heut` Nacht (Radio Edit)
-07. Tocadisco, Koen Groeneveld, Ahmet Sendil - Oldschool (Ahmet Sendil Mix)
-08. Kerli - The Lucky Ones (Hector Fonseco Remix)
-09. Offspring & Fernando Lopez - Self The Plumber (Coffee B Mash-UP 2012)
-10. Kojak - Come(   Читать дальше...   )Жанр: Club,DanceПродолжительность: 08:30:26
+01. Stay Still [00:05:56]
+02. Highway [00:04:18]
+03. Size Increaser [00:04:14]
+04. Rider Of Heaven [00:05:02](   Читать дальше...   )Жанр: Synthwave, New-Retrowave, ElectronicПродолжительность: 00:39:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A37E06D727E163124E063130C6AA6C4BD8E08C73
+magnet:?xt=urn:btih:07AD2DC1BF39DB21A6DA5CEB709970F0B82A1F0E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -306,25 +302,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680029   (134991) от 27.11.2023
+###  Публикация: 1825269   (136710) от 16.10.2025
 
-Лев Устинов | Золотая собака (2023) [MP3, Елена Чубарова]
+Crypt Of Kerberos - Cyclone of Insanity / Visions Beyond Darkness + Demos (2017) Compilation [WavPack|Lossless|image + .cue] <Death Metal>
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136710.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Замечательная повесть о том, как рыжая собака искала себе хозяина, но именно с добрым сердцем. Это оказалось не так-то просто. Многие считают себя добрыми, а что на самом деле?Жанр: Детская литератураИздательство: Аудиокнига своими рукамиПродолжительность: 00:45:59
+01. Intro
+02. Sacrifice
+03. Armageddon
+04. Devastator(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:04:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBCDB98027557967BE276829094A44F02109BBDF
+magnet:?xt=urn:btih:59C43B95E03ED2EC8259BD2196086A3333FDD2EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -332,25 +331,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593661   (134990) от 24.12.2012
+###  Публикация: 1825280   (136709) от 16.10.2025
 
-Gilrs Wallpaper Collection (23.12.12) [Wallpapers 16+]
+Chromium 141.0.7390.108 + Portable (x64) [Multi/Ru]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136709.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 4000х3000
+Chromium – веб-браузер с открытым исходным кодом, который обеспечивает своих обозревателей быстрым, безопасным и надёжным доступом к сети Интернет, оснащенный удобной платформой для веб-приложений. Быстрота браузера обеспечивается за счет открытых компонентов. Разработчики браузера постоянно внедряют все новые и новые функции, направленные на повышение безопасности (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9382088CB484392C2FC0318F21DF984E138A9D10
+magnet:?xt=urn:btih:8B09F7A9672815D786D091DACFC7397D470B3518
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -358,28 +357,132 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679961   (134989) от 27.11.2023
+###  Публикация: 1625861   (136708) от 16.10.2025
 
-VA - Sunday Morning Happy Jazz Vibes Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+Ну и ню! Эротика по-советски (2018) WEB-DL [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136708.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Советском Союзе каждый день был днем кино - кинотеатры были заполнены на любом сеансе. А если на экраны прорывались эротические кадры, то в кассы выстраивались бешеные очереди. Но зрители не догадывались, как боролись режиссеры за каждую секунду показа красоты обнаженного женского тела... Наверное, это был тот редкий случай, - рассказывают авторы фильма, - когда (   Читать дальше...   )Производство: ООО "Студия ИриКо"Жанр: документальный, телепередачаЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48767B7D9654C3DFB29F8DE3E543E133F93D7F03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825152   (136707) от 16.10.2025
+
+Миссия невыполнима: Финальная расплата / Mission: Impossible - The Final Reckoning (2025) UHD BDRip [H.265/1080p] [HDR10, Dolby Vision Profile 7.6, 10-bit] [IMAX]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агент Итан Хант и его команда отправляются на поиски затонувшей российской подводной лодки «Севастополь», на которой находится инновационный искусственный интеллект «Entity», угрожающий существованию человечества. Смертоносный ИИ захватил контроль над оружием массового поражения по всему миру, и Ханту необходимо проникнуть в исходный код «Entity», чтобы обезвредить (   Читать дальше...   )Производство: США, Великобритания / Paramount Pictures, Skydance Media, TC ProductionsЖанр: боевик, триллер, приключенияРежиссер: Кристофер МаккуорриАктеры: Том Круз, Хейли Этвелл, Винг Реймз, Саймон Пегг, Эсай Моралес, Пом Клементьефф, Генри Черни, Хоулт МакКаллани, Джанет МакТир, Ник ОфферманПеревод: Дублированный (Videofilm Int., Red Head Sound, Jaskier, Dragon Studio)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forсed, Full), Украинские (Forсed, Full), Английский (Full, SDH)Продолжительность: 02:49:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6320B1A3EFAB576DB75029631ADDC8288822285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824877   (136706) от 16.10.2025
+
+Таксопарк №13 (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
+
+>>Отечественные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сергей Есаулов — обычный инспектор ГАИ, жизнь которого привычна и понятна. Его жена Ирина — федеральный судья. Вместе они воспитывают 18-летнюю дочь Таню. Но однажды семейный конфликт оборачивается чередой событий, которые резко меняют жизнь Есаулова. Его дочь попадает в аварию, а жену Есаулов обнаруживает в постели задушенной его же ремнем. Став фигурантом уголовного (   Читать дальше...   )Производство: Россия | Кинокомпания «Альянс»Жанр: Детектив, криминалРежиссер: Павел ЕмелинАктеры: Павел Харланчук, Алексей Дмитриев, Павел Чернышёв, Сослан Фидаров, Никита Тарасов, Дарина Овчинникова, Андрей Харенко, Максим Заусалин, Елена Радевич, Максим Деричев и др.Субтитры: ОтсутствуютПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ECFFE1298781F83DEBE7CB7782C3534F9D7B89A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307630   (136705) от 16.10.2025
+
+Те странные случаи (Такая странная эротика) / Quelle strane occasioni (1976) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм состоит из трех коротких, забавных, поучительных историй: Итальянский супермен, Шведская лошадка, Лифт. В первой новелле, обладающий внушительных размером органом, герой Паоло Вилладжио вынужден продавать каштановые пироги на улице. Но однажды ему выпадает шанс круто изменить свою судьбу… Во второй рассказывается о немолодом уже архитекторе, жена которого вмести (   Читать дальше...   )Производство: Италия / Rizzoli Film S.p.a.Жанр: КомедияРежиссер: Луиджи Коменчини, Нанни Лой, Луиджи МаньиАктеры: Нино Манфреди, Стефания Сандрелли, Альберто Сорди, Паоло Вилладжо, Ларс Блох, Флавио Буччи, Джованнелла Грифео, Ольга Карлатос, Беба Лончар, Валерия МорикониПеревод: Двуголосый профессиональный, НТВ+Субтитры: ОтсутствуютПродолжительность: 01:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E3BAFB9F61A4BA32596AA835497212B53ADED7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825325   (136704) от 16.10.2025
+
+Connie Francis - The Italian Collection: Vol. 1 & 2 (1997) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Pop, Swing>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136704.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Love Suggestions - It’s Our Time (5:46)
-02. Chillaxonic - Mellifluous (4:27)
-03. Kool&Klean - Guessing Game (4:17)
-04. Konstantin Klashtorni - Humble and Kind (4:07)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:20:31
+01. Jealous Of You (Tango Della Gelosia) [00:02:26]
+02. Mama (Single Version) [00:03:57]
+03. Chitarra Romana [00:03:22]
+04. Terra Straniera [00:03:07](   Читать дальше...   )Жанр: Jazz-Pop, SwingПродолжительность: 01:44:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6761AB6B02260F42355D9B7A890382BB5F0F29E6
+magnet:?xt=urn:btih:182ED5F97AEE5B79C98C219206953990E3965D5F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -387,28 +490,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679983   (134987) от 27.11.2023
+###  Публикация: 1825253   (136703) от 16.10.2025
 
-Don Broco - Live at The Royal Albert Hall (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock>
+Patti Smith - Horses (1975) 50th Anniversary, 2025, Arista Records LLC [FLAC 24/96|Lossless|WEB-DL|tracks] <Punk, Alternative Rock, Indie Rock>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136703.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Come Out To LA (00:05:00)
-02 - Pretty (00:04:09)
-03 - Swimwear Season (00:04:36)
-04 - Everybody (00:03:31)(   Читать дальше...   )Жанр: Alternative-RockПродолжительность: 00:50:04
+Volume 1
+01. Gloria: In Excelsis Deo [00:05:55]
+02. Redondo Beach [00:03:25]
+03. Birdland [00:09:13](   Читать дальше...   )Жанр: Punk, Alternative Rock, Indie RockПродолжительность: 01:21:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5029CF3F1D649E586B042FC5BE73EAF9BA07C1D
+magnet:?xt=urn:btih:C666046CF83AC2A067B28A68F5F94D33669E4F4E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -416,34 +519,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593356   (134986) от 24.12.2012
+###  Публикация: 1825261   (136702) от 16.10.2025
 
-VA - Ultra.Trance: 5 (2005) [MP3|320 кб/с]<Trance>
+Kaash Paige - 2 Late To Be Toxic (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative, R&B, Soul>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136702.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: TranceПродолжительность: 01:09:45
- 01. Don’t Forget Me (Way Out West’s Dust Biter Mix) - Way Out West
- 02. Feel the Vibe (Eric Prydz Remix) - Axwell
- 03. Without You Near (Gabriel & Dresden Mix) - Markus Schulz, Departure & Gabriel & Dresden
- 04. Resurrection (Gabriel & Dresden Vocal Mix) - Nicol Sponberg
- 05. Dark Side of the Moon - Ernesto vs Bastian
- 06. Lyteo (Rank 1 Remix) - Mr. Sam
- 07. More Than A Life Away - Marco V
- 08. Pleasure Island (Vocal Mix) - Randy Katana
- 09. The Loves We Lost (Vocal Mix) - Tiësto(   Читать дальше...   )
+01. GOD SAVE ME [00:02:49]
+02. What happened 2 us [00:02:31]
+03. Sexy Freestyle [00:01:46]
+04. High [00:03:21](   Читать дальше...   )Жанр: Alternative, R&B, SoulПродолжительность: 00:25:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2E4B31119625DEF4FC8092479DC777FA493F615
+magnet:?xt=urn:btih:D65AB6E4E8B1E5E65EC18D195F4F7C5CE01E57FD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -451,26 +548,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679836   (134985) от 27.11.2023
+###  Публикация: 1347266   (136701) от 16.10.2025
 
-Борис Заходер | Сказки Бориса Заходера (Аудиоспектакль) (2010) [MP3, Клара Румянова и др.]
+Мужчина в поисках эротики / The Erotic Man (2010) DVDRip
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136701.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия: «Мелодия – детям».
-В сказках Бориса Заходера, смеясь или негодуя, дети учатся понимать простую, но очень важную истину – «что такое хорошо и что такое плохо». Так, в тему постижения жизни Борис Владимирович включает понятия Добра и Зла, Справедливости и Несправедливости. И в этом большом и сложным мире иногда бывает трудно найти свое счастье. Где же и как (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 01:06:47
+Друг и верный соратник Ларса фон Триера Йорген Лет отправился в путешествие по самым экзотическим странам мира (Гаити, Сенегал, Филиппины, Бразилия, Аргентина и многие другие) в поисках природы эротики. О чем думает женщина, когда смотрит на мужчину? Что она чувствует, когда мужчина смотрит на ее обнаженное тело? Есть ли у обнаженного женского тела свой особый язык? (   Читать дальше...   )Производство: Дания / Nordisk Film, Zentropa ProductionsЖанр: ДрамаРежиссер: Йорген ЛетАктеры: Йорген Лет, Энджел Баяни, Марисса Сью Прадо, Мари Марта Дороти Лагуэрре, Джованна Биотто, Сара Гоглер, Часийен Анн да Силва Оливьера, Ана Флавия Кавальканти Рибейро, Хелена Серелло, Паула Юбе...Перевод: Многоголосый, закадровыйСубтитры: НетПродолжительность: 01:25:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF4EC7F3DD44B9B43611DE598396452167B8DE07
+magnet:?xt=urn:btih:E430CEB2A5C48A87FD4DBE62DE27E39846D644D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -478,25 +574,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 594008   (134984) от 24.12.2012
+###  Публикация: 651532   (136700) от 16.10.2025
 
-Gilrs Wallpaper Collection (24.12.12) [Wallpapers 16+]
+Аркадий и Борис Стругацкие | Град обреченный (2013) [MP3]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136700.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 4000х3000
+Аркадий Натанович и Борис Натанович Стругацкие – классики современной научной и социальной фантастики. Произведения Стругацких издавались в переводах на 42 языках в 33 странах мира. На русском языке вышло четыре полных собрания их сочинений.
+Действие романа происходит в загадочном Городе, жители которого вовлечены в странный Эксперимент. Все они перенесены сюда из (   Читать дальше...   )Жанр: ФантастикаИздательство: АрдисПродолжительность: 16:57:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0A27D8B0F1ACCABCA65BB85B3EDA7051A1997A6
+magnet:?xt=urn:btih:D299149B19ABB3F89973F2651AA8B525591BF038
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -504,27 +601,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679837   (134983) от 27.11.2023
+###  Публикация: 1825151   (136699) от 16.10.2025
 
-Борис Заходер | Стихи и песни для детей. Кит и кот (Аудиоспектакль) (2001) [MP3, Вера Васильева, Алексей Баталов и др.]
+Лукашенко потребовал до понедельника разобраться с людьми, которые пьют кофе на заправках
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_136699.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Борис Владимирович Заходер (1918–2000) – известный советский,  российский писатель, переводчик, автор стихов, сказок и пьес для детей и взрослых, а также пересказов и переложений на русский язык известных произведений зарубежной детской литературы. Лауреат Государственной премии Российской Федерации (1999).
-
-В этой книге собраны самые известные, добрые, забавные и (   Читать дальше...   )Жанр: Русская литература для детей, стихи, песниИздательство: ООО «РОФФ ТЕКНОЛОДЖИЗ», СамоварПродолжительность: 00:43:49
+На совещании глава государства рассказал, что сначала задался вопросом, в чем причина очередей на АЗС и неужели правительство не выполняет поручение о том, чтобы внутренний рынок в достаточном объеме обеспечивался топливом.Но, как выяснилось, порой на АЗС образуются очереди из-за того, что люди приезжают не заправиться, а воспользоваться кафе. «Машины поставили поперек, (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84F7F241CF044FB7017F98C7D91658ED3C86C9A4
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -532,25 +627,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 594005   (134982) от 24.12.2012
+###  Публикация: 1825359   (136698) от 17.10.2025
 
-Sexy Girls Pack Wallpapers (24.12.12) [Wallpapers 16+]
+Одни дома (2025) WEBRip [H.264/720p] (сезон 1, серии 1-17 из 17)
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Отечественные сериалы
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136698.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+Юная бьюти-блогер, подросток-пранкер, отличница-душнила и 6-летний фанат «тру крайма», вечно задающий вопросы — это четверо детей Акимовых. Как любые ребята их возраста, Алина, Женька, Вика и Коля мечтают остаться одни дома, без надзора папы и мамы. Но когда их родители застревают на Камчатке из-за облака вулканического пепла, мечта становится реальностью, а квартира (   Читать дальше...   )Производство: Россия | Меркурий КонтентЖанр: комедия, семейныйРежиссер: Алексей РоманюкАктеры: Анна Изотова, Феодор Кирсанов, Екатерина Червова, Александр Пинаев, Павел Рассомахин, Сергей Степин, Юлия Синицына, Денис Кутузов, Алиса Лисичкина, Георгий ШихановПродолжительность: ~00:25:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B1E53B64BB980F0EF8E70BF16BECF448BBD5099
+magnet:?xt=urn:btih:208BBB3EB6A20A89F806C837A2EA29DF541BBEF7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -558,34 +653,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593885   (134981) от 24.12.2012
+###  Публикация: 1824952   (136697) от 16.10.2025
 
-VA - Liberation Melody (2012) [MP3|320 кб/с]<Trance>
+Колбаса (2025) WEBRip [H.264/1080p]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Горячие новинки
+>>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136697.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ozo Effy - Eve (Original Mix) 07:17
- 02. Orjan Nilsen - Copperfield (Original Mix) 07:09
- 03. Nds & Blue Vs Spark7 - Your Love (Original Mix) 07:39
- 04. Neev Kennedy, Adrian&Raz - This Heart Is Yours (Philippe El Sisi Remix) 07:13
- 05. Matt Bukovski - Blissful Time (Original Mix) 06:38
- 06. Kenan Teke - Black Tulips (Original Mix) 07:11
- 07. Markus Schulz Feat. Ana Diaz - Nothing Without Me (Beat Service Remix) 07:12
- 08. Paul Webster - Engaged (Indecent Noise Remix) 06:20
- 09. Fisher & Fredda.L - Into The Light (Original Mix) 06:42
- 10. Juventa - 405 (Original Mix) 07:22(   Читать дальше...   )Жанр: TranceПродолжительность: 02:52:45
+Молодой избалованный мажор Глеб, сын олигарха Ивана Копытова, отправляется в деревню для оптимизации бизнес-процессов на умирающем колбасном заводе. Глеб стремится доказать своему отцу, что он способен быть эффективным топ-менеджером. Однако жители деревни во главе с директором завода Фёдором Грудинкиным объявляют ему настоящую войну.Производство: Россия / Феникс СинемаЖанр: комедияРежиссер: Андрей ПантелеевАктеры: Александр Метёлкин, Дмитрий Нагиев, Полина Казанцева, Фёдор Лавров, Анна Уколова, Эрхан Нохоев, Сергей Степин, Иван Кокорин, Илья Соболев, Анатолий ЖуравлёвПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:34:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2573CDF60885FD17C74A0B9BC2A3C9894B0CC6C9
+magnet:?xt=urn:btih:FE8AFCA683AAFA0B56FEA2869B8ED4902A1BBA26
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -593,130 +679,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593660   (134979) от 24.12.2012
+###  Публикация: 1825358   (136696) от 17.10.2025
 
-Sexy Girls Wallpapers (23.12.12) [Wallpapers 16+]
+MediaHuman YouTube to MP3 Converter 3.9.17 (1510) RePack (& Portable) by elchupacabra [Multi/Ru]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136696.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+Вы любите слушать музыку на YouTube или Vimeo, но хотите делать это без интернета. Или нужно скачать саундтрек нового фильма с YouTube. А может быть, сохранить аудиокнигу и слушать ее потом в машине? Тогда наш конвертер YouTube в MP3 является отличным выбором для вас.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CE5A4B86708B8CE36D06DDE6859687BA4BA31C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593651   (134977) от 24.12.2012
-
-HQ Wallpapers Perfect Women (22.12.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600 x 1200 ~ 1920 x 1200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04F192D5154D4684D64316D875B4FB9359F841F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680014   (134976) от 27.11.2023
-
-Amadeus Pro 2.8.13 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amadeus Pro - многотрековый музыкальный редактор, который будет интересен как любителям, так и профессионалам. Приложение поддерживает работу с несколькими звуковыми дорожками, каждую из которых можно редактировать абсолютно независимо от других - изменять ее уровень громкости, накладывать различные фильтры, вставлять дополнительные фрагменты и т.д. Помимо этого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.11.2023Разработчик: © 2022 HairerSoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FF143022B82F09FC8ED4454B38B6E2B60AA2286
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680090   (134974) от 27.11.2023
-
-Bookends 14.2.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bookends - мощное приложение, которое представляет собой полнофункциональную библиографическую, справочно-информационную систему для студентов и профессионалов. Доступ к данным приложения можно получить из программ: Mellel, Nisus Writer Pro, MS Word (включая MS Word 2011), а так же Apple Pages и OpenOffice.
-Bookends позволяет сканировать существующие файлы и автоматически (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.11.223Разработчик: © 2022 Sonny SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF4BF2A3678CBED79B42D71D17EF704790014B6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594009   (134973) от 24.12.2012
-
-Gilrs Wallpaper (24.12.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 4000х3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC49F216BB63196B4F34DFD9ADE862F7C90B0BF
+magnet:?xt=urn:btih:C073FAF9CFBC93F0D13860202E778D865244CCC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

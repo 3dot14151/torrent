@@ -1,25 +1,25 @@
-###  Публикация: 1283324   (740337) от 16.02.2019
+###  Публикация: 1021103   (741073) от 29.05.2016
 
-VA - Black Hole Trance Music 02-19 (2019) [MP3|320 Kbps] <Trance>
+Jay Gordon - Blues Infested (1994) [FLAC|Lossless|tracks] <Modern Electric Blues, Blues-Rock>
 
->>Electronic
->>Trance
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741073.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Giuseppe Ottaviani feat. Clara Yates - Why (Extended Mix)
-02. Ferry Corsten & Ilan Bluestone - We're Not Going Home (Extended Mix)
-03. Andy Moor & Somna feat. Monika Santucci - Free Fall (Extended Mix)
-04. Driftmoon & Eco - They'll Never Find Us (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:49:14
+01. Voodoo Boogie    03:34
+02. Mississippi Mud    03:31
+03. Can't Shake This Feelin    04:15
+04. Storm In Chi Town    06:53(   Читать дальше...   )Жанр: Modern Electric Blues, Blues-RockПродолжительность: 00:32:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2246C61B6DCDA1885F06B9A1D37930A47F58884
+magnet:?xt=urn:btih:3C66653EBCF01D5A2DA211A3522C63FB6C1AAB09
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283255   (740336) от 16.02.2019
+###  Публикация: 1021092   (741072) от 29.05.2016
 
-VA - The Official UK Top 40 Singles Chart 15.02.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+Наталья Порошина | Василиса Прекрасная (2016) [MP3]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741072.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ariana Grande - break up with your girlfriend, i'm bored
-02. Ariana Grande - 7 rings
-03. Lewis Capaldi - Someone You Loved
-04. Sam Smith, Normani - Dancing With A Stranger(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:09:10
+Настоящая любовь способна творить чудеса — она излечивает раненое сердце, утоляет печали, не боится разлук и невзгод. И мы с трепетом ждем, когда же Она придет, чтобы увести нас в мир надежды и света, страсти и нежности. Узнать Ее, удержать, довериться Ей- значит воплотить мечту.Жанр: Современные романыПродолжительность: 05:47:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D88A6892215B9199362DF9DC709F9BFE07AF127
+magnet:?xt=urn:btih:7C68677D06670775265524CA664F39ECCD13AC30
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283094   (740335) от 16.02.2019
+###  Публикация: 1021258   (741071) от 29.05.2016
 
-Millencolin - SOS (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Punk>
+Юрий Герман | Алексей Жмакин выбирает дорогу (2016) [MP3]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741071.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. SOS (03:19)
-02. For Yesterday (02:46)
-03. Nothing (02:58)
-04. Sour Days (03:07)(   Читать дальше...   )Жанр: Pop PunkПродолжительность: 00:35:09
+Удачная, несмотря на время записи, постановка Ленинградского радио по криминально-воспитательному роману Германа "Один год" (1960), созданному им на основе ранних повестей «Лапшин» (1937) и «Алексей Жмакин» (1938). По мотивам произведения сыном-режиссёром создан умело раскрученный фильм "Мой друг Иван ЛапшиЖанр: Современная прозаПродолжительность: 01:56:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1D4078F596D0C7C529A71984BCF0F1CD3D7F818
+magnet:?xt=urn:btih:2301EB38108BD0B7E8CDCD7E618EEF52E26D9DE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283171   (740334) от 16.02.2019
+###  Публикация: 1021515   (741070) от 29.05.2016
 
-Футбол. Лига Европы УЕФА 2018-2019. 1/16 Финала. 1-й матч. Олимпиакос (Греция) — Динамо К (Украина) (14.02.2019) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+Особая статья. Порошенко: два года у власти  (29.05.2016) SATRip
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741070.jpg" />
 </div>
 
 
 ###  Подробнее
 
-14 февраля 2019, четверг. 20:55 МСК
-Лига Европы УЕФА 2017 - 2018. Плей-офф.
-1/16 Финала. 1-й матч.
-Олимпиакос (Пирей, Греция) — Динамо (Киев, Украина)(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:47
+Два года назад государственный переворот привел к власти Петра Порошенко. Рухнувшая экономика, обнищавшее население, борьба с собственным народом – вот что принес Украине «шоколадный король». Бесчисленные провалы в руководстве страной  и невыполненные обещания. Как его терпят избиратели и зачем ему жмут руку в Европе? Почему человек, сделавший свое президентство источником (   Читать дальше...   )Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДАЖанр: ТелепередачаПродолжительность: 00:37:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D2D2A05174608D3B1F147AB6F25A93AA79FD375
+magnet:?xt=urn:btih:5D68A86C7034805B3D62EC59AB6C1FF3DAE2DF54
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,256 +105,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283186   (740333) от 16.02.2019
+###  Публикация: 1020937   (741069) от 29.05.2016
 
-Футбол. Лига Европы УЕФА 2018-2019. 1/16 Финала. 1-й матч. БАТЭ (Беларусь) — Арсенал (Англия) (14.02.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740333.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 февраля 2019, четверг. 20:55 МСК
-Лига Европы УЕФА 2017 - 2018. Плей-офф.
-1/16 Финала. 1-й матч.
-БАТЭ (Борисов, Беларусь) — Арсенал (Лондон, Англия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F45370C5CFFCECCAE4CE45FEFD7605BD9232DBBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283239   (740332) от 16.02.2019
-
-Shivaree - Full Studio Discography (1999-2007) [FLAC|Lossless|tracks + .cue] <Country Rock, Soft Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paradise (3:49)
-02. I Wanna Be Your Driver (2:30)
-03. Half On A Baby (4:15)
-04. Don't Stop 'Til You Get Enough (4:02)(   Читать дальше...   )Жанр: Country Rock, Soft Rock, Indie Rock |Продолжительность: 00:34:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1643B44017ADB73FE7CD4D19895C8D472DF9DFD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283331   (740331) от 16.02.2019
-
-Футбол. Лига Европы УЕФА 2018-2019. Плей-офф. 1/16 Финала. Обзор первых матчей (2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740331.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 февраля 2019, четверг.
-Лига Европы УЕФА 2017 - 2018. Плей-офф.
-Обзор первых матчей 1/16 Финала.Телекомпания: Матч ТВ HDЖанр: Телепередача, СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 00:25:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C0B588F82FAFE65917A247B3024C558614B7220
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283402   (740330) от 16.02.2019
-
-Сноуборд. Чемпионат мира 2019. Парк-Сити (США). Хафпайп (2019) HDTV [H.264/1080i-LQ]
-
->>Спорт и активный отдых
->>Прочие зимние виды спорта
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740330.jpg" />
-</div>
-
-
-###  Подробнее
-
-08 февраля 2019 года
-3-й совместный Чемпионат мира по фристайлу и сноуборду 2019. Парк-Сити (США).
-Сноуборд.
-Хафпайп. Мужчины и Женщины(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2F7724BB92CB6B27FC1A30E0FACFAB5AA3BBCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283284   (740329) от 16.02.2019
-
-Fisky - Frisky (1979) LP [MP3|320 Kbps] <Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You've Got Me Dancing In My Sleep (6:56)
-02. Burn Me Up (With Your Love) (7:50)
-03. Tutty Frutty Booty (Is Good When Its Hot) (8:51)
-04. Love At First Sight (6:04)Жанр: Funk Soul, DiscoПродолжительность: 00:29:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8605A72109C7738BB355E09E68087970BBCD6ECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283357   (740328) от 16.02.2019
-
-Яндекс.Браузер 19.1.2.241 Portable by Cento8 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42BEBB9F2C124E9ABB4A1BA863E9103E96655D28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217907   (740327) от 07.04.2018
-
-Natron - Bedtime for Mercy (2000) [APE|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overblood
-02. Less Than Human
-03. Bedtime fo Mercy
-04. Astroblaster (dominion of the unknown)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72F4E509194CB9ECD713C2DC7BB7FAA7B4473E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217903   (740326) от 07.04.2018
-
-Myrk - Icons of the Dark (2003) [APE|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blindfolded By Misery	05:11
-02. Our Age Has Now Begun	04:50
-03. In Silence	05:31
-04. Myrk	05:16(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8B209864E7D526FBC11C093D07D0D866226DCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217905   (740325) от 07.04.2018
-
-Sincarnate - In Nomine Homini (2017) [FLAC|Lossless|image + .cue] <Doom Metal, Death Metal>
+Airborne Angel - The Collection (2016) [MP3|320 кб/с] <Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741069.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Attende Domine
-02. Agrat bat mahlat
-03. Curriculum Mortis
-04. She-of-the-Left-Hand (Sophia Pistis)(   Читать дальше...   )Жанр: Doom Metal, Death MetalПродолжительность: 01:01:36
+01. Time & Space (Alternative Mix) (07:43)
+02. Brute Force (Original Edit) (03:24)
+03. I Get You (08:05)
+04. Tense (08:30)(   Читать дальше...   )Производство: Stories In TranceЖанр: TranceПродолжительность: 01:13:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7D518D9A39E58456D141151789E0034F1AC9287
+magnet:?xt=urn:btih:9B9A35BC65EDA57CF869E388B2943CDEDEB033ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -371,161 +134,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217844   (740324) от 07.04.2018
+###  Публикация: 1021465   (741068) от 29.05.2016
 
-Joe Holiday - Mambo Jazz (1951 - 1954) 1991, Original Jazz Classics [APE|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello to You [03:09]
-02. Nice and Easy [02:27]
-03. Blue Holiday [03:42]
-04. This Is Happiness [02:59](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54048381CFA77BF36B52D54FD28C9A7779EE5C0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217848   (740323) от 07.04.2018
-
-Петр Андреев | Первое горе (1914) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:664976C65C383FF19D0498881BE01CC5FBA977E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217852   (740322) от 07.04.2018
-
-Петр Андреев | У пристани (1914) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы для детей младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA71B9FC19C2181F09DE6016587E230529F5F540
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217946   (740321) от 07.04.2018
-
-Елена Горбунова-Посадова, Вера Лукьянская (сост.) | Мыльные пузыри (1914) [JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник рассказов и стихов для детей младшего возраста.Жанр: Детская проза, СтихиФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDB32193C5FA8C11581032BD4C634E072793964F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217945   (740320) от 07.04.2018
-
-Елена Горбунова-Посадова, Вера Лукьянская (сост.) | Веселая тройка (1914) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник рассказов для детей младшего возраста.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:681D05D415CCEE5E739AAC3575F2502D2790855C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217992   (740319) от 07.04.2018
-
-VA - Spring Club Tunes 2018 [MP3|320 Kbps] <Deep House>
+VA - Intricate Rec 4 Year Anniversary (2016) [MP3|320 кб/с] <House, Progressive>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741068.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Andrew Ross - Example 03:55
-02. Jake Jones - You (feat Addie - Quoala remix) 03:33
-03. Alan Marvin - Memories (feat Scarlett Quinn) 03:39
-04. DeLoops - OK Without You (Oddboy remix) 03:44(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:52:18
+01. Feu d'Or - Chasin Joe
+02. Vadim Soloviev - Monday Bounce
+03. Alexey Sonar - Guest List
+04. Roddy Reynaert - Melancholy(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 04:29:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7681B98DE2A0DD7EBE7E87D274694EB79DB30A1B
+magnet:?xt=urn:btih:199D86D39CE6CC51C0D41D25C4D5C17425244855
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -533,28 +163,138 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217920   (740318) от 07.04.2018
+###  Публикация: 1021303   (741067) от 29.05.2016
 
-BLN - Reworked Rewired Vol.1 (2018) Touched Music [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Electro, Ambient>
+Новые русские сенсации. Новая Ванга! Явление русскому народу (2016.05.28) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа "Русские сенсации" - это еженедельное документальное приложение к "Программе Максимум". Созданная в лучших традициях расследовательской журналистики, программа развивает и углубляет этот жанр, затрагивая темы, о которых раньше никогда не рассказывало отечественное ТВ. Большинство фильмов - уникальные разработки, слишком громкие и масштабные (   Читать дальше...   )Телекомпания: НТВЖанр: ДокументальныйРежиссер: Глеб Ясиницкий, Андрей Куренков, Дмитрий ЦураСубтитры: ОтсутствуютПродолжительность: ~ 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:178388D89C64A71981F9459B53BECA50A96D0524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021321   (741066) от 29.05.2016
+
+Земля. Территория загадок. Проклятые президенты (2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему с 18 века на глав государств сыпались проклятия? Девятый президент США Гаррисон умер спустя месяц после инаугурационной речи. В 1860 году президентские выборы триумфально выиграл Линкольн, однако после выхода на второй срок его убили. Следующей жертвой стал Гарфилд. Виноваты ли в несчастьях вожди индейских племен?Телекомпания: МИРЖанр: ДокументальныйРежиссер: Алексей АртемьевПродолжительность: 00:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0A4FD0DE8C646C2B54DDD7BB4660E2A519F8ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282867   (741065) от 15.02.2019
+
+Louis Armstrong - What A Wonderful World (1962 - 1965) 1989, Jazz Hour [FLAC|Lossless|tracks + .cue] <Vocal Jazz, New Orleans Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What a Wonderful World [2:23]
+02. Indiana [4:28]
+03. Ole Miss Blues [4:01]
+04. The Faithful Hussar [5:18](   Читать дальше...   )Жанр: Vocal Jazz, New Orleans Jazz, SwingПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2CE1A76F679EC066355480BEFA201975E1A19CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283172   (741064) от 15.02.2019
+
+VA - Workout 2019 Aerobic Hits. Music For Fitness & Workout 128 BPM/32 Count [MP3|320 Kbps] <Funky, Club House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Maximum - La Fuerza (Extended Mix) 3:39
+02. Luka J Master & Carlo M feat. Regina Saraiva - Vem (Sanny J Mix) 4:24
+03. Condor feat. Adina - Feel U (Extended Mix) 4:45
+04. Joe Berte' & Dago Hernandez - Dance In The Stars (Daniel Tek Remix) 4:53(   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 01:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4920A350032F612826BBAB6A6FB13463D6C9F5D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282857   (741063) от 15.02.2019
+
+Thylacine - Roads, Vol.1 (2019) [FLAC|Lossless|tracks + .cue] <IDM, Ambient, Deep House>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741063.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Basementgrrr – Gothenburg (BLN Remix) (04:58)
-02. The Round Cube (04:00)
-03. Nine Inch Nails – In This Twilight (BLN Remix) (03:08)
-04. Mad (04:14)(   Читать дальше...   )Жанр: IDM, Experimental, Electro, AmbientПродолжительность: 01:12:08
+01. Thylacine – Murga (04:11)
+02. Thylacine – Purmamarca (05:55)
+03. Thylacine & Weste – El Alba (03:51)
+04. Thylacine – The Road (05:56)(   Читать дальше...   )Жанр: IDM, Ambient, Deep HouseПродолжительность: 00:44:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C4F1FAF4561FF0805EC3828D8E0ED41140E1F58
+magnet:?xt=urn:btih:28C8F7A0547C6D29871B68F1575BBDAC85F06C49
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -562,25 +302,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218017   (740317) от 07.04.2018
+###  Публикация: 1283062   (741062) от 15.02.2019
 
-Журнал | House Beautiful [UK] №5 (май 2018) [PDF] [En]
+Del Faro - 2 Albums (1988, 2015) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Europop>
 
->>Журналы
->>Домоводство (журналы)
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741062.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал "House Beautiful" - одно из ведущих изданий по интерьеру в США. В журнале публикуются лучшие идеи декорирования жилых помещений и кухонь, а также полезные советы по установке бытовой техники. Это должно вдохновить читателей журнала не бояться пробовать что-то новое, принимать смелые решения с цветом и стилями собственных интерьеров.Жанр: Дизайн, архитектура, интерьерФормат: PDF
+01. La Piazza (3:51)
+02. Sara (4:27)
+03. A Chi (3:20)
+04. Volare (3:37)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, EuropopПродолжительность: 02:02:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7171C87E7F78ACFC4A2B924776FD0D5813380EA7
+magnet:?xt=urn:btih:B87FCAF208953FB5A2B87EC3804F6D83CEB07AB2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -588,26 +331,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397468   (740316) от 20.07.2020
+###  Публикация: 1282912   (741061) от 15.02.2019
 
-Лондон / London (2005) WEB-DL [H.264/1080p-LQ] [Open Matte]
+Fakear - All Glows (2018) [FLAC|Lossless|tracks + .cue] <Experimental, Downtempo>
 
->>нет
->>нет
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_740316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741061.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бросившись в пучину страстного, бурного романа с девушкой по имени Лондон, Сид верил, что эта музыка сфер будет вечной, но ошибся. Однажды они оба поняли, что чувства исчерпали себя, и Лондон ушла из жизни героя. Но девушка ушла, а боль осталась. Пытаясь заглушить муки разбитого сердца, Сид пускается во все тяжкие, глуша себя виски и наркотиками. Тщетно!
-Поняв, что (   Читать дальше...   )Производство: Великобритания, США / Destination Films, LHR Productions Inc., National Film and Television School (NFTS)Жанр: драма, мелодрамаРежиссер: Хантер РичардсАктеры: Крис Эванс, Джессика Бил, Джой Брайант, Джейсон Стэтхэм, Келли Гарнер, Айла Фишер, Луис С.К., Джефф Вульф, Дейн Кук, Лина Эско, Паула Паттон, Кэт Деннингс, Джульетт МаркизПеревод: Многоголосый, двухголосый, авторскийСубтитры: английскиеПродолжительность: 01:32:19
+01. Prelude (01:42)
+02. Something Wonderful (feat. Ana Zimmer) (03:39)
+03. Lost in Time (feat. Polo & Pan, Noraa & Clement Bazin) (02:54)
+04. Lost Colours (03:40)(   Читать дальше...   )Жанр: Experimental, DowntempoПродолжительность: 00:58:14
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:E2F8B1AB7116E3B01281667A5227A4BBE16C34DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -615,25 +360,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218091   (740315) от 07.04.2018
+###  Публикация: 1283144   (741060) от 15.02.2019
 
-Партия меньшевиков и деникинщина: Процесс киевских меньшевиков [21-23 марта 1920 г.] (1923) [PDF]
+VA - Italo Disco Evolution (2018) [MP3|320 Kbps] <Italo-Disco, Hi-NRG>
 
->>Научная и техническая литература
->>Историческая литература
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741060.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Процесс киевских меньшевиков, отчет о которой найдет читатель дальше, имел целью раскрыть перед рабочим классом еще раз ту двуличную и предательскую роль, которую меньшевики играли все время по отношению к пролетарской революции.Жанр: История, политология, документалистикаФормат: PDF
+01. Cy-Ro - It's All up to You (Extended Mix) 05:56
+02. Michelle Rose - Hard to Say I'm Sorry (Extended Mix) 06:11
+03. Ciao Ciao - The Magic of Sunshine (Extended Mix) 06:07
+04. Francis Cooper - Pretty Woman (Extended Mix) 05:50(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRGПродолжительность: 01:00:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB2FD436CE1150DE5C2E506AE038482034BCF283
+magnet:?xt=urn:btih:54D36BED608878E4D3C2FE7F4BE342C55FF3F66F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -641,25 +389,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397387   (740314) от 20.07.2020
+###  Публикация: 1283073   (741059) от 15.02.2019
 
-Игорь Романов | Не орите на меня! (2020) [FB2]
+Мадлен Л`Энгл | Острова во времени (2019) [FB2]
 
->>нет
->>нет
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_740314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741059.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Выходить победителем из любой перепалки. Гасить конфликт парой фраз. Доброжелательно отстаивать свои границы и превращать врагов в хороших приятелей. Этому учит книга, написанная врачом-психиатром, психологом с тридцатилетним стажем, деканом факультета коммуникативного менеджмента РГСУ, бизнес-тренером Игорем Романовым. Он предлагает 8 проверенных техник, которые (   Читать дальше...   )Жанр: Практическая психология, Психологические тренингиФормат: FB2
+Решив пожить у дедушки с бабушкой, мистера и миссис Мёрри, Полли О’Киф собиралась провести это время с пользой и удовольствием. Познавательные беседы, встречи с приятными соседями, старый знакомый, чьи визиты носят приятный романтический характер… Казалось бы, ничто не предвещает тревог. Однако дом Мёрри – своего рода остров во времени, омываемый потоками прошлого (   Читать дальше...   )Жанр: Детская фантастика, Зарубежная фантастика, Книги для подростковПеревод: Анна ХромоваФормат: FB2
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:414DDB9610894D3978DBE2691D52343411E130C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -667,28 +415,195 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217952   (740313) от 07.04.2018
+###  Публикация: 1283017   (741058) от 15.02.2019
 
-Конькобежный спорт. Кубок мира 2017-2018. Минск (Белоруссия). 6-й Этап (2018) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+Robbie Williams - Under the Radar, Vol. 3 (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741058.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Impossible
+2. Gold
+3. Dirty Rotten
+4. Good People(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2742B9C5AA595456AA4E094D7E2498C83883CC7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283084   (741057) от 15.02.2019
+
+Privacy Eraser Free 4.47.2 Build 2778 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
+Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F6FF3ABF391CB79FFAF31AEBD4BDDAEF53D3AF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282901   (741056) от 15.02.2019
+
+Winger - Live (2007) от ALEXnROCK WEBRip
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный концерт, исполнено здоровски! Любителям крутого хард рока рекомендую. Рип делал с фирменного двд, ничего не вырезал. Звук поставил с CD. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK01 Blind Revolution Mad
+02 Loosen Up
+03 Easy Come Easy Go
+04 Your Great Escape(   Читать дальше...   )Жанр: RockПродолжительность: 01:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DC4FC0416A27118FFBED6306736BC470DC91C02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282636   (741055) от 15.02.2019
+
+Rotting Christ - The Heretics (2019) [MP3|320 Kbps] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 In the Name of God
+02 Vetry ZlyeЖанр: Black MetalПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA6F932561D9D8B685FF2520C2DCAD947177FE02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283057   (741054) от 15.02.2019
+
+Foreigner - Live in Concert (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741054.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Head Games (Live)
+2. Feels Like the First Time (Live)
+3. Cold as Ice (Live)
+4. Hot Blooded (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76FCCE64A9F745C9953A2968D4B927DD5745985D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283092   (741053) от 15.02.2019
+
+Vivaldi 2.3.1440.48 Stable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A099604F153D08A79DFCB7333680298F92ACB4B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283166   (741052) от 15.02.2019
+
+Футбол. Лига Европы УЕФА 2018-2019. 1/16 Финала. 1-й матч. Краснодар (Россия) — Байер (Германия) (14.02.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741052.jpg" />
 </div>
 
 
 ###  Подробнее
 
-17 марта 2018 года - 18 марта 2018 года
-Финальный этап Кубка мира по конькобежному спорту в сезоне 2017-2018 года. Минск (Белоруссия)
-1-й день соревнований:  17 марта 2018 года
-Женщины / Мужчины - 500 м 1-й забег(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:05:44 - 03:15:21
+14 февраля 2019, четверг. 20:55 МСК
+Лига Европы УЕФА 2017 - 2018. Плей-офф.
+1/16 Финала. 1-й матч.
+Краснодар (Краснодар, Россия) — Байер (Леверкузен, Германия)(   Читать дальше...   )Телекомпания: Матч! Премьер HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:22:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE121BE3652DE0BE21C1F90BFE918EFB581ACEAD
+magnet:?xt=urn:btih:E6E229C1982A2163A02F5F6B5DBC98DFA8F8E091
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -696,26 +611,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397384   (740312) от 20.07.2020
+###  Публикация: 1283055   (741051) от 15.02.2019
 
-Таэ Юн Ким | Иди туда, где трудно. 7 шагов для обретения внутренней силы (2020) [FB2]
+ST1M - Калейдоскоп (2019) EP [MP3|320 Kbps] <Rap, Hip-Hop>
 
->>нет
->>нет
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_740312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741051.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Она нарушила тысячелетнюю корейскую традицию, запрещавшую женщинам заниматься боевыми искусствами. Таэ Юн Ким стала не только первоклассным бойцом, но и открыла свою школу единоборств.
-Ким уверенна: каждый из нас – не важно, мужчина или женщина, американец, русский или кореец – способен достичь абсолютно любой цели. Единственное, что нам мешает, – это внутренние (   Читать дальше...   )Жанр: Зарубежная психология, Личная эффективность, Саморазвитие / личностный ростФормат: FB2
+1. Калейдоскоп
+2. Jetpack
+3. Не дождётесь
+4. Выживи(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:16:27
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:D5598FEE670F2645B6E4C73787E2BDA7F75EFA12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283097   (741050) от 15.02.2019
+
+Monoplay - Octopus (2019) Nopassport Records [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Journey (Original Mix) (6:21)
+ 02. See You (Original Mix) (7:03)
+ 03. So Far (Honestly) (Original Mix) (5:32)
+ 04. Octopus (Original Mix) (3:46)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C0AB59CE6042B4CC65583F808D382CF0CEBF985
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283014   (741049) от 15.02.2019
+
+VA - Sanremo 2019 (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741049.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Loredana Berte' - Cosa ti aspetti da me
+02. Ultimo - I tuoi particolari
+03. Patty Pravo & Briga - Un po' come nella vita(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D05EEC26846030AAC8300C49ED013ADD886004F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282201   (741048) от 15.02.2019
+
+Синяя армада (2017) WEB-DLRip [H.264] [MP4|1280x720]
+
+>>Мультимедиа и прочее
+>>Мобильное Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о создании, становлении и развитии команды КАМАЗ-мастер приуроченный к 30-летию коллектива.Телекомпания: Red Bull TVЖанр: ДокументальныйПродолжительность: 00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:253D984F67B6FD5582C76D86D8495E16F4EB1CA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

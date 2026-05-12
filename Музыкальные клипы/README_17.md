@@ -1,3 +1,81 @@
+###  Публикация: 682085   (630903) от 23.07.2013
+
+Mr Sam & Andy Duguid vs. Pat Benatar - Invincible (2010) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mr Sam & Andy Duguid vs. Pat Benatar - InvincibleЖанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BA9C91C8FDBFEF12A5AA69725F95D21AAAB3CCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682043   (630894) от 23.07.2013
+
+Chicane vs Natasha Bedingfield - Bruised Water (2009) [720p]HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chicane vs Natasha Bedingfield - Bruised Water (Original)Жанр: TranceПеревод: ОтсутствуетПродолжительность: 00:03:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47C036C36759B58E61ADF0D11AA0AABAA879315C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682028   (630891) от 23.07.2013
+
+ATB - Humanity (Airplay Mix) (2005)   [H.264]HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630891.jpg" />
+</div>
+
+
+###  Подробнее
+
+ATB - Humanity (Airplay Mix)(Official Video HD)Жанр: TranceПеревод: ОтсутствуетПродолжительность: 00:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD6DA933AC0B026FE5437E5A77473C2C0E31408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 682030   (630780) от 23.07.2013
 
 ATB - Let You Go (Reworked) (2005) HDTVRip 720p
@@ -600,86 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1E454A2DE7084B9497018EBB461C112C9443A31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522791   (620260) от 14.07.2012
-
-Сборник Советской Эстрады №5 (2012) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 02:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD99C85641E560177A0414DFE573805114DAEEF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523226   (619227) от 15.07.2012
-
-Gia. Lights Out (2012) [H.264/1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POPПродолжительность: 00:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DC88D61856C6F2931B1DBAAC223998A9FC3FB74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523704   (616473) от 16.07.2012
-
-Girls' Generation (SNSD) - Music video collection. Part 2 (2007-2012)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеография группы Girls' Generation (SNSD)
-
-Girls' Generation (аббревиатура So Nyeo Shi Dae - SNSD)- корейская группа которая состоит из девяти девушек: Лим Юна (Lim Yoona), Стефани Хвон (Tiffany), Квон Юри (Kwon Yuri), Ким Хёён (Kim Hyoyeon), Чхве Суён (Choi Sooyoung), Сэ Чжихён (Сэхён (Seo Juhyun (Seohyun))), Ким Тэён (Kim Taeyeon), Джессика Чон (Jessica Jung), (   Читать дальше...   )Жанр: POP (kpop)Перевод: ОригинальныйСубтитры: Корейские, Японские, Китайские, Английские (вконверчены в некоторые файлы)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D1FD9FD137642EA1B2990849A1716C6CE45179
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 938066   (483744) от 17.09.2015
+
+Kraster - 26 альбомов (2008-2013) Touhou Vocal /Doujin/ [FLAC|tracks] <J-Pop, J-Rock>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2012.08.11 the sign of IV (C82)
+2012.12.30 Kraster — Majo to Ringo to Samayou Kimi to (C83)
+2013.05.26 (KRII-0001) Ne;on×KEROchan☆ (Reitaisai 10)Тип издания: DoujinЖанр: J-Pop, J-RockФормат: Touhou VocalПродолжительность: 00:15:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AB5E42D5857757269D60776F804C2A7A62793A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 749785   (481826) от 18.09.2015
 
 BLANKFIELD - 8 альбомов (2008-2014) Touhou Instrumental /Doujin/ [FLAC|Lossless] <J-Metal>
@@ -744,41 +773,6 @@ Shoujo Byou - 26 альбомов (2004-2012) /Doujin/ [FLAC|tracks] <J-Rock, Go
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D36ACED4958CF25D9199095BF4DA16B7B2C1831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555365   (431700) от 03.10.2012
-
-VA - Walking On The Mountain Paths (2008) [MP3|320 кб/с]<New age, Instrumental>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431700.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:52) 01. Along The Riverside
-(4:09) 02. Walking On The Mountain Paths
-(5:31) 03. Dancing Mists In My Dream
-(5:09) 04. Silence In The Night
-(5:30) 05. The Railways Of The Forests
-(5:11) 06. Beads Of The Morning Dew
-(5:58) 07. The Shining Stars
-(4:12) 08. The Rising Sun And Sea Of Clouds
-(4:24) 09. The Greenshower
-(4:27) 10. In The Misty MorningЖанр: New age, InstrumentalПродолжительность: 00:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4771E158C9211104B1922566CF84C67845DC23A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

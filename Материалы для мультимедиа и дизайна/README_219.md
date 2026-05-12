@@ -1,3 +1,111 @@
+###  Публикация: 701567   (473792) от 19.09.2013
+
+Digital Juice - Drag & Drop - All 8 Volumes (converted) [MP4]
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все 8 пакетов (Film Clutter, Bokeh, Unnecessary Roughness, Light Sweeps, Glitch FX, Reflective Thoughts, Damage Control, Light Leaks)
+Всё разложено по папкам и переведено в .mp4 1080p ~10Mbps
+Практически без потери качества...Формат: MP4Разрешение файлов: 1080p
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9DB537F74DC49528EEEC3542E77877D300BFC98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245322   (473749) от 05.09.2018
+
+Экшены - GraphicRiver - Daguerreotype Photo - Photoshop Action - 22489108 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Daguerreotype Photo - этот экшен фотошоп даёт вашим изображениям, фотографиям удивительный эффект Дагерротипа. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E803C0CA88CF43A16D5D5068CD03964B43A1100E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245273   (473740) от 05.09.2018
+
+3D модели - Daz 3D - Latonya 8 Pro Bundle - 52605 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Latonya 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F9BA3C5DFE0F988E007201C7D0F978615C02DFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245281   (473668) от 05.09.2018
+
+3D модели - Daz 3D - Monique 8 Pro Bundle - 47321 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Monique 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32FCBC02640BB606223DA7DDB401FC9A6AF4551B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939283   (472779) от 22.09.2015
 
 Пресеты - VideoHive - 22 Awesome Cartoon Text Presets [FFX, AEP]
@@ -571,110 +679,6 @@ Architectum 3 - этот экшен фотошоп, поможет вам соз
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDB848E390406C0816CC5558DC4837A173B85EEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246048   (467528) от 08.09.2018
-
-3D модели - Hum3D - Ford Sterling A9500 Tractor Truck 2006 [V-Ray|*.max, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467528.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки FordФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FB8C97D3A9F4CDB4047B532D6C6F63DF00A8AE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245866   (467322) от 08.09.2018
-
-Футажи - VideoHive - VJ Distorted Lights (Set 8) - 19270951 [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восьмой комплект который содержит 52 зацикленных клипа для ваших музыкальных видеороликов, видео арта, вечеринок, видео проекций и многое другое.Формат: MOVРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CEAD30F2A822C16C7A2B72F71E79EEEDD55B8DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245865   (467318) от 08.09.2018
-
-Футажи - VideoHive - VJ Distorted Lights (Set 7) - 19270921 [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Седьмой комплект который содержит 52 зацикленных клипа для ваших музыкальных видеороликов, видео арта, вечеринок, видео проекций и многое другое.Формат: MOVРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:118EB2A4305BFDA61BC61C71EB48B8E9CC4CD259
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245867   (467170) от 08.09.2018
-
-Футажи - VideoHive - VJ Distorted Lights (Set 9) - 19270970 [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девятый комплект который содержит 52 зацикленных клипа для ваших музыкальных видеороликов, видео арта, вечеринок, видео проекций и многое другое.Формат: MOVРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FA5CCE8F94EB1EA3B7E864C330809E94F8D2914
 ```
 
 https://mybot314.ru/tekegram_catalog/

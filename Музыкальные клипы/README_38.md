@@ -1,3 +1,87 @@
+###  Публикация: 241116   (51554) от 30.06.2024
+
+Chris Isaak  "BEST OF" (2006) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полное собрание клипов Криса Айзека1. Wicked Game
+2. Dancin'
+3. Somebody's Crying
+4. San Francisco Days(   Читать дальше...   )Жанр: Blues Rock/Southern Rock/PopПеревод: Оригинальный
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484206F5E971D1BB1782900808FCBE7BF4EB3533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 51018   (50210) от 13.07.2024
+
+ZZ Top: Greatest Hits (2004) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Greatest videos, a groundbreaking collecton from the band that made chopped cars, great- -lookinf girls and fur-covered guitars an art form all their own. Right from the start, with "Gimme All Your lovin'" and the rest of the Elminator trilogy - "Sharp Dressed Man" And "Legs" - ZZ Top has pioneered the High-Concept video. And they're (   Читать дальше...   )1. Gimme All Your Lovin'
+2. Sharp Dressed Man
+3. Legs
+4. TV Dinners(   Читать дальше...   )Жанр: Музыка, Rock, Hard Rock, Blues RocПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:871AFA9761BC49C91AFB7AB29ECE1794E23F64D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737325   (49699) от 17.07.2024
+
+Агутин, Куценко, Полицеймако, Гутин – «ПОНТЫ» (2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49699.jpg" />
+</div>
+
+
+###  Подробнее
+
+В анимационном видео четверо артистов играют участников популярной группы, отправляющейся на гастроли из Москвы в Сочи. Принарядившись в дорогом бутике, они выходят на сцену в дизайнерских костюмах, чем вызывают гнев публики и вынуждены бежать на необитаемый остров на катере, по дороге скормив обновки акуле.Жанр: PopРежиссер: Денис КузьминПродолжительность: 00:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:252568D511F5AEF946B8DE332C799C7119B6A100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 112803   (49160) от 23.07.2024
 
 Shocking Blue - Greatest Hits Around the World (2004) DVD-5
@@ -621,84 +705,6 @@ Eminem - Berzerk (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Ups
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61A743CECBCC602B01B0D3D40E1F0BA08A307357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764204   (35002) от 06.12.2024
-
-Taylor Swift - We Are Never Ever Getting Back Together (2012) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35002.jpg" />
-</div>
-
-
-###  Подробнее
-
-«We Are Never Ever Getting Back Together» (с англ. — «Мы никогда больше не будем вместе») — сингл американской кантри и поп-певицы Тейлор Свифт, изданный 13 августа 2012 года лейблом Big Machine Records и ставший первым с нового 4-го альбома Red, выход которого состоялся позднее, 22 октября 2012 года. Премьера клипа на песню состоялась на каналах CMT, (   Читать дальше...   )Жанр: бабблгам-поп, поп-рок, электро-фолкПродолжительность: 00:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A8074FABB78E0F7DBB86CDDE70580650148F86D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764203   (35001) от 06.12.2024
-
-Eminem - Rap God (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35001.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Rap God» (с англ. — «Бог рэпа») — третий сингл американского рэпера Эминема из его восьмого студийного альбома. Премьера песни состоялась 14 октября 2013 года. Песня занесена в Книгу рекордов Гиннесса как хит с самым большим количеством слов (1560). 27 ноября 2013 года, как и планировалось, клип был выпущен на Vevo. В клипе Эминем пародирует Max Headroom. (   Читать дальше...   )Жанр: хип-хопПродолжительность: 00:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54657164CAA39109FA0A2A3F6145A58CE3FC1C2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764200   (34990) от 06.12.2024
-
-Eminem feat. Rihanna - Love The Way You Lie (2010) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34990.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Love the Way You Lie» (с англ. — «Мне нравится, как ты лжёшь») — песня американского рэпера Эминема, записанная при участии барбадосской певицы Рианны, и второй сингл его седьмого студийного альбома Recovery, выпущенный в июне 2010 года лейблами Shady Records, Interscope Records и Aftermath Entertainment. Официальная премьера клипа на YouTube-канале (   Читать дальше...   )Жанр: поп-рэпПродолжительность: 00:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8623DEB9542F51FC799359B3326A14450E70E76A
 ```
 
 https://mybot314.ru/tekegram_catalog/

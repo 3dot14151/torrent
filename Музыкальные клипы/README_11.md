@@ -1,3 +1,86 @@
+###  Публикация: 1372789   (880337) от 06.04.2020
+
+МУАР -  3 Music Videos (2012-2019) WEBRip [H.264/1080p-LQ] <Alternative Rock, Gothic Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880337.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2012 МУАР -  Say my name (1080)
+002 2017 МУАР -  За чертой (1080)
+003 2019 МУАР - Вдаль (1080)Жанр: Alternative Rock, Gothic MetalПродолжительность: 00:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0252442755B80E2C6408386A8080302D5EFD6ECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373121   (880231) от 06.04.2020
+
+Eternal Delyria - 6 Music Videos (2014-2020) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880231.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2014 Eternal Delyria - Wake Up
+002 2016 Eternal Delyria - Chasing Shadows
+003 2016 Eternal Delyria - Eradication Of Solitude And Despair
+004 2018 Eternal Delyria - The Awakening(   Читать дальше...   )Жанр: Symphonic Death MetalПродолжительность: 00:34:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08168D14B7521033F4C4DC139360E59CCF382AA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373441   (880217) от 06.04.2020
+
+Эдуард Суровый (DJ Kopernik) -  Философская (remastered) (2020) WEBRip [H.264/720p-LQ] <Pop>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эдуард Суровый (DJ Kopernik) -  Философская (Remastered) 2020Жанр: PopРежиссер: SMM & DigitalАктеры: Эдуард СуровыйПродолжительность: 00:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F8AC461755C3545E4A020A9076F8666E25749A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373464   (880139) от 06.04.2020
 
 Babooshka (Александр Константинов) - Православный аватар (2020) [H.264/1080p-LQ]
@@ -615,90 +698,6 @@ Music Video: Ellie Goulding & blackbear - Worry About Me (2020)Жанр: Post-Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B64D932DE5F7AA107F3228C912F8AFA9958307BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375301   (863761) от 15.04.2020
-
-Kill the Kong - 7 Music Videos (2015-2020) WEBRip [H.264/2160p/1080p-LQ] <Sweden Metalcore, Groove Metal >
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863761.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 2015 Kill The Kong - Caged (2160)
-002 2016 Kill The Kong - Bring the Heat (1080)
-003 2017 Kill the Kong - Ashes In the Wind (1080)
-004 2017 Kill The Kong - Juggernaut (Wolfpack) (1080)(   Читать дальше...   )Жанр: Metalcore, Groove MetalПродолжительность: 00:28:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6415CC82F6FA5E48B89C86BA0DD006F55A0FD3FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375328   (863609) от 15.04.2020
-
-Bongtower - 5 Music Videos (2019) WEBRip [H.264/1080p-LQ] <Stoner, Doom Metal>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863609.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 2019 Bongtower - Altered States (1080)
-002 2019 Bongtower - Bong Rider (1080)
-003 2019 Bongtower - Defender of Humanity  (1080)
-004 2019 Bongtower - What's Wrong With You (1080)(   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:867505AB59C1D7A933E468830917ABBE550DE704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375595   (863534) от 15.04.2020
-
-Юлия Чичерина - Дискотека (2020) WEBRip [H.264/720p-LQ] <Альтернативный Рок>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Юлия Чичерина - ДискотекаЖанр: Альтернативный РокПродолжительность: 00:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A747708E623B466F9912465BEC4F90D3D016B8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

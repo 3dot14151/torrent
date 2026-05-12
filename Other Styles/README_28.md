@@ -1,3 +1,119 @@
+###  Публикация: 224083   (887981) от 01.04.2020
+
+Bliss - 8 Альбомов (1997-2007) [FLAС|Lossless|tracks] <Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1997 - Flying Free
+1997 - The Journey
+1999 - Through These Eyes(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 07:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C0664D4DAF34DBFC370F39275A81AC9FABF7FCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 145860   (887976) от 01.04.2020
+
+Enigma - Greatest Hits (2008) 2CD Digipack Edition [FLAC|Lossless|image + .cue] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out From The Deep (Short Radio Edit) (3:27)
+02. Seven Lives (4:25)
+03. Goodbye Milky Way (5:53)
+04. Following The Sun (Radio Edit) (4:16)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 02:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B012AB3BBDA7ABBA29D8A46D12F779F76BFD3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994672   (887788) от 09.03.2016
+
+Omnia - Naked Harp (2015) [MP3|320 кб/с] <Folk, World, Celtic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Morning in May  03:08
+02. The Flutterby Set  04:42
+03. Eleanor Plunkett  02:43
+04. The Fairy Queen  02:50(   Читать дальше...   )Жанр: Folk, World, CelticПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA85238EE5D1596FDDAA9E2E46DEC7C3AD229475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494655   (887713) от 08.09.2021
+
+Guy Sweens - Rise of the Inca (2021) [MP3|320 Kbps] <New age, Ethnic, Native American>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viracocha
+02. Inti Raymi
+03. Cusco
+04. The Power of Stones(   Читать дальше...   )Жанр: New age, Ethnic, Native AmericanПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A910CE733E6CAE39981F88C047E53E63E8559B71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371654   (886921) от 02.04.2020
 
 Art of Empathy - End Of I (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Neofolk, Darkwave, Atmospheric>
@@ -627,120 +743,6 @@ Agrelia's Castle - Elders and Ancestors (2015) [MP3|320 кб/с] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F68A97102CF5E3CD03987A8EC40BCAF96547C4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996376   (881068) от 13.03.2016
-
-VA - All Music Of The World, A Collection Of Ambient Music Remixed With Native Sound (2001) 3CD [MP3|320 кб/с] <World Music, Native, Ethno>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hitching Place of the Sun
-02. Sichuan Mix
-03. Jokhang Soul
-04. Rwenzori Labyrinth(   Читать дальше...   )Жанр: World Music, Native, EthnoПродолжительность: 03:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BDE27E541071C9A909CC572C04E966E90C90AD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996118   (880836) от 13.03.2016
-
-Hans Zimmer & Richard Harvey - The Little Prince / Маленький принц (Original Motion Picture Soundtrack) (2015) [FLAC|Lossless|tracks+ .cue]<Score, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Preparation (02:10)
-02. Turnaround (03:27)
-03. The Life Plan (01:13)
-04. Driving (01:41)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB06BD6C1B3CB4728DD74CDCEA5C418C01B23E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 362948   (879840) от 06.04.2020
-
-Dr. Jeffrey Thompson - Natural Music For Sleep (2001) [FLAC|Lossless|tracks + .cue] <Ambient, Relax, Healing>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hidden Beauty (34:07)
-02. Kiss Good Night (35:20)Жанр: Ambient, Relax, HealingПродолжительность: 01:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6B47954BBE1A0FED73FAB5C4D9DD68B3B964E38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104125   (879826) от 15.02.2017
-
-VA, Lorne Balfe - The LEGO Batman Movie / Лего Фильм: Бэтмен (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black (07:32)
-02. Your Greatest Enemy (02:42)
-03. The Arrival of Robin (02:52)
-04. Joker Crashes the Party (01:33)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:34:32 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FFD882BF64A9B0B081C21C93249A235652CC560
 ```
 
 https://mybot314.ru/tekegram_catalog/

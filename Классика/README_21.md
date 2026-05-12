@@ -1,3 +1,61 @@
+###  Публикация: 793183   (702271) от 06.06.2014
+
+Vivaldi J.S. Bach A. Marcello Telemann-Concertos for oboe and orchestra Vladimir Kurlin (1971, 1977)/(2000)[FLAC|Lossless]<Baroque>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702271.jpg" />
+</div>
+
+
+###  Подробнее
+
+АНТОНИО ВИВАЛЬДИ (1678-1741)
+Концерт для гобоя и струнного оркестра ля минор
+1.	I. Allegro	4:07
+2.	II. Larghetto	4:40(   Читать дальше...   )Жанр: BaroqueПродолжительность: 00:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22831F7DDACCEF675622671004AB3D055321A321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 895311   (700854) от 05.05.2015
+
+David Garrett - Caprice (2014) [FLAC|Lossless]<Classical Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caprice No.24
+02. Ma Dove Sei (ft. Andrea Bocelli)
+03. La Campanella
+04. Io Ti Penso Amore (ft. Nicole Scherzinger)(   Читать дальше...   )Жанр: Classical CrossoverПродолжительность: 01:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A056E496E26077C1F1B7D07995DF4EBFEB0AA5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026927   (700213) от 17.06.2016
 
 Narcis - Narcis (2016) Limited Edition [FLAC|Lossless|tracks + .cue] <Pop, Classical Crossover>
@@ -695,64 +753,6 @@ The New London Chorale - The Young Verdi (1988) [FLAC|Lossless|image + .cue] <С
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55BBD8B78F21A1C75592143588860E104BF26B14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290233   (678161) от 20.03.2019
-
-Staatskapelle Berlin - Brahms: Symphonies (2018) [MP3|320 Kbps] <Classical>
-
->>Классика
->>Оркестровая
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brahms: Symphony No. 1 in C Minor, Op. 68 - 1. Un poco sostenuto - Allegro - Meno allegro
-02. Brahms: Symphony No. 1 in C Minor, Op. 68 - 2. Andante sostenuto
-03. Brahms: Symphony No. 1 in C Minor, Op. 68 - 3. Un poco allegretto e grazioso
-04. Brahms: Symphony No. 1 in C Minor, Op. 68 - 4. Adagio - Piu andante - Allegro non troppo, ma con brio - Piu allegro(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CABCF4D74D968772FC8589165043468488C8149A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029943   (677939) от 28.06.2016
-
-Royal Philharmonic Orchestra - Symphonic Queen: The Greatest Hits (2016) [FLAC|Lossless|WEB-DL|tracks] <Symphonic rock>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Will Rock You (1:56)
-02. I Want It All (4:00)
-03. These Are The Days Of Our Lives (4:03)
-04. Tie Your Mother Down (3:51)(   Читать дальше...   )Жанр: Symphonic rockПродолжительность: 01:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED6E89EE892318AD810B93558DE0490871D96A6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

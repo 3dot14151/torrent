@@ -1,3 +1,58 @@
+###  Публикация: 966104   (221997) от 16.12.2015
+
+Проекты - VideoHive - The Driven Promo [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания превью к вашему фильму.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8113CA8671EC446ADB45FA7E9703E79E03B2CEDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966027   (221987) от 16.12.2015
+
+Проекты - Проект ProShow Producer - Christmas Tablet [PSH]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторский проект от grandpajanek. Очередная новогодняя презентация.
+Презентация очень проста в редактировании, обычная замена файлов. Всё оставлено в авторском исполнении.
+Превью (авторский ролик), и аудиотрек (извлечённый из ролика превью) - в раздаче.Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D786876E34BEBC0ACD8F409C12398DFFB03903F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342667   (221964) от 03.12.2019
 
 Проекты - VideoHive - Mechanical Lens Logo Reveal - 24553768 [AEP]
@@ -627,59 +682,6 @@ Snowball Alpha Pack - летящий снежок в экран монитора
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:492FBB4B270D574BA6C93048E77E12CE6B5966FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084780   (218039) от 19.12.2016
-
-Проекты - VideoHive - Slideshow - 18249043 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Slideshow -  проект для создания слайд-шоу с легким эффектом параллакса.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2070F17A9BECD4BB7BF86940D4CB153C189B241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966673   (217992) от 18.12.2015
-
-Проекты - Pond5 - Natural Opener [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайдшоу на осеннюю тематику.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66716DF1823BC510FBCA87BAD4758A031E4BEEAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

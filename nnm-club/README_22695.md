@@ -1,22 +1,22 @@
-###  Публикация: 395552   (150576) от 17.11.2023
+###  Публикация: 1271155   (151752) от 22.12.2018
 
-Microsoft Flight Simulator 2004: A Century of Flight (2003) [Ru/En] (9.1) Repack R.G. Catalyst
+Проекты - VideoHive - Holiday Opener - 14048968 [AEP]
 
->>Win Старые Игры
->>Simulation (Flight/Space)
+>>Проекты
+>>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151752.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Microsoft Flight Simulator — серия гражданских авиа симуляторов, выпускаемые корпорацией Microsoft. От прочих серий авиа симуляторов MSFS отличается весьма реалистичной физикой полёта, а значит, большой сложностью управления самолётом. Наличие практически всех крупных аэропортов мира с реалистичными данными, реальным ландшафтом, реалистичными погодными условиями, (   Читать дальше...   )Тип издания: RepackРазработчик: ACES StudioЖанр: АвиасимуляторЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+Современный и стильный проект для создания роскошных открыток, вступлений, демонстрации логотипа, различных Новогодних и Рождественских поздравлений и многое другое.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A52ABFD607303E9FAA28ABCD3C0A313F0DE26D0
+magnet:?xt=urn:btih:632838CB0D6B9A712468B9F9BAB0E210FCABC617
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,141 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677453   (150575) от 18.11.2023
+###  Публикация: 968662   (151751) от 25.12.2015
 
-Dyecrest - This Is My World (2005) [APE|Lossless|image + .cue] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fight Fear With Fire
-02. Rush Of Life
-03. Hollow
-04. Man Who Was Me(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8813B10741181A5349272684BE16967AA187CCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677434   (150574) от 18.11.2023
-
-Repossession - Repossession (2015) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cannibalistic (3:23)
-02. Decollate (3:59)
-03. No Eyes, No Tears (3:41)
-04. The Dawn Of Lunacy (4:01)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:30-Ж54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F7D70BCFA61943792A11BC6C81675DA8A00C47A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677451   (150573) от 18.11.2023
-
-Dyecrest - The Way of Pain (2004) [APE|Lossless|image + .cue] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For All The Weak
-02. Into The Void
-03. Made Me Believe
-04. Last Man Standing(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B153CED6256E8ED3D1DDF2B5D6700FB78B4D41D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677636   (150572) от 18.11.2023
-
-Наша банда. Цирковая лихорадка / Our Gang. Circus Fever (1925) WEBRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что может быть обидней для неизбалованных развлечениями детей, чем обязанность идти в школу в то время, когда гастролирующий цирк будет давать одно-единственное представление в их городке. Приходится маленьким шалунам пускать в ход все свои детские хитрости, чтобы любым путём проникнуть туда, где, по их мнению, они могли бы научиться гораздо большему, чем в школе.Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт Ф. МакгоунАктеры: Джо Кобб, Джеки Кондон, Мики Дэниелс, Аллен ’Фарина’ Хоскинс, Юджин М. Джексон, Мэри Корнман, Пегги Эхерн, Айвадэлл Картер, Джонни Даунс, Дэвид ДюранПеревод: немой с интертитрами (nocracker)Субтитры: английские (интертитры), русскиеПродолжительность: 00:28:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84F5B372DACC5B5D6F0D830F614425F87E1FC000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677515   (150571) от 18.11.2023
-
-Horace Silver Quintet - Further Explorations (1958) 2005, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
+The Australian Jazz Quintet - In Free Style (1958) Remaster, 2014, Solid Records[FLAC|tracks+.cue] <Mainstream Jazz, Cool>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151751.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Outlaw [6:10]
-02. Melancholy Mood [6:38]
-03. Pyramid [6:42]
-04. Moon Rays [11:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:40
+01.Swingin' Goatsherd Blues [05:38]
+ 02.Bewitched [05:57]
+ 03.Taking A Chance On Love [04:34]
+ 04.The Way You Look Tonight [04:40](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:42:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8ED5B93ECC42ECAA00E94C798D45C27F58816A8B
+magnet:?xt=urn:btih:1B0969400B2499A7369DC391948B51E8FEAA9955
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,25 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677501   (150570) от 18.11.2023
+###  Публикация: 1347426   (151749) от 23.12.2019
 
-Пятеро на одного (18.11.2023) WEBRip [H.264/720p-LQ]
+А.С. Кутузов | Введение в функциональный анализ (2020) [PDF, DJVU]
 
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>Научная и техническая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151749.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:59
+Учебное пособие предназначено для преподавателей и студентов направления (специальности) «Прикладная математика и информатика». Может быть использовано для проведения практических занятий и организации самостоятельной работы студентов. Текст приводится в авторской редакции.Жанр: МатематикаФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5BE5EEA4232F839EDEF8BDE6DC31C4E93C361754
+magnet:?xt=urn:btih:F959811EF0E1E85F8B46663C55230E02277E7928
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -192,28 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677522   (150569) от 18.11.2023
+###  Публикация: 1518728   (151748) от 22.12.2021
 
-Willis Jackson - Soul Night Live! (1964) 2002, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop>
+VA - Taj Mah Lounge, Ambient Grooves, Vol. 2 (2021) [AAC|~335 Kbps] <Lounge, Chill Out, Ambient, Downtempo>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151748.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Man I Love [5:46]
-02. Perdido [7:58]
-03. Thunderbird [5:18]
-04. Polka Dots and Moonbeams [6:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:11:22
+01. Yantra Mantra - Kusuma (Chandini Mix) (4:46)
+02. Smooth Deluxe, Nizam Kharda - Nabakrishna (2:47)
+03. DJ MNX, Sifat - Om Aa Bi Ya (7:29)
+04. Aquascape - Mechanical, Pt. Two (3:39)(   Читать дальше...   )Жанр: Lounge, Chill Out, Ambient, DowntempoПродолжительность: 02:00:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:154BFA258670BB985B0F3236CC93781776D04564
+magnet:?xt=urn:btih:436B2DCDA23A287632D7782A9C15C885DB4AC376
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -221,113 +108,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677500   (150568) от 18.11.2023
+###  Публикация: 1601116   (151747) от 30.12.2022
 
-Arnvid Meyer - Right Out Of Kansas City (1959 - 1973) 5CD, 2008, Stunt Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Queen Bess [7:10]
-02. I Can't Get Started [5:26]
-03. Mess A Stomp [3:20]
-04. Stompy Jones - Limbo Rock [9:34](   Читать дальше...   )Жанр: Mainstream Jazz, Swing, Big BandПродолжительность: 05:22:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA22902B6937802F3FF63148207A8BD167E0072D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677426   (150566) от 18.11.2023
-
-Destructor - Blood, Bone, And Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood, Bone, and Fire (04:07)
-02. Iron Clad (04:15)
-03. Storm Upon the World (03:43)
-04. Never Surrender (04:36)(   Читать дальше...   )Жанр: Thrash, Heavy, Power MetalПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:664FFC549D4E96E25AE05D4086B741BD1251B055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677570   (150565) от 18.11.2023
-
-Giant Lungs - Giant Lungs (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Stoner Rock, Desert Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150565.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Flying Lures (04:17)
-2. Girls with Fins (06:08)
-3. Aromatico (03:54)
-4. Shallow (05:32)(   Читать дальше...   )Жанр: Stoner Rock, Desert RockПродолжительность: 00:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D083E2BBEBB33D760B9888D4F7D05E60038B75AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677625   (150564) от 18.11.2023
-
-Emurasoft EmEditor Professional 23.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
+WinToHDD 5.9 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151747.jpg" />
 </div>
 
 
 ###  Подробнее
 
-EmEditor Professional - профессиональная версия мощного текстового редактора для программистов, веб-разработчиков и простых пользователей с подсветкой синтаксиса и поддержкой юникода.
-Редактор обладает такими функциями, как поиск и замена в файлах с использованием регулярных выражений, автоопределением кодировок, подсветка ссылок и адресов электронной почты, блочный (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+WinToHDD - программа 3-в-1, которая позволяет выполнить установку, переустановку и клонирование ОС Windows 10/8.1/8/7 без использования CD/DVD дисков или USB-флешек (нужен только ISO образ). С помощью WinToHDD можно установить операционку на любой диск, подключенный к компьютеру (кроме текущего системного).Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8EA32E5E913AD3BD028221CD8D935C78CD87594
+magnet:?xt=urn:btih:4526AB481C7DCF281FD421A2494B9CE621E00530
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -335,291 +134,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677685   (150563) от 18.11.2023
+###  Публикация: 1676600   (151745) от 16.11.2023
 
-Благовест | Канон святому мученику Уару (2013) [PDF, FB2, EPUB, MOBI, TXT]
+Кто такие медиаполицейские и почему они нужны России?
 
->>Разное (категория книг)
->>Религиозная литература
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151745.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Церковь издревле почитает святого мученика Уара. К его предстательству прибегают, испрашивая ходатайства о здравии младенцев и малолетних детей, а также, и особенно, испрашивая облегчения участи душ умерших родственников, не сподобившихся Святого Крещения, и младенцев, умерших во чреве матери или при родах.
-
-Брошюра будет полезна для всех, кто имеет любовь и дерзновение (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A80C26B1AD3DE1BF57684E58FD5BD432EB06417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677649   (150562) от 18.11.2023
-
-Sean Shibe - Profesión (2023) [FLAC 24/192|Lossless|WEB-DL|tracks] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - La catedral: I. Preludio (Saudade) [2:00]
-02 - La catedral: II. Andante religioso [2:03]
-03 - La catedral: III. Allegro solemne [3:20]
-04 - Julia Florida [4:33](   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760A55226E3327F17C12A90ADB016A0E2639B710
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677598   (150561) от 18.11.2023
-
-Игры разумов (2023) WEBRip [H.264/1080p] (выпуск 28)
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интеллектуальный поединок двух известных людей в телешоу «Игры разумов». В гости к знатокам, известным экспертам и интеллектуалам будут приходить звезды, чтобы на равных сразиться в «разумной» битве. В каждой игре будут вопросы, связанные с профессией или увлечением гостя. Именно он выбирает тему, в которой, как ему кажется, он может превзойти таких профессиональных (   Читать дальше...   )Производство: Россия | "2В Медиа"Жанр: Телепередача, интеллектуальное шоуУчастники: Светлана Мастеркова, Анатолий ВассерманСубтитры: РусскиеПродолжительность: 00:30:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31921F7E90B8A19206E171784D42E7EA50B03E25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677593   (150560) от 18.11.2023
-
-Lucas & Steve - Live @ L&S and Friends, Escape, Amsterdam Dance Event (2023-10-21) [MP3|320 Kbps] <Mainstage>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Galantis & Lucas & Steve ft. ILIRA - Alien (Intro Edit) w/Yeah Yeah Yeahs - Heads Will Roll (DiscoTech Remix) w/Jack Ü ft. Bunji Garlin & MX Prime - Jungle Bae (Acappella) w/Julian Cross - Antidote w/Lucas & Steve - LFG w/David Guetta ft. Bebe Rexha - I'm Good (Blue)(Acappella)
-02. Steve Angello - Knas (Lucas & Steve Bootleg) w/Hardwell (   Читать дальше...   )Жанр: MainstageПродолжительность: 01:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97E585A78DF1DD635184E6FA94A55EA6E924C8D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677626   (150559) от 18.11.2023
-
-Своя игра (18.11.2023) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:888839AE3F419747F1D1F51343D44A15D25A5991
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677630   (150558) от 18.11.2023
-
-MotoGP. Этап 19. Гран-при Катара. Квалификация (18.11.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150558.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 ноября 2023, суббота. 15:40 МСК. Этап 20, Доха. Гран-при Катара. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36BE14D78BD205BBCA758D402F1D19B565CC9264
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677574   (150557) от 18.11.2023
-
-Живая еда с Сергеем Малозёмовым (18.11.2023) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Закулисье ресторанного бизнеса: как устроены кухни ресторанов? Насколько сложна работа повара и официанта, правда ли нам подают просроченное, а вредным гостям еще и плюют в еду? Как кафе заставляют платить больше, а также самые удивительные ресторанные концепции.
-  Можно ли натереть хрен без слез и как с этим справляются на крупных производствах, понравятся ли покупные (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AAC481C202F20796601EB5340C206907E6EAFD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677563   (150556) от 18.11.2023
-
-Этот парень Дик Миллер / That Guy Dick Miller (2014) WEB-DL [H.264/1080p] [DVO]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о ветеране-актере Дике Миллере, чья карьера в Голливуде и за его пределами насчитывает почти 200 фильмов на протяжении шести десятилетий, содержит разнообразные интервью с режиссерами, звездами и современниками.Производство: США, Plausible FilmsЖанр: документальный, история, биография, кинематографРежиссер: Элайджа ДреннерУчастники: Дик Миллер, Лэйни Миллер, Гилберт АдлерПеревод: двуголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: русские (forced+full, Pazl Voice), английскиеПродолжительность: 01:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C5599B8201194EE990D20CBB07EF5631A09FED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677632   (150555) от 18.11.2023
-
-Бернард Шоу | Деревенское сватовство (Радиоспектакль) (2018) [MP3, Валентин Гафт, Елена Королёва]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Из архива «Гостелерадиофонда».
-Радиоспектакль по одноимённой пьесе Джордж Бернард Шоу (1856–1950).
-Общение, начавшееся на отдыхе – лёгкий флирт и болтовня, не исключающая игру ума, перерастает в нечто большее, даже если Он – «литератор и джентльмен», а Она – «скромная сельская девушка, впрочем оказавшаяся не такой уж простушкой...
-Отточенное действие, великолепные (   Читать дальше...   )Жанр: Зарубежная литература, классика, пьеса, комедияИздательство: ГостелерадиофондПродолжительность: 00:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5664C5E14E4E9F7690C41695A93F2BA26355E2DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677683   (150554) от 18.11.2023
-
-Благовест | Освящение дома (2014) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150554.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной работе рассказывается о православной традиции освящения жилища, рассматриваются вопросы о том, зачем необходимо освящать свой дом, в чем смысл этого обряда. Для наглядности в издании приведено последование освящения жилища, которое использует Православная Церковь в своей практике. В заключении освящаются некоторые практические моменты, связанные с христианским (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEAF238069BBFF013BFDE349E262C5DC0ACAAF9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677619   (150553) от 18.11.2023
-
-Длинная тень / The Long Shadow (2023) WEB-DLRip (сезон 1, серии 1-7 из 7) ViruseProject [AD]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_150553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал повествует о самых масштабных розыскных мероприятиях за всю историю уголовного делопроизводства Британии, проходивших с октября 1975 по январь 1981, когда полиция искала Питера Сатклиффа, прозванного Йоркширским потрошителем, за убийство тринадцати женщин. К данным поискам было привлечено более тысячи констеблей, и это дело сильно изменило методы работы полиции (   Читать дальше...   )Производство: Великобритания / All3Media International, New PicturesЖанр: драма, криминал, историяРежиссер: Льюис АрнольдАктеры: Джек Дим, Крис Хитченс, Ли Инглби, Майкл МакЭлхаттон, Хлоя Харрис, Дэвид Моррисси, Стивен Уоддингтон, Лиам Гэрриган, Кристофер Хатрэлл, Джон Хеншоу и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют видео вставки рекламы
+Уникальную программу бакалавриата запустил РАНХиГС при поддержке НАК.В России появилась новая профессия — медиаполицейский. Это специалист по работе с пользовательским контентом, который сможет выявлять и блокировать в соцсетях материалы, содержащие экстремизм, пропаганду терроризма, кибербуллинг, пиратство и другие правонарушения. Такую программу бакалавриата запустил (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -631,28 +160,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677667   (150552) от 18.11.2023
+###  Публикация: 1086056   (151744) от 24.12.2016
 
-VA - Hit News Vol. 9 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+Проекты - VideoHive - Memories Slideshow - 16178397 [AEP]
 
->>Pop
->>Зарубежная поп-музыка
+>>Проекты
+>>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151744.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  2 Brothers On The 4th Floor feat. Des'Ray And D-Rock - Come Take My Hand
-02.  Rytmica - Up To The Sky
-03.  Interface - There Are No More Limits
-04.  Erica C. - Voice Of Fortune(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:14:21
+Memories Slideshow - проект для создания памятного слайд-шоу.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DEAC45CE0F5EAD772903489F1800015934F8C53F
+magnet:?xt=urn:btih:21FE2AF237AD8EF7FB95B4A68B6034B07CAE98A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -660,28 +186,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677579   (150551) от 18.11.2023
+###  Публикация: 1194455   (151743) от 27.12.2017
 
-VA - Hit News Vol. 7 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+VA - Workout Body Fitness 2018 (2018) [MP3|320 Kbps] <Dance>
 
 >>Pop
->>Зарубежная поп-музыка
+>>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151743.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Bass Bumpers - Keep On Pushing
-02.  Uc Colours feat. Cool Reg - U Got The Rhythm
-03.  Holetzky - Lato
-04.  Plaza - Wild Is The Night(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:15:35
+01 Turbotronic – Shake It Shake It (Radio Edit)
+02 Geo Da Silva, Sean Norvis, DJ Combo & Kizami – Summertime (Balkan Brothers Remix Edit)
+03 Teknova – On The Move 2K18 (Melbourne Bounce Edit)
+04 Daniel Rosty – Time 2 Bounce (Original Mix)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:46:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1496DE8F155ABFC8F147C92926EB4F67014D5934
+magnet:?xt=urn:btih:7DD20328D84C6416767195EC6C049F27D92C6690
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -689,28 +215,482 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677687   (150550) от 18.11.2023
+###  Публикация: 968793   (151741) от 25.12.2015
 
-Bryan Ferry - Mamouna (1994) Deluxe, 2023, BMG Rights Management (UK) Limited [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sophisti-pop, Soft Rock>
+Phil Woods Septet - Pairing Off (1956) Remaster, 2013, Universal[FLAC|tracks+.cue] <Bop, Mainstream Jazz>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151741.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Don't Want to Know (1999 Remaster) (4:07)
-02. N.Y.C. (1999 Remaster) (4:09)
-03. Your Painted Smile (1999 Remaster) (3:14)
-04. Mamouna (1999 Remaster) (5:11)(   Читать дальше...   )Жанр: Sophisti-pop, Soft RockПродолжительность: 02:06:46
+01.The Stanley Stomper [14:22]
+ 02.Cool Aid [09:49]
+ 03.Pairing Off [12:16]
+ 04.Suddenly It's Spring [08:25]Жанр: Bop, Mainstream JazzПродолжительность: 00:44:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DD0AE25CB545A12A906B7CB80EF8CD08F976DE6
+magnet:?xt=urn:btih:06D4F69A0A4D27831B35B97DD49702B93DD43A3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434381   (151740) от 24.12.2020
+
+Растровый клипарт - Orchids and spa stones stock photo [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Орхидеи и спа, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 6000x6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D88B1169C1095C3C20AADAC4DF7D3251E2659FB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270940   (151739) от 22.12.2018
+
+Иван Трещев | Программирование для мобильных платформ. IOS (2018) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга обобщает опыт работы лаборатории мобильных приложений на базе ФГБОУ ВО КнАГУ, где автор был ее руководителем. Приложения, разработанные в книге, были успешно выложены в магазин приложений. В книге вы найдете описание основных моментов для разработки приложений.Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:364ED7AE36AFAE52717D9134FB50C987006D4700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601299   (151738) от 30.12.2022
+
+SMath Studio Desktop 1.0.8348 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151738.jpg" />
+</div>
+
+
+###  Подробнее
+
+SMath Studio — абсолютно бесплатная программа для математиков, обладающая невероятным количеством возможностей. Приложение имеет простой пользовательский интерфейс с огромным количеством функций. Также данное средство имеет встроенный редактор графики с замечательной поддержкой единиц измерения. Несмотря на свой сравнительно маленький размер, программа удивляет своей (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FE8628EF54DA0D397C226D737C6D7905287B1BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677080   (151737) от 16.11.2023
+
+American Arcadia (2023) [Ru/Multi] (1.0) Scene Rune
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151737.jpg" />
+</div>
+
+
+###  Подробнее
+
+American Arcadia - увлекательная кинематографическая головоломка, в которой органично сочетаются элементы 2,5D-платформера и геймплея от первого лица, погружающая игроков в захватывающее повествование о побеге из опасной ситуации. В центре сюжета - Тревор, ничем не примечательный человек, оказавшийся в центре событий самого известного в мире реалити-шоу. Действие (   Читать дальше...   )Тип издания: SceneРазработчик: Out of the Blue GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:481BAD31B1CE1E541544CADE36E76E5BFBEE1A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 738472   (151736) от 25.12.2013
+
+Шерлок / Sherlock (2013) WEB-DLRip (3 сезон, Приквел)  [EN / RU Sub]
+
+>>Зарубежные сериалы
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семиминутный фильм, рассказывающий, что происходило с главными героями после событий второго сезона. Премьера первой серии третьего сезона под названием "The Empty Hearse" на канале ВВС Оne начнется 01.00 по московскому времени в ночь с 1 на 2 января, на пять минут позже ее начнет транслировать Первый канал.Производство: Великобритания, Hartswood Films, BBC Wales, Masterpiece TheatreЖанр: Драма, ДетективРежиссер: Пол МакГиганАктеры: Бенедикт Камбербэтч, Мартин Фриман, Уна Стаббс, Лу Брили, Руперт Грейвз, Марк Гатисс, Зои Телфорд, Винетт Робинсон, Таня Муди, Джонатан АрисПеревод: ОтсутствуетСубтитры: Русские, Отдельным файломПродолжительность: 00:07:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C6A756CB6E893AAF74E892BE5EC0AD34F1D603
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086314   (151735) от 24.12.2016
+
+John Travolta & Olivia Newton-John - This Christmas (2012) [FLAC|Lossless|WEB-DL|tracks] <Pop, Christmas>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby It's Cold Outside (3:19)
+02. Rockin' Around The Christmas Tree (feat. Kenny G) (2:13)
+03. I'll Be Home For Christmas (feat. Barbra Streisand) (3:32)
+04. This Christmas (feat. Chick Corea) (4:25)(   Читать дальше...   )Жанр: Pop, Holiday, Christmas, Adult Contemporary, Country Pop, VocalПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D553908AEAE99758DF3DB94741DE084DECD3EA38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 854260   (151734) от 28.12.2014
+
+В изгнании / Outcast (2014) HDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет фильма разворачивается в Китае, в Средние века. Наследник императорского престола становится целью убийства у своего презираемого старшего брата и вынужден бежать. Единственное, что остается молодому принцу, – это защита его сестры при помощи воина-крестоносца (Хейден Кристенсен), которому, в свою очередь, придется смириться с собственными демонами и, сплотившись с некогда легендарным воином, ныне ставшим бандитом (Николас Кейдж), вернуть принца на его законное место на троне...Жанр: БоевикРежиссер: Ник ПауэллПродюсер: Джереми Болт, Тоув Кристенсен, Леонард ГловинскиАктеры: Николас Кейдж, Хейден Кристенсен, Лю Ифэй, Рон Смуренбург, Энди Он, Джавед Эль Берни, Фернандо Чиен, Престон Бэйкер, Байрон Лосон, Томер ОзПеревод: Любительский (двухголосый закадровый) (Пиратская студия)Язык субтитров: АнглийскийПродолжительность: 01:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D8DA2DC729C391FA29E64F38CBFE5B529D3F1E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518732   (151733) от 22.12.2021
+
+VA - Taj Mah Lounge, Ambient Grooves, Vol. 4 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Ambient, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bahramji, Mashti - Awareness (7:31)
+02. Smooth Deluxe, Nizam Kharda - Shahmukhi (3:49)
+03. Yantra Mantra - Kabhi Kann, Kabhi Naa (4:23)
+04. Ensemble Ethnique - Aruna Chala (3:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, Ambient, DowntempoПродолжительность: 01:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EADE86037529DF270DEACA00B416671F5888FA0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194461   (151731) от 27.12.2017
+
+VA - The Workout Mix 2018, 2CD (2017) [MP3|320 Kbps] <Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liam Payne – Strip That Down (Nevada Remix)
+02. Jonas Blue ft William Singe – Mama (Syn Cole Remix)
+03. Justin Beiber & Bloodpop – Friends
+04. Avicii Ft. Rita Ora – Lonely Together(   Читать дальше...   )Жанр: DanceПродолжительность: 02:22:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE20EB3FDE3236E8298E9FBAB6132F7FC9C76FF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347585   (151730) от 23.12.2019
+
+Тор Хэнсон | Триумф семян: Как семена покорили растительный мир и повлияли на человеческую цивилизацию (2018) [FB2, EPUB, MOBI]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга учёного-биолога, известного популяризатора науки Тора Хэнсона «Триумф семян» рассказывает об эволюции семенных и споровых растений и их роли в развитии человеческих цивилизаций. Автор описывает, как учёные исследуют в угольных шахтах палеонтологическую летопись растительного мира, приводит разнообразные исторические факты использования семян людьми. Большой (   Читать дальше...   )Жанр: БиологияФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1DD1CAA138D18B6F783AAF6CC4D36A4C2CCE6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677104   (151729) от 16.11.2023
+
+Его единственный сын / His Only Son (2023) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вера Авраама подвергается испытанию во время трехдневного пути к месту, где он должен принести в жертву своего сына.Производство: США / Commissioned Pictures, RockBridge ProductionsЖанр: драма, историяРежиссер: Дэвид ХеллингАктеры: Сара Сейед, Николас Муавад, Скот Купер, Луис Фернандес-Хиль, Даниэль да Сильва, Edaan Moskowitz, Стив Джадкинс, Оттавио Таддей, Арианна Уайт, Eta PicoПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: Русский, АнглийскийСубтитры: английские (full, SDH)Продолжительность: 01:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D2F98060C4FC0515A3FD3B23DEA47F2A797AA1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271161   (151728) от 22.12.2018
+
+Экшены - GraphicRiver - Fur Generator - 17711137 [ABR, ASL, ATN, GRD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fur Generator - это Фотошоп экшен, вы можете превратить текст и фигуры в мех.Формат: ABR, ASL, ATN, GRD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1522A4067C91564F3D4A9FBA116238098CC603E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601239   (151727) от 30.12.2022
+
+Череп и кости / Crossbones (2014) BDRemux [H.264/1080p] (сезон 1, серии 1-9 из 9) Рен-ТВ, LostFilm, AlexFilm
+
+>>Зарубежные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал о приключениях пиратов XVIII века снят по мотивам книги Колина Вударда «Республика пиратов». События разворачиваются на одном из багамских островов, Нью-Провиденсе в 1715 году, где вовсю процветает пиратство. На острове обитают злодеи-моряки, преступники и воры, а заправляет всем народом пират Эдвард Тич, которому дали прозвище Черная Борода. Но появившаяся (   Читать дальше...   )Производство: США / Mr. Cross, P + M Image Nation, Universal TVЖанр: Боевик, драма, приключенияРежиссер: Дэниэл Эттиэс, Киаран Доннелли, Деран СарафянАктеры: Джон Малкович, Ричард Койл, Клэр Фой, Ясмин Эл Массри, Дэвид Хофлин, Крис Перфетти, Трэйси Айфичор, Питер Стеббингс, Омар Крус Сото, Ali Akbar SepahiПеревод: Дублированный (Рен-ТВ), Профессиональный многоголосый (LostFilm, AlexFilm)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: ~00:42:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C969030677A875DED42B060F96DDEA301259A53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968801   (151725) от 25.12.2015
+
+VA - Recoverworld Radio 004 (Mixed by Rich Smith) (2015) [MP3|320 кб/с] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary Maguire - It's Complicated (Original Mix) (7:45)
+02. Pablo Anon - Andromeda (Original Mix) (6:44)
+03. Billy Rutts - You're the Cause (Original Mix) (7:24)
+04. Ian Buff - Whatever Whenever (Original Mix) (6:37)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1DF0CBEFD15BA6B7DC4B45524B108D59574AF09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434487   (151724) от 24.12.2020
+
+Росс Уэлфорд | Тысячелетний мальчик (2020) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альфи Монк помнит последнее вторжение викингов в Англию: ему 1000 лет, и, в отличие от других детей, он совсем не взрослеет. Альфи и его мать постоянно переезжают с места на место, оберегая свою тайну, и у Альфи нет настоящих друзей, ведь все его сверстники быстро вырастают. Однажды случается пожар, и Альфи теряет всё, что любил. Теперь ему придётся найти своё место (   Читать дальше...   )Жанр: Детская литература/ФантастикаПеревод: Ольга МакароваФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38B089BC25B1C8BAE515511E974B5227A838CDBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271159   (151722) от 22.12.2018
+
+Проекты - VideoHive - Christmas Stomp - 23027449 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создайте с помощью этого проекта стильное и динамичное праздничное слайд шоу. Шаблон так же хорошо подойдет для другой тематики, например мода, история путешествия и многое другое.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE404CA0E16205F1D51B048C68208F0E975ECB14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677069   (151721) от 16.11.2023
+
+VideoHive - Magic Button - 2D FX animation toolkit [After Effects + Pre-rendered clips] - 42981314 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это мощный набор инструментов от разработчиков RTFX Generator, который позволяет  легко добавлять профессиональные нарисованные от руки FX-анимации в свои собственные проекты. Важной особенностью этого продукта является наличие элементов: Органика, Комикс, Снег и Лед, помимо обычных наборов: Огонь, Дым, Взрыв, Жидкость и Энергия. Благодаря возможностям инструмента (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D22D69BDA0DC7672FCF2F0116C233AD4D0B9701
 ```
 
 https://mybot314.ru/tekegram_catalog/

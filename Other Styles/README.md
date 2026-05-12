@@ -1,4 +1,120 @@
 https://t.me/izofen
+###  Публикация: 27937   (1068580) от 
+
+Немецкое танго 1930-1940 гг.
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turnier Tango (R. Gaden Und. Orc.)
+02. Tango Bolero (B. Ette Und Orc.)
+03. Blauer Himmel (Tangoorc. B. Von Geczy)
+04. Man Kann Beim Tango Sich So Schone Dinge Sagen (Tangoorc. W. Schmidt-boelcke, Voc. H. Sohnker)(   Читать дальше...   )Жанр: Taнцевальное тангоПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C39B8239C4D23CF9AE011617567FEE90D9AA605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869754   (1068509) от 
+
+VA - The Orient Collective: Between Dust & Clouds (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Pura Luhur (4:38)
+02. Kaisser Bouzriba - Dreamers (6:31)
+03. D.J. Thor - Rinascita (5:00)
+04. LØDZIKØVSKY - Spiritual Tabla (5:09)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99A607D8FE724D739FC17DF713F7C48EEDB87D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869712   (1068449) от 
+
+Capcom Sound Team - PRAGMATA Original Soundtrack (2026) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068449.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 北川保昌 - Thoughts 3:09
+2. 北川保昌 - To The Moon 4:09
+3. 北川保昌 - A Little Girl 0:56
+4. 北川保昌 - The Beginning 2:48(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1363D8437AB1988D4FA3D83FB43096B1E92F20B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868855   (1067681) от 02.05.2026
+
+VA - The Orient Collective: Ash & Amber (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Lockwood - Morning Clouds (5:38)
+02. Kaisser Bouzriba - Hayeti (5:08)
+03. Marga Sol - Memoria (4:45)
+04. Johny Luv - Palinka (7:32)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B1721ADD32322ACF1848319010E1E2332797574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867499   (1066971) от 25.04.2026
 
 VA - The Orient Collective: Path of the Drum (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -630,122 +746,6 @@ Paul Mauriat - Les grandes musiques de films (1973) [FLAC 24/192|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD9985C7BCE75B9445AFC12074E2329578479C45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856699   (1058998) от 01.03.2026
-
-Paul Mauriat - Plays The Beatles (1972) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Penny Lane
-02. Ticket To Ride
-03. Let It Be
-04. Michelle(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F895C14798358732DEBF21522F8FD14394780212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856526   (1058980) от 01.03.2026
-
-Phil Vassar - Shaken Not Stirred (2004) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Ole Days    [0:03:04.37]
-02. In a Real Love    [0:03:34.28]
-03. What Happens in Vegas    [0:03:41.15]
-04. I'll Take That as a Yes (The Hot Tub Song)    [0:03:29.10](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B45A551ACBE1BB9E1A62669D0FEBDFF156745C98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855357   (1058063) от 23.02.2026
-
-Mumford & Sons - Prizefighter (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Folk Rock, Indie Folk>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here (3:11)
-02. Rubber Band Man (3:38)
-03. The Banjo Song (3:50)
-04. Run Together (3:39)(   Читать дальше...   )Жанр: Folk Rock, Indie FolkПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E8039C4A2E6F2F900F5513927FED0ABFC9A851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855318   (1057915) от 22.02.2026
-
-Apparat (Sascha Ring) - 4 Soundtracks (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Experimental, IDM, OST>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Capri-Revolution
-Damonen
-Equals Sessions(   Читать дальше...   )Жанр: Ambient, Experimental, IDM, OSTПродолжительность: 4 CD, 02:27:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C1A7402CEE9BD8DA022F7E0FE1830E47EB820A
 ```
 
 https://mybot314.ru/tekegram_catalog/

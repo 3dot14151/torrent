@@ -1,3 +1,32 @@
+###  Публикация: 1005332   (832845) от 09.04.2016
+
+VA - Miami Beach Weapons (2016) [MP3|320 кб/с] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Boogeyman - Be Free 09:44
+02. Eugenio Fico, Vito Guerra - Balearic 05:12
+03. Sebbers - What the Funk (Nick Hook & Martin Sharp Remix) 06:31
+04. B.Vivant - It's the Sax House Thing (Nev Scott Remix) 07:00(   Читать дальше...   )Жанр: HouseПродолжительность: 01:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EB73D5245A0A98196402B12A4104E8283BAEC51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005395   (832829) от 09.04.2016
 
 VA - Lounge Music for Your Senses (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -716,35 +745,6 @@ VA - Promo Only Mainstream Club November (2021) [MP3|320 Kbps] <Electronic, Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0090F87864A7A7BFF6C988BA4D780ACD286149B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115195   (828258) от 17.03.2017
-
-VA - Beatport Trance Pack (17.03.) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  James Dymond & Chris Schweizer - Spectrum (Extended Mix)  7:34
-02.  Kayan Code - Arena (Original Mix)  6:30
-03.  Rene Ablaze & UDM - Lost In Trance (Extended Mix)  6:37
-04.  First Sight - Courage (Extended Mix)  6:28(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Energy, ProgressiveПродолжительность: 02:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D76FB558B019A69277F590CC24457C97EEDFDC99
 ```
 
 https://mybot314.ru/tekegram_catalog/

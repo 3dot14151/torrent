@@ -1,3 +1,114 @@
+###  Публикация: 1375554   (863763) от 15.04.2020
+
+Concepts - Worry About Me (Ellie Goulding & blackbear Cover) (2020) WEBRip [H.264/1080p-LQ] <Post-Hardcore, Metalcore>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863763.jpg" />
+</div>
+
+
+###  Подробнее
+
+CDA: Concepts (2020) Worry About Me (Ellie Goulding & blackbear Cover) (Single)
+Music Video: Ellie Goulding & blackbear - Worry About Me (2020)Жанр: Post-Hardcore, MetalcoreСубтитры: ENПродолжительность: 00:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B64D932DE5F7AA107F3228C912F8AFA9958307BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375301   (863761) от 15.04.2020
+
+Kill the Kong - 7 Music Videos (2015-2020) WEBRip [H.264/2160p/1080p-LQ] <Sweden Metalcore, Groove Metal >
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863761.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2015 Kill The Kong - Caged (2160)
+002 2016 Kill The Kong - Bring the Heat (1080)
+003 2017 Kill the Kong - Ashes In the Wind (1080)
+004 2017 Kill The Kong - Juggernaut (Wolfpack) (1080)(   Читать дальше...   )Жанр: Metalcore, Groove MetalПродолжительность: 00:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6415CC82F6FA5E48B89C86BA0DD006F55A0FD3FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375328   (863609) от 15.04.2020
+
+Bongtower - 5 Music Videos (2019) WEBRip [H.264/1080p-LQ] <Stoner, Doom Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863609.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2019 Bongtower - Altered States (1080)
+002 2019 Bongtower - Bong Rider (1080)
+003 2019 Bongtower - Defender of Humanity  (1080)
+004 2019 Bongtower - What's Wrong With You (1080)(   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:867505AB59C1D7A933E468830917ABBE550DE704
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 645366   (863578) от 19.04.2013
+
+Mike Oldfield - Tubular Bells II and III Live (1999) 2*DVD-5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майкл Гордон Олдфилд (Michael Gordon Oldfield; 15 мая 1953, Рединг, Беркшир) — британский мультиинструменталист и композитор, работающий в самых разнообразных жанрах: прогрессив и арт-рок, электронная музыка, фолк, кельтская музыка. Дебютный концептуальный альбом Майкла Олдфилда «Tubular Bells», главная тема из которого была использована в мистической драме 1973 года «Изгоняющий дьявола» и получила Grammy за лучшую инструментовку; в 2002 году был включен в рейтинг The 25 Most Influential Ambient Albums Of All Time (25 главных альбомов всех времён в стиле эмбиент). Новаторское использование модифицированных католических трубчатых колоколов и уникальное звучание его немного перегруженных гитар наряду с огромным количеством монтажных склеек и наложений при записи сделало стиль Олдфилда узнаваемым и стало основой его музыкального пути. Tubular Bells была первой пластинкой, выпущенной на новосозданном лейбле Virgin Records. В 2003 году она была заново перезаписана и издана в несравненно лучшем качестве. На последних (   Читать дальше...   )Жанр: Progressive Rock, New Age, Pop/Rock, Electronic, Progressive Pop, Folk Pop, PopПеревод: ОтсутствуетПродолжительность: 02:01:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375595   (863534) от 15.04.2020
 
 Юлия Чичерина - Дискотека (2020) WEBRip [H.264/720p-LQ] <Альтернативный Рок>
@@ -604,117 +715,6 @@ Chase The Ace - California (2013) WEBRip [H.264/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52DC9964B8D39EBD8E693EF410B8163DC451961B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 769067   (854167) от 23.03.2014
-
-Сборник клипов - VA - Various Music part. 51 (2014) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854167.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alex Ferrari - Guere Guere 1080p (2:59)
-2. Andrew Rayel - Power Of Elements (Trancefusion 2014 Anthem) 720p (3:26)
-3. ARASH feat Helena - ONE DAY 1080p (3:46)
-4. Armin van Buuren feat. Lauren Evans - Alone 1080p (4:06)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFA58A86487825C9C91585F212F43E74989BADA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 648346   (852590) от 25.04.2013
-
-Zucchero - Zu & Co - Live at Royal Albert Hall (2004) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличный концерт в Лондоне 2004 г. Специальные гости: Brian May, Miles Davis, Mousse T, Tina Arena, John Lee Hooker, Paul Young, Ronan Keating, Cheb Mami, Eric Clapton, Luciano Pavarotti.01. Dune mosse (feat. Miles Davis)
-02. Dindondio
-03. Rossa mela della sera
-04. Il grande baboomba (feat. Mousse T.)(   Читать дальше...   )Жанр: КонцертПродолжительность: 02:09:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0A4D03349FFA04BCEC48D691B079827338F1E33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 876343   (852405) от 09.03.2015
-
-Легенды Ретро FM. 10 лет (2015) HDTVRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852405.jpg" />
-</div>
-
-
-###  Подробнее
-
-На Первом канале долгожданная премьера — десятый, юбилейный фестиваль "Легенды Ретро FM", который недавно состоялся в Москве в СК "Олимпийский". "Легенды Ретро FM" год за годом ставят рекорды: культовые артисты трех десятилетий, переполненные стадионы в обеих столицах, возвращение на сцену знаменитых имен и телеаудитория, которая исчисляется (   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:172FE44FEBC7F1784576C7C10D5EA709AECC1C02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 867945   (852255) от 09.03.2015
-
-The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014) BDRip [H.264/720p] [hand made colored]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852255.jpg" />
-</div>
-
-
-###  Подробнее
-
-1964 год. Начало Битломании. "БИТЛЗ" дебютируют на американской сцене в шоу Эда Салливана. Режиссер Ричард Лестер делает первый фильм о группе, сняв его в жанре музыкальной комедии. "Вечер трудного дня" рассказывает фэнам группы об одном дне в жизни ВЕЛИКОЙ ЧЕТВЕРКИ...
-A Hard Day's Night - первый битловский фильм, снятый Ричардом Лестером, появился (   Читать дальше...   )Производство: ВеликобританияЖанр: Мьюзикл, Комедия, МузыкальныйРежиссер: Ричард Лестер / Richard LesterАктеры: Ринго Старр /Ringo Starr, Пол Маккартни /Paul McCartney, Джон Леннон /John Lennon, Джордж Хэррисон /George Harrison, Уилфред Брэмбелл /Wilfrid Brambell, Виктор Спинетти /Victor Spinetti, Анна Куэйл /Anna Quayle, Норман Россингтон /Norman Rossington, Джон Джанкин /John Junkin, Дерик Гайлер /Deryck GuylerПеревод: Одноголосый закадровый (Максим Жолобов)Продолжительность: 01:27:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9258433DAAE3D6FAAB8A9CC28F3DE2E33E589E20
 ```
 
 https://mybot314.ru/tekegram_catalog/

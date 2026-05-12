@@ -1,187 +1,25 @@
-###  Публикация: 1389288   (784415) от 10.06.2020
+###  Публикация: 1277757   (785026) от 21.01.2019
 
-Последние дни американской преступности / The Last Days of American Crime (2020) WEBRip [MVO]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недалёкое будущее. Правительство США объявляет о скором внедрении системы контроля разума, способной подавлять криминальные импульсы, следовательно, преступность исчезнет. Страна готовится к новому порядку и погрязает в хаосе, а Грэм Брик решает пойти на последнее дело с непроверенной командой, чтобы успеть провернуть ограбление до рокового дедлайна.Производство: США / Mandalay Pictures, Radical Pictures, Radical StudiosЖанр: Боевик, криминал, фантастикаРежиссер: Оливье МегатонАктеры: Нильс Класен, Эдгар Рамирес, Тони Капрари, Кейт Норнингтон, Iain Bruce, Норман Энсти, Брэндон Оре, Дэниэл Фокс, Шон Майкл, Нэйтан ЛиннПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: Русские (Full), английские (SDH)Продолжительность: 02:29:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389182   (784414) от 10.06.2020
-
-WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2020.06.09 [En]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388805   (784413) от 10.06.2020
-
-S.T.A.L.K.E.R. Shadow of Chernobyl / S.T.A.L.K.E.R. Тень Чернобыля (2020) [Ru] (2.1.6.3) Repack/Mod [Народная Солянка 2016 OGSR]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарный мод на «Тень Чернобыля», который допиливался и дорабатывался народными умельцами, начиная с 2010 года. Много воды утекло с тех пор, многие игровые концепции и фишки геймплея были пересмотрены, добавлены новые и выкинуты старые. Всё идёт в угоду игровой сталкерской общественности. «Народная солянка 2016» является вершиной долгих поисков и мытарств игроделов (   Читать дальше...   )Тип издания: Repack/ModРазработчик: GSC Game WorldЖанр: Action (Shooter), Adventure, 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:907BE3560FDD14614488300DB9F0894017FB3D5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204732   (784412) от 07.02.2018
-
-VA - Futuresque - The Future House Collection Vol.7 (2018) [MP3|320 Kbps] <House, Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bobby Rock  -  Move On (Radio Edit)  3:28
-02.  Lunde Bros  -  Boomba (Radio Edit)  2:59
-03.  Richard Grey feat. Katty Q & Bodhi Jones  -  My Love (Future House Remix)  4:29
-04.  Joachim Garraud & Ridwello  -  Come On Let's Go (feat. Charlie Sputnik) (DBN Radio Edit)  2:19(   Читать дальше...   )Жанр: House, Future HouseПродолжительность: 00:58:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19884D5492D396325D4A7E184D2D682B429A50B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204858   (784411) от 07.02.2018
-
-VA - Empire Records - Electro Chill 3 (2018) [MP3|320 Kbps] <Chillhouse, Chillelectro, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sunyata Project  -  Lay Your Hands On Me  4:42
-02.  Cass Ferre  -  Unification  3:39
-03.  Living Room  -  Don't Stop Me  5:06
-04.  Vanilla Signal  -  Proverbial Beast (Original Mix)  3:58(   Читать дальше...   )Жанр: Chillhouse, Chillelectro, DowntempoПродолжительность: 01:56:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B28747396C47C5C8414985354B16D99E391FA06A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204826   (784410) от 07.02.2018
-
-Tidy Up 5.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tidy Up - приложение предназначено для поиска дубликатов файлов и папок на любых дисках, в том числе внешних и сетевых. Простой и понятный интерфейс, поиск по огромному количеству параметров - более 90 предопределенных запросов, мастер поисковых запросов, который поможет вам оптимизировать ваш поиск, модуль системы безопасности, который гарантирует вам, что хоть (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.02.2018Разработчик: Hiperbonic SoftwareПоддерживаемая ОС: macOS 10.12 or laterЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31F2E4BBE8D61DB6E0E3DC4FCFA23D5844949CB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204803   (784409) от 07.02.2018
-
-VA - Neural Attacks Vol.1 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+VA - Nothing But... The Future Of Trance Vol.11 (2019) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785026.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Luca Antolini & Eddy Rave - Your Soul (Intrance Wom Cut)
-02. Anton Greco - Around The Angels (Wom Cut)
-03. Mazza - In The Sky (Wom Cut)
-04. Rohma - Survive (Wom Cut)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:23:22
+01. Vince Blakk & Angel II Demon - Cohiba (Extended Mix)
+02. Jan Miller - Signs (Original Mix)
+03. Cyril Ryaz - Aurore (Original Mix)
+04. Keurich - Magic Touch (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81FFC1BB9EDB4950E6222DBCF4533363D6A60C62
+magnet:?xt=urn:btih:01BB8552C5F4E79130DDD14992A972FC8849C029
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -189,28 +27,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204787   (784408) от 07.02.2018
+###  Публикация: 1277747   (785025) от 21.01.2019
 
-Evertale - The Great Brotherwar (2017) [FLAC|Lossless|image + .cue] <Power Metal>
+М. М. Розенталь | Диалектика ленинского исследования империализма и революции (1976) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785025.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге раскрывается богатое диалектическое содержание работ В. И. Ленина, посвященных исследованию природы империалистической стадии капитализма, а также закономерностей революции и революционного процесса, стратегии и тактики борьбы за революционное преобразование общества.
+
+В книге выделены те стороны и аспекты ленинской диалектики, рассматриваемой в широком плане (   Читать дальше...   )Жанр: История, политология, философия, логикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:738D5A237CF18F7B9E1A96E4E47704909FC14843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277524   (785024) от 21.01.2019
+
+The Shockwave! - Contact From Space (2014) [MP3|320 Kbps] <Rock, Surf>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785024.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Battle for Mankind (1:26)
- 02. Empire Rising (5:43)
- 03. The Swarm (6:14)
- 04. The Joining (0:43)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:58:14
+01. Golden Gambler (3:24)
+02. Gasping Runner (3:30)
+03. Contact! (2:33)
+04. After Stormy Weather (4:33)(   Читать дальше...   )Жанр: Rock, SurfПродолжительность: 00:43:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:374611C63815DB16C2D0A997E204DDDD2046DC0E
+magnet:?xt=urn:btih:D746D43C484EF1CC023FDB67C178154102528187
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -218,57 +84,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204724   (784407) от 07.02.2018
+###  Публикация: 1277625   (785023) от 21.01.2019
 
-VA - Bass House Nation Vol.14 (2018) [MP3|320 Kbps] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ibiza House Crew  -  Who Knows (Dimitri Vegas & Like Mike Remix)  5:38
-02.  Spencer & Hill  -  Cool (Afrojack Remix)  6:23
-03.  Electro Xtreme  -  One Touch Away (Dallask Radio Edit)  3:12
-04.  Spencer & Hill  -  Less Go! (Porter Robinson Remix)  7:04(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:27:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9718C6E00368F03D2B51878E0883C3D7C4E1FF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204866   (784406) от 07.02.2018
-
-VA - Empire Records - House Swinging 2 (2018) [MP3|320 Kbps] <House>
+VA - German Top 100 Single Charts 28.01.2019 [MP3|320 Kbps] <Pop>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785023.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Swingrowers  -  Butterfly (Phibes Remix)  3:56
-02.  Jaques Le Noir  -  Boy (Push My Botton) (Radio Edit)  3:16
-03.  Faul & Wad Ad vs. Pnau  -  Changes (Radio Mix)  3:21
-04.  Freddy Verano feat. Natalia Doco  -  Comets (HUGEL Remix)  4:27(   Читать дальше...   )Жанр: HouseПродолжительность: 01:40:07
+001. Shindy - DODI
+002. Ava Max - Sweet but Psycho
+003. Capital Bra - Benzema
+004. Farid Bang - #niemalsantäuschen(   Читать дальше...   )Жанр: PopПродолжительность: 05:38:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C27CC1F782AB53F0AE04EE2D6BC073B5FCFE1C6D
+magnet:?xt=urn:btih:E7D83DB0F79E914A87B5F5311BBD0818CB9B0F23
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -276,28 +113,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204728   (784405) от 07.02.2018
+###  Публикация: 1277605   (785022) от 21.01.2019
 
-Gene Krupa And His Orchestra - 1939 - 1940 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+Notability 2.9.3 [Multi/Ru]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785022.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. My Old Kentucky Home [02:41]
-02. Take Your Love [02:43]
-03. I Like To Recognize The Tune [02:57]
-04. All Dressed Up (Spic And Spanish) [02:28](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:55
+Популярнейшее приложение для создания заметок на iPhone и iPad теперь на Mac!
+
+Notability – мощное средство для ведение заметок, комментированию документов, созданию набросков, записи лекций и много другого. Вы можете делать записи от руки, набирать на клавиатуре, делать аудиозаписи и фотографии. Благодаря iCloud ваши заметки всегда доступны на iPhone, iPad и Mac. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: ноябрь 2018Разработчик: Ginger Labs, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FEB1D8EA63F590C3D008F701CA8BDEB7223CDA54
+magnet:?xt=urn:btih:59032F7679452DD4386B587291E653052CD41089
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -305,28 +141,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204685   (784404) от 07.02.2018
+###  Публикация: 1277750   (785021) от 21.01.2019
 
-VA - Rooftop Beats, Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
+Л. А. Леонтьев | Ленинская теория империализма (1960) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы Ленина об империализме явились прямым продолжением работ Маркса, посвященных научному исследованию капитализма вообще. Ленин построил свое исследование империализма на гранитном фундаменте того анализа основ капитализма, который был дан Марксом в «Капитале». Тщательное изучение и глубокий анализ громадного исторического материала привели Ленина к выводу, что (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EE728C2152588AA42B0FFAE3F816636757134B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277695   (785020) от 21.01.2019
+
+Acronym & Kali Malone - The Torrid Eye (2019) Stilla Ton [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental, Ambient>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785020.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Matt Fax - Close 2 U (feat Mike Schmid - Original mix)
-02. Tritonal - Getaway (feat Angel Taylor - Jengi Beats remix)
-03. LEVV - Collateral Damage (Matt Fax remix)
-04. Universal Solution - In Your System (Hexlogic remix)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:24:08
+01. Call From The Tower (03:21)
+ 02. A Sunspot (05:52)
+ 03. Tempest Of Joy (05:21)
+ 04. Legs Of The Fly (06:18)(   Читать дальше...   )Жанр: Techno, Experimental, AmbientПродолжительность: 00:28:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2FA4B8D08E893E84B4EC105709E2F1A4B43FBF4
+magnet:?xt=urn:btih:86C25C062B3276E9505F2D4647E062A65D5B86F7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -334,28 +196,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204798   (784403) от 07.02.2018
+###  Публикация: 1276697   (785019) от 21.01.2019
 
-Der Luchs - Wonderful (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+Рей Бредбери | Детская площадка (2019) [MP3]
 
->>Архив торрентов
->>Архив Музыки
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785019.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Beloved (04:50)
-2. Courtney Jines (04:30)
-3. How Long (05:05)
-4. In My Dream (05:28)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:34:01
+Любой любящий отец пойдет на все, чтобы уберечь сына от детской жестокости, особенно за стальной решеткой детской площадки...Жанр: ФантастикаПродолжительность: 00:43:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4E964BD858C05DEE2D1BBA27550D4FC99FC259F
+magnet:?xt=urn:btih:BB3D9579B4940E68BF9CA99BB17F247ECA4FE2B7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,28 +222,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204872   (784402) от 07.02.2018
+###  Публикация: 1277467   (785018) от 21.01.2019
 
-VA - Empire Records - Chill Boys (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Mother Mother - Dance And Cry (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785018.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Jamie Lancaster  -  Get Here  2:35
-02.  John Dahlback  -  Walking With Shadows (Acoustic Version)  2:42
-03.  Discey  -  Stance (Radio Edit)  3:33
-04.  Ralf Velasquez  -  You Site  3:38(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:19:44
+01. I Must Cry Out Loud (04:41)
+02. Dance And Cry (03:17)
+03. Get Up (03:24)
+04. So Down (03:01)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:40:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F509943CE603C6A5BB4023846A3A91C487150D4E
+magnet:?xt=urn:btih:D7E935794B64E6F8CE9C5822B804EB64F9B99359
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -392,25 +251,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204589   (784401) от 07.02.2018
+###  Публикация: 1277660   (785017) от 21.01.2019
 
-Light Image Resizer 5.1.2.0 RePack by вовава [Ru/En]
+ClassicWeather Premium 4.0.1 [Multi/Ru]
 
->>Архив торрентов
->>Архив Программ
+>>Программы для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785017.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Light Image Resizer - программа для изменения размеров цифровых картинок и изображений в различных графических форматах (на данный момент поддерживается работа с файлами JPEG, GIF, BMP, TIFF, CR2, NEF и т.д.). Также в утилите имеются возможности для компрессии файлов, конвертирования из одного формата в другой, экспорта, наложения и управления картинками. Light Image (   Читать дальше...   )Язык интерфейса: Русский, Английский
+ClassicWeather предлагает прозрачные виджеты погоды в 3 разных размерах и цветах. Он также предоставляет прогноз погоды в меню док-станции и панели меню.Тип издания: macOS SoftwareРелиз состоялся: 21.01.2019Разработчик: Demodit GmbHПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C56DBD849F951DCF1163B1CA03046E5901496F1
+magnet:?xt=urn:btih:8156683C101E1371172CE42FCEE2AC2EFA2CE28A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -418,83 +277,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204697   (784400) от 07.02.2018
+###  Публикация: 1277748   (785016) от 21.01.2019
 
-Журнал | House Beautiful [UK] №2 (февраль 2018) [PDF] [En]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "House Beautiful" - одно из ведущих изданий по интерьеру в США. В журнале публикуются лучшие идеи декорирования жилых помещений и кухонь, а также полезные советы по установке бытовой техники. Это должно вдохновить читателей журнала не бояться пробовать что-то новое, принимать смелые решения с цветом и стилями собственных интерьеров.Жанр: Дизайн, архитектура, интерьерФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8B5E3394FB38E9E598044C5C49B217DE756A9F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204559   (784399) от 07.02.2018
-
-The Modern Jazz Quartet - Concert In Japan, Vol.2 (1966) 2014, Warner [FLAC|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ralph's New Blues [06:48]
-02. I Love You Porgy [04:56]
-03. Pyramid [07:20]
-04. Home [04:21](   Читать дальше...   )Жанр: CoolПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C645435FEFEA316E8F4D93F99B14176F6D791D11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204725   (784398) от 07.02.2018
-
-VA - Eleven (2018) [MP3|320 Kbps] <Trance,Psytrance,Progressive House>
+VA - Abora Recordings Best Of 2018 (Mixed By Ori Uplift) (2019) [MP3|320 Kbps] <Trance,Uplifting Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785016.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Perfect Stranger - Manifestation (Shanti V Deedrah Remix)
-02. Perfect Stranger & Sphera - Done That (Merkaba Remix)
-03. Perfect Stranger - Six Feet Under (Captain Hook Remix)
-04. Perfect Stranger - Easy (Sphera Remix)(   Читать дальше...   )Жанр: Trance,Psytrance,Progressive HouseПродолжительность: 04:26:01
+01.Syntouch & Spins - Desolation (Intro Mix)
+02.Playme - The Great Bay (Original Mix)
+03.Akku - Megumi (Emotional Mix)
+04.Sandro Mireno - It's Your Day (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:45:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08B398A7731E92050E55E5B873927948474DABBC
+magnet:?xt=urn:btih:DDFB289F1FA726D80A11A179FE7372D21F4C4C89
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -502,28 +306,82 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204744   (784397) от 07.02.2018
+###  Публикация: 1277410   (785015) от 21.01.2019
 
-BlueHarvest 7.0.2 [Multi/Ru]
+Helix - Rock It Science (2016) Compilation [FLAC|Lossless|image + .cue] <Hard Rock>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785015.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BlueHarvest - автоматически удаляем скрытый мусор
-BlueHarvest -  утилита, помогающая автоматизировать в фоновом режиме, процесс удаления ненужных файлов и папок, которых не так уж и много, но Mac OS X создаёт их с завидной регулярностью, как на внутренних дисках, так и на сетевых и подключаемых флешках и дисках.
+[04:23] 01 - Billy Oxygen
+[05:40] 02 - You're A Woman Now
+[02:59] 03 - Heavy Metal Love
+[02:51] 04 - Rock You(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD2839343B70D1D9E56E36FD9654A730638E52E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277539   (785014) от 21.01.2019
+
+Журнал | Домашние заготовки. Спецвыпуск №11 (ноябрь 2018) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "Домашние заготовки" от авторов "Кулинария. Коллекция" - лучшие рецепты к вашему столу! Сборник вкусных, традиционных или оригинальных рецептов для каждодневного меню или праздничного стола. А также полезные материалы и советы, тонкости и хитрости кулинарного мастерства.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3395A41ECD1C2FD4209B80884977A0FD6BD12395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277423   (785013) от 21.01.2019
+
+Вэдей Ратнер | Музыка призраков (2018) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бежав из Камбоджи в безопасную Америку, Тира впервые возвращается на родину. Ей нужно встретиться с таинственным незнакомцем по прозвищу Старый Музыкант, который послал ей письмо, где обещал рассказать правду об отце Тиры. О нем и его загадочном исчезновении 25 лет назад.
 
-Данная программа будет полезна для тех, кто любит включенную (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2018Разработчик: Ross TullochПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий и др.
+Тира приедет и искать разгадки, и открыть сосуды своей памяти. В Камбодже до сих пор не могут (   Читать дальше...   )Жанр: Современная зарубежная литератураПеревод: Ольга МышаковаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7B3D89754958699212EA3178AAE534890D285B6
+magnet:?xt=urn:btih:4CFB18F356145195B0D204B65F2023CB0C955C57
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -531,28 +389,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204759   (784396) от 07.02.2018
+###  Публикация: 1277736   (785012) от 21.01.2019
 
-ARGUS - Field of Dreams (2018) [MP3|320 Kbps] <Balearic, Downtempo, Ambien>
+Журнал | Историк №11 (47) (ноябрь 2018) [PDF]
 
->>Electronic
->>Easy listening
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785012.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Long Gone (08:11)
-02. Ascent & Argus - Glaciers of Oblivion (08:36)
-03. Followed by Light (08:32)
-04. Wind Song (07:55)(   Читать дальше...   )Жанр: Balearic, Downtempo, AmbienПродолжительность: 01:14:37
+«Историк» – это журнал о России, о ее актуальном прошлом, о людях, делавших и делающих нашу историю. Наш журнал – это серьезное чтение для думающих людей. Для тех, кто испытывает потребность в консервативном знании о прошлом и настоящем. Для тех, кто не согласен с попытками интерпретировать историю нашей Родины лишь как цепь реализованных негативных альтернатив. (   Читать дальше...   )Жанр: Отечественная историяФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92DCA40C3A3036F61E1F56DBA83FF806CCE9130F
+magnet:?xt=urn:btih:7960EB9D2236AC352A554E8117A33563D264A605
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -560,28 +415,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204651   (784395) от 07.02.2018
+###  Публикация: 1277735   (785011) от 21.01.2019
 
-Big Boy Bloater & The Limits - Big Boy Bloater And The Limits (2011) Azan Records [MP3|320 Kbps] <Rock&Roll, Blues Rock>
+Журнал | Историк №10 (46) (октябрь 2018) [PDF]
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785011.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Big Boy Bloater британский блюзовый гитарист, певц, автор песен и радиоведущий. Сам музыкант говорит, что его музыка наиболее близка к паб-року 70х. Screamin’ Jay Hawkins и Элвис Костелло, The Ventures и Блонди - таков набор любимых артистов этого музыканта. Его колоритная большая фигура, экспрессивные выступления, полные энергии, привлекли зрителей на многих европейских (   Читать дальше...   )01. Ugly Way Of Thinking 3:08
-02. I Heard Those Voices Again 3:11
-03. Fumble Fisted Fool 3:19
-04. Sweet & Brown 2:34(   Читать дальше...   )Жанр: Rock&Roll, Blues RockПродолжительность: 00:31:49
+«Историк» – это журнал о России, о ее актуальном прошлом, о людях, делавших и делающих нашу историю. Наш журнал – это серьезное чтение для думающих людей. Для тех, кто испытывает потребность в консервативном знании о прошлом и настоящем. Для тех, кто не согласен с попытками интерпретировать историю нашей Родины лишь как цепь реализованных негативных альтернатив. (   Читать дальше...   )Жанр: Отечественная историяФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A54F926C4E7BDE0CBA90B1A4049D0675B5067F5
+magnet:?xt=urn:btih:8CE438AF7BDFE5C19392DD550DD2B07178AED7AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -589,25 +441,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204698   (784394) от 07.02.2018
+###  Публикация: 1277738   (785010) от 21.01.2019
 
-Журнал | House Beautiful [UK] №3 (март 2018) [PDF] [En]
+Журнал | Историк №12 (48) (декабрь 2018) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785010.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Историк» – это журнал о России, о ее актуальном прошлом, о людях, делавших и делающих нашу историю. Наш журнал – это серьезное чтение для думающих людей. Для тех, кто испытывает потребность в консервативном знании о прошлом и настоящем. Для тех, кто не согласен с попытками интерпретировать историю нашей Родины лишь как цепь реализованных негативных альтернатив. (   Читать дальше...   )Жанр: Отечественная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:123F88B826B72CE08B565DF85D3307BA2C31561C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277677   (785009) от 21.01.2019
+
+Журнал | AD / Architectural Digest [France] №1-2 (январь-февраль 2019) [PDF] [Fr]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785009.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал "House Beautiful" - одно из ведущих изданий по интерьеру в США. В журнале публикуются лучшие идеи декорирования жилых помещений и кухонь, а также полезные советы по установке бытовой техники. Это должно вдохновить читателей журнала не бояться пробовать что-то новое, принимать смелые решения с цветом и стилями собственных интерьеров.Жанр: Дизайн, архитектура, интерьерФормат: PDF
+Ведущий международный журнал об архитектуре и дизайне. Издается в Америке с начала 20-х годов. За долгие годы завоевал репутацию законодателя интерьерной моды, сформировал вкусы нескольких поколений, источник вдохновения в искусстве создания идеального жизненного пространства.Жанр: Дизайн, архитектураФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A0295B897A6B8DFBA4D64FF7C90EB37E0BD03AD
+magnet:?xt=urn:btih:AE4945D0F9F8DFE89574770DD55AB079306B9E2B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -615,28 +493,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204658   (784393) от 07.02.2018
+###  Публикация: 1277537   (785008) от 21.01.2019
 
-Big Boy Bloater - Loopy (2014) Azan Records [MP3|320 Kbps] <Rock&Roll, Blues Rock>
+Журнал | Автомир [Россия] №4 (январь 2019) [PDF]
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785008.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Big Boy Bloater британский блюзовый гитарист, певц, автор песен и радиоведущий. Сам музыкант говорит, что его музыка наиболее близка к паб-року 70х. Screamin’ Jay Hawkins и Элвис Костелло, The Ventures и Блонди - таков набор любимых артистов этого музыканта. Его колоритная большая фигура, экспрессивные выступления, полные энергии, привлекли зрителей на многих европейских (   Читать дальше...   )01. Bear Cat 4:12
-02. Every Path Has Its Puddle 3:08
-03. Pall Bearer's Song 2:58
-04. Bring Her Back To Me 2:47(   Читать дальше...   )Жанр: Rock&Roll, Blues RockПродолжительность: 00:34:48
+«Автомир» — еженедельный журнал, полностью посвященный автомобилям. Основные темы издания: автоновости, тестдрайвы, концепт-кары, российские и международные выставки и автогонки, московские автосалоны и дилеры, советы экспертов по автоправу и многое другое.
+Проект ставит перед собой цель донести до читателя максимум полезной информации об автомобилях и обо всем, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7EC0A4B5693E93F6578CB879BDA44BCE8BF920DF
+magnet:?xt=urn:btih:5AE0848142F54C66F50AC3A9DF060CBE97DC08F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -644,28 +520,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204459   (784392) от 07.02.2018
+###  Публикация: 1277718   (785007) от 21.01.2019
 
-Peter Karp & Mick Taylor - The Arson's Match (2015) KarpFoley, Live in NYC [MP3|320 Kbps] <Blues Rock>
+Чеви Стивенс | Никогда тебя не отпущу (2017) [FB2]
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785007.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Петр Карп - автор песен, певец, гитарист и клавишник, выступал на местной музыкальной сцене в Нью - Йорке. В его жанре смешиваются арт, блюз, рок, панк стили. Карп отошел от выступлений, и в течение десятилетия путешествовал и обзавелся семьей. Он учился в университете и киношколе, открыл свою собственную производственную компанию в Манхэттене, прежде чем вернулся (   Читать дальше...   )01. The Arson's Match (Live) 5:21
-02. Gee Chee Gee Chee Wawa (Live) 6:13
-03. Y'all Be Lookin' (Live) 4:43
-04. The Turning Point (Live) 5:58(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:29
+Одиннадцать лет назад Линдси с маленькой дочерью сбежала от своего мужа, тирана и ревнивца. Ей казалось, что она отпустила все свои страхи, начав новую жизнь. Но Линдси чувствует, что за ней следят. Кто-то все ближе и ближе подбирается к ней, угрожает ее бойфренду, запугивает. А после проникает в дом… И самое страшное: дочь Софи оказывается в опасности. Линдси догадывается, (   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD2BF84C93531CEDF3F8A4A1B2D95A99536F07B0
+magnet:?xt=urn:btih:9ED18BD46A7B548918AFAF3D705BA6935A138C02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -673,27 +546,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204912   (784391) от 07.02.2018
+###  Публикация: 1276709   (785006) от 21.01.2019
 
-Н.Е. Чаплина (сост.) | Воспитание души. Календарь для православных родителей на 2018 год (2017) [PDF, DJVU]
+Ольга Романовская | Моя большая космическая авантюра (2019) [MP3]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785006.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Календарь «Воспитание души» адресован православным родителям, бабушкам и дедушкам, которые хотят воспитать своего ребёнка в благочестии, чистоте.
-
-И не в меньшей степени он будет полезен духовным родителям (крёстным), которые становятся восприемниками чада при Крещении, и также участвуют в воспитании ребёнка, чтобы он вырос верующим православным христианином. Надеемся, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+Казалось, их пути никогда не пересекутся. Что может быть общего у юной наследницы межгалактической корпорации Лейлы Масинес и победоносного адмирала Звездного флота Вадима Копылова?
+Только вот однажды в жизни каждого из них все пошло не так. Сумеет ли не попасть к работорговцам сбежавшая в поисках мечты Лейла? Останется ли жив обвиненный в измене адмирал? А если (   Читать дальше...   )Жанр: Космическая фантастикаПродолжительность: 12:53:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:390DCB98B2C04CDFE07D28C6052D589107D0F6FA
+magnet:?xt=urn:btih:A16424BF2E6167DFD70947E54858EE4F48842D96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -701,28 +573,136 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204888   (784390) от 07.02.2018
+###  Публикация: 1276741   (785005) от 21.01.2019
 
-VA - Empire Records - Bossanova 2 (2018) [MP3|320 Kbps] <Downtempo, Bossanova, Lounge>
+Тесс Герритсен | Надежда умирает последней (2018) [MP3]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785005.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Rainer Schnelle  -  Beyond The Blue (Underscore Version)  2:16
-02.  Surfer  -  South Beach  5:06
-03.  Alyssa ZezZA  -  Purple Rain  3:47
-04.  Classical Jazz Guitar Club  -  Delightful Evening  3:06(   Читать дальше...   )Жанр: Downtempo, Bossanova, LoungeПродолжительность: 02:15:45
+Билл Мэйтленд по прозвищу Дикарь Билл, отважный человек и первоклассный летчик, летал в самое пекло и возвращался как ни в чем не бывало. Но однажды его самолет разбился в джунглях Вьетнама. Дикарь Билл пропал без вести. Спустя двадцать лет его дочь, Вилли Мэйтленд, отправилась на поиски отца. Военные чины, уверенные в том, что Мэйтленд погиб, не смогли убедить ее (   Читать дальше...   )Жанр: ТриллерПродолжительность: 09:52:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BAEC1D3F415AF2928D1D46757DD1494EDF9FCD93
+magnet:?xt=urn:btih:3614F5F448F88D8775F851FB58458BCF6A4E1D07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277561   (785004) от 21.01.2019
+
+BestReminder v2019.01.18.11 Final [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ну кто из нас не забывал поздравить близких друзей, родственников, сотрудников, знакомых с каким нибудь событием или знаменательной датой!
+Может это день рождения, или юбилей, а может крестины, или может годовщина свадьбы?
+А когда же поздравить? Когда покупать подарки? Какого же числа праздник?
+Эта версия программы - ни что иное, как новый свет от предыдущей Birthday. (   Читать дальше...   )Разработчик: Похилько Д.Ю. aka KilyaЯзык интерфейса: Русский, английский, украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47FEA2E1D77ACBC5AAB90C8DAAA884BAC6BF3E38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277456   (785003) от 21.01.2019
+
+R.E.O. Speedwagon - The Early Years 1971-1977 (2018) 8 CD Box Set [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785003.jpg" />
+</div>
+
+
+###  Подробнее
+
+REO Speedwagon — американская рок-группа, сформированная в 1967 году Нилом Даути и Аланом Грацером. Название группы происходит от одноимённого лёгкого грузовика, выпускавшегося в первой половине 20 века компанией REO Рэнса Э. Олдза. Наиболее успешным альбомом в творчестве коллектива считается Hi Infidelity. Кроме того, такие песни как: «Back on the Road Again», «Time (   Читать дальше...   )Список альбомов:
+1971 | R.E.O. Speedwagon
+1972 | R.E.O. T.W.O.
+1973 | Ridin' The Storm Out(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Blues Rock |Продолжительность: 05:52:49 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F10810BCEEC8A64F79B960920769B66BA190F81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277720   (785002) от 21.01.2019
+
+DiskDigger 1.20.9.2707 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785002.jpg" />
+</div>
+
+
+###  Подробнее
+
+DiskDigger - маленькая утилита, с которой можно восстановить случайно удаленные фотографии, видео, музыку, документы и другие файлы с любого носителя. Программа может сканировать даже поврежденные или неудачно отформатированные диски, а также пригодится для восстановления файлов и папок, поврежденных в результате вирусной атаки. Может работать со всеми типами внешних (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BAE22C4AF4E952572EF14CA21469D6877418B14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276855   (785001) от 21.01.2019
+
+Александр Дюма | Великие люди в домашних халатах. Бонапарт (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наполеон Бонапарт — первый император Франции, гениальный полководец и легендарный государственный деятель.
+Рассвет карьеры Бонапарта наступает в двадцать четыре года, когда он становится бригадным генералом. Следующие годы — годы восхождения новой военной и политической звезды. Триумфальные победы его армии меняют карту Европы, одна за другой страны склоняют головы (   Читать дальше...   )Жанр: Историческая литератураПродолжительность: 07:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07486C3FDA676A1C575DC058E64A7656A2B73E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

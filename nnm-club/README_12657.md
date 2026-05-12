@@ -1,54 +1,25 @@
-###  Публикация: 1048013   (548430) от 31.08.2016
+###  Публикация: 1047190   (550360) от 29.08.2016
 
-VA - Beyond The Love Downspace (2016) [MP3|320 Kbps] <Electronica, Chill House, Trip Hop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Southern Groove - You Took My Love 06:11
-02. Scerbas - Lamberet 07:23
-03. Sascha Braemer - Touchdown 05:40
-04. Sergey Silvertone & Magic Surfer - On This World (Audio Luxury Remix) 07:36(   Читать дальше...   )Жанр: Electronica, Chill House, Trip HopПродолжительность: 02:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33026ED5631D7351C8FA4F64CE48665CCA803740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047789   (548429) от 31.08.2016
-
-VA - Naked Chilling Vol.1 (Pure Summer Chillout Tracks) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+VA - Play Emotions Vol.3 Lounge and Chill Sweet Moments (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550360.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. David Garcia - Tu Me Sientas Bien (Florito Remix) (05:01)
-02. Euphonic Traveller - Crescent Bay (09:18)
-03. Florzinho - Higher Being (27:27)
-04. Kloter - Sunday In Geneva (06:16)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:44:56
+01. Frank Strangio - Weather Watch (Underscore) (01:04)
+02. St Project - Open Wings (04:01)
+03. Giacomo Bondi - Across My Mind (05:55)
+04. Nemax - Saudade do Brazil (01:59)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:18:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9972EFDEC12C946F72C6FC477C2F022B8295970B
+magnet:?xt=urn:btih:D41AC9D2F9341E5BC6AA79AD811110D17C5D1AF4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047784   (548428) от 31.08.2016
+###  Публикация: 1047204   (550359) от 29.08.2016
 
-VA - Ibiza by Night Lounge Playlist (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+VA - Ferry Corsten presents Corsten's Countdown  August (2016) [MP3|320 Kbps] <Trance>
 
->>Electronic
->>Easy listening
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550359.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kaxamalka - Connection Angles (Original Mix) (5:49)
-02. Chillelektro - Berlengas (Original Mix) (6:57)
-03. Baghira - A Light From Within (Original Mix) (6:05)
-04. Cesar Martinez Ensemble - Dont Stop Believing (Original Mix) (6:05)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:02:04
+01 Arty & Andrew Bayer - Follow The Light (06:46)
+02 Pierre Pienaar - Novus Vitae (Original Mix) (06:29)
+03 Rex Mundi - Skybe (Original Mix) (06:30)
+04 Sied Van Riel & Mike Sanders - Geyser (Original (07:58)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:03:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:069AD6039BB42B3CA914E890D7A7CCAD204C6A67
+magnet:?xt=urn:btih:A7DA6FBA3E7596A84B415CF23F237D03D087EA17
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,25 +56,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047984   (548427) от 31.08.2016
+###  Публикация: 1046678   (550358) от 29.08.2016
 
-Доверяй, но проверяй.  Как выбрать готовые завтраки (31.08.2016) SATRip
+С. Б. Ингулов | Политбеседы (1937) [PDF]
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550358.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Могут ли мюсли стать полноценной заменой традиционного завтрака, расскажут в программе "Доверяй, но проверяй"Телекомпания: Москва ДовериеЖанр: ТелепередачаПродолжительность: 00:26:01
+Коммунистические партии должны добиваться установления широчайшего единого фронта при помощи совместных действий рабочих организаций различных направлений для борьбы против войны, для защиты жизненных интересов трудящихся масс. Необходимо вовлечь в эту борьбу все организации, ставящие себе целью борьбу за мир.
+
+Коммунистические партии должны бороться против подготовки (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A93544AB54FB22029699D192C3DDFF4845F8C16
+magnet:?xt=urn:btih:9A9D6DE85244CB3606E9A650980FADBB9E85A1BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,25 +84,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047983   (548426) от 31.08.2016
+###  Публикация: 1047346   (550357) от 29.08.2016
 
-Время покажет (31.08.2016) SATRip
+Nadiamori - Nadiamori Electro Jazz (2005) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Lounge, Electro Swing>
 
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550357.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Закон — один для всех? В студии программы «Время покажет» обсуждают резонансное дело о гонках на Gelandewagen и говорят о социальном неравенстве, которое разделило общество на богатых и бедных. Громкие аварии с участием супердорогих автомобилей все чаще мелькают в прессе, вызывая негодование общества. Эксперты программы пытаются понять, что нужно сделать, чтобы все (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:33:00
+01. Nadiamori (04:30)
+02. Drum'n Blues (04:50)
+03. Money Back Guarant... (05:26)
+04. Free In Love (04:58)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, Electro SwingПродолжительность: 00:40:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DFB19CB0DCAA1294089E1B3AB80A786880340657
+magnet:?xt=urn:btih:A4A8C059F13CFCD4A66527C3ED7EEAEEEB49F8A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,110 +113,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047737   (548425) от 31.08.2016
+###  Публикация: 1047192   (550356) от 29.08.2016
 
-VA - Thats Ibiza 2016 (50 Gorgeous House Music Summer Tunes) (2016) [MP3|320 Kbps] <House, Club House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lex Luca - Hoop 06:28
-02. Wisqo - Mirrors 06:16
-03. Tom Appl - Badibidab 06:31
-04. Rick Marshall - In The Club 06:50(   Читать дальше...   )Жанр: House, Club House, Deep HouseПродолжительность: 04:54:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:582B3B3E66AF65A2CBE640C05297BDA8B6394E6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047999   (548424) от 31.08.2016
-
-Пищевая революция. Рис (28.08.2016) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рис – кристально чистый, практически прозрачный. Неужели в нем может быть что-то вредное? Ученые разных стран находят в рисе ртуть и ядовитый мышьяк. А предприимчивые китайцы научились делать его из пластика. Подробности в программе "Пищевая революция".Телекомпания: Москва 24Жанр: ТелепередачаПродолжительность: 00:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F79BF58C170E81DE6E51BE58AD7449E5F99FE4D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047845   (548423) от 31.08.2016
-
-VA - Closing Parties (2016) [MP3|320 Kbps] <Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Casta - Venomous
-02. David Cheeky - Consequences
-03. Stereometric - Abgemacht
-04. Jordi Svit - Big Daddy(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3829D0CC5371E570C46FE44DF75012A8F55B4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046499   (548422) от 31.08.2016
-
-Футбол. Лига Чемпионов 2016-2017. Жеребьёвка Группового этапа (25.08.2016) HDTVRip [H.264/1080p-LQ]
+Летний биатлон. Чемпионат мира 2016. Отепя (Эстония). Женщины. Спринт 7,5 км (27.08.2016) WEB-DL [H.264/576p-LQ]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550356.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жеребьёвка группового этапа Лиги чемпионов УЕФА состоялась 25 августа 2016 г. в зале Grimaldi Forum в Монако.
-В первую корзину попали действующий победитель турнира («Реал») и чемпионы семи ассоциаций с наивысшим рейтингом по итогам сезона-2014/15 (когда была принята схема отбора в ЛЧ-2016/17). Распределение по трём другим корзинам, как обычно, происходит согласно (   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортПродолжительность: 01:12:36
+27 августа 2016, суббота. 14:00 МСК
+Чемпионат мира по летнему биатлону 2016. Отепя (Эстония)
+Женщины. Спринт 7,5 кмТелекомпания: Матч! Наш спортЖанр: СпортЯзык озвучки: Русский (Руслан Гатауллин)Продолжительность: 00:57:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C07FC5CC05C568036FC5C9E4D12A3C1F645DA9C0
+magnet:?xt=urn:btih:B239AFB50208ABF9A5659418A46F2CC86A445B41
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -248,25 +141,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047975   (548421) от 31.08.2016
+###  Публикация: 1046873   (550355) от 29.08.2016
 
-Право голоса. "В окружении врагов?" (31.08.2016) SATRip
+Jim Suhler and Monkey Beat - Radio Mojo (1993) [APE|Lossless|image + .cue] <Blues Rock>
 
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550355.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. Здесь (   Читать дальше...   )В этом выпуске: Социологи Левада-центра изучили отношение россиян к США, ЕС и Украине. За последние 2 года россияне стали лучше относиться к США. Доля позитивно настроенных к американцам респондентов возросла до 25%. Главными качествами украинцев респонденты назвали "лицемерие и хитрость", а у американцев выделили "рациональность и навязывание своих обычаев". (   Читать дальше...   )Телекомпания: ТВ-ЦентрЖанр: Ток-шоу, дискуссия, политикаПродолжительность: 01:18:00
+01. Where Were You When the Lights Went Outї  02:50
+02. Doncha Hang Around My Door  04:30
+03. Radio Mojo  03:31
+04. Devil's Hand  03:40(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F69AD8EFA075626818BA2C2E74EBD37A4F5BC1B7
+magnet:?xt=urn:btih:30D59506DDF3F3745F2AFEEC43B3DF1B1863C237
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -274,28 +170,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047849   (548420) от 31.08.2016
+###  Публикация: 1309528   (550354) от 20.06.2019
 
-VA - Options Remake 150 Tracks (AUGUST) (2016) [MP3|320 Kbps] <House, Tech, Progressive>
+VA - Easy Guitar (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jason Castro - Learning To Fly (Acoustic Version) 4:35
+02. Alanis Morissette - Hand In My Pocket (Acoustic Version) 4:31
+03. Stone Sour - Wicked Game (Live Acoustic) 4:27
+04. Tyler Hilton - Missing You (Acoustic Version) 3:20(   Читать дальше...   )Жанр: Pop, AcousticПродолжительность: 01:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB705E66E42831CF6E31444C8E2D37C881E972DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309588   (550353) от 20.06.2019
+
+VA - Night Dreams (2019) [MP3|320 Kbps] <House>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550353.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Roberto Palmero  -  Seruman (Original Mix)  6:39
-002. Serial Thrilla  -  Fresh To Def (Original Mix)  5:46
-003. Rick Marshall  -  Clare (Original Mix)  7:02
-004. Lucky Charmes  -  Bobotie (Extended Mix)  4:52(   Читать дальше...   )Жанр: House, Tech, Progressive, Club, DanceПродолжительность: 15:49:30
+001. Bross (Ro) - I Hear The Drums
+002. Aava - Makes Me Cry
+003. Enduro Disco - Would Change All
+004. Djcybertsai - Expansive (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 12:59:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2C1D37114A258780EC4C5FAE7567BD899E8A7C2
+magnet:?xt=urn:btih:069FE67839BF16FAD1BA8230ABA68C79A19A0AD2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -303,28 +228,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047903   (548419) от 31.08.2016
+###  Публикация: 1309578   (550352) от 20.06.2019
 
-Spillo 1.8.6 [Multi]
+Векторный клипарт - Vector Sport Collection #39 [AI]
 
->>Программы для macOS
->>Офис, Интернет для macOS
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550352.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Spillo  - контроль над вашим закладкам на Pinboard
-Spillo - это мощный, красивый и удивительно быстрый Pinboard клиент. Spillo позволяет просматривать и упорядочивать закладки в потрясающем современным интерфейсом. Spillo также делает создание закладки из любого места на вашем Mac, максимально удобным.
-
-Spillo имеет красивый современный интерфейс, который чувствует (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 августа 2016Разработчик: Damien DeVilleПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Французский, Немецкий и др
+Векторный клипарт для дизайна.
+Спорт
+50 AI + PreviewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F1EB6A74B528DD68AD8A3E3F0221AFAD974447A
+magnet:?xt=urn:btih:0E0E918431B3F3F3F57AE851C1F387BAE1179629
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -332,25 +256,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047760   (548418) от 31.08.2016
+###  Публикация: 1309576   (550351) от 20.06.2019
 
-В теме. Хвост виляет собакой (30.08.2016) SATRip
+Векторный клипарт - Vector Professions #25 [AI]
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550351.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«В теме» - информационно-аналитическая программа. Известные политологи - о самых актуальных событиях и тенденциях в мире.Телекомпания: Москва 24Жанр: ДокументальныйПродолжительность: 00:26:00
+Векторный клипарт для дизайна.
+Профессии
+50 AI + PreviewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71B35F26A7B63D5CB67306FBCD2977F645D1DC52
+magnet:?xt=urn:btih:F0CE9E1AB378CA493FB9650AA49AE4AE71C86342
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -358,109 +284,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048057   (548417) от 31.08.2016
+###  Публикация: 1309639   (550350) от 20.06.2019
 
-Яков Тайц | Неугасимый свет (1971) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548417.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу вошли сборники рассказов для детей: «Неугасимый свет», «Ландрин», «Золотой Грошик», «Про Ефима Зака».Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A27C55A348115D9C7E3D6D8DEAF8995E60DB133B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047746   (548416) от 31.08.2016
-
-VA - Hit Drive EDM: European Version (2016) [MP3|320 Kbps] <Progressive, Trance, House, Electro, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548416.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Clubwaver - Raise Your Glass (Floskel Remix)
-002. Digital Junkiez - Drumfire (Original Mix)
-003. Jordy Dazz & Bassjackers - Battle (Original Mix)
-004. Marcio Vicca - 4Life (Original Mix)(   Читать дальше...   )Жанр: Progressive, Trance, House, Electro, DanceПродолжительность: 09:07:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ACDB3A06229BC9C7FA5C00A8AD14B7AAB93A3CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048041   (548415) от 31.08.2016
-
-VA - Chill Out Bay (2016) [MP3|320 Kbps] <Chillout, Lounge,Deep House>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deeper Sublime - Femme Fatale (05:37)
-02. Twopandas - Make Me Alive (Slowdown Mix) (04:15)
-03. Grabowsky - Bora Bora (04:38)
-04. Project Blue Sun - About Love (Chillout Mix) (06:27)(   Читать дальше...   )Жанр: Chillout, Lounge,Deep HouseПродолжительность: 01:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29276865AB901128ED6DCD336DDA5F5DA456D7A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310126   (548414) от 22.06.2019
-
-MiniTool Power Data Recovery 8.5 Business Technician RePack (& Portable) by TryRooM [Multi/Ru]
+AnyMP4 Video Enhancement 7.2.20 RePack (& Portable) by TryRooM [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550350.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MiniTool Power Data Recovery - это инструмент предназначенный для восстановления данных с наиболее распространенных на сегодняшний день типов карт памяти, а также с жестких дисков и прочих носителей информации. Программа достаточно компактна, однако список ее основных возможностей включает как восстановление файлов с жестких дисков, флеш карт памяти, CD/DVD дисков, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий
+AnyMP4 Video Enhancement - Видеоредактор для повышения качества. Позволяет изменить разрешение, оптимизировать яркость и контрастность, удалить шумы, а также конвертировать видео. Кроме того, позволяет вращать видео в любых направлениях, редактировать с помощью обрезки кадра, кадрирование, добавление водяных знаков, а также конвертировать видео в 4K H.265/HEVC, 4K (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:533A3256B91087A33ED9083CEF216B75D71B223F
+magnet:?xt=urn:btih:54A91FEC046ADA6A8AD59D86579EF831AD19EE7C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -468,25 +310,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309920   (548412) от 22.06.2019
+###  Публикация: 1309521   (550349) от 20.06.2019
 
-Путь в Палому (Дорога чести) / Road to Paloma (2014) BDRemux [H.264/1080p]
+VA - The Hottest Latino Hits (2018) [FLAC|Lossless|WEB-DL|tracks] <Latino Pop>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550349.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Роберт Вольф, коренной американец, совершив самосуд над убийцей матери, вынужден скрываться от полиции. Его железный конь не знает усталости и летит по бескрайним пустынным хайвеям Америки. На пути Роберт встречает такого же бродягу на мотоцикле и дорога становится домом для них обоих.Производство: США / Boss Media, Pride of GypsiesЖанр: Триллер, ДрамаРежиссер: Джейсон МомоаАктеры: Ти Александр, Генри Элис, Лиза Боне, Крис Браунинг, Чарльз Брумбли, Линден Чайлз, Лэнс Хенриксен, Роберт Гомер Моллохан, Джейсон МомоаПеревод: Многоголосый профессиональный, одноголосый любительскийСубтитры: Английские (SDH)Продолжительность: 01:30:28
+01.Reggaeton Latino - Travesuras (3:18)
+02.Reggaeton Latino - Mi Gente (3:05)
+03.Reggaeton Latino - Ni Tu No Yo (3:36)
+04.Reggaeton Latino - Bobo (3:31)(   Читать дальше...   )Жанр: Latino PopПродолжительность: 00:57:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56BE9CF08E70323B161497CB9C97E61439793ED6
+magnet:?xt=urn:btih:423B38B7106586E768679B631623D39B830FBD2C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -494,25 +339,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309607   (548410) от 22.06.2019
+###  Публикация: 1309602   (550348) от 20.06.2019
 
-Photo Mechanic 6  v6.6.0 (build 3291) [En]
+Bruce Springsteen - Western Stars (2019) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hitch Hikin' (03:37)
+02. The Wayfarer (04:18)
+03. Tucson Train (03:31)
+04. Western Stars (04:41)(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046F6EDC81A8842B32531658963AB429F23BACDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309453   (550347) от 20.06.2019
+
+VA - The Paradoxes: Alternative Rock Collection (2019) [MP3|320 Kbps] <Alternative, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550347.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Inglorious - Queen
+002. Ashley Cleveland - Up From The Ether
+003. Passcode - Bite The Bullet
+004. Quantum Leap - Sea(   Читать дальше...   )Жанр: Alternative, Hard RockПродолжительность: 09:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CBFC2D7FDB795E3962D55C2B759F0D1AE4138CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309547   (550346) от 20.06.2019
+
+Tipard HD Video Converter 9.2.18 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tipard HD Video Converter - программа, видео конвертер файлов различных форматов в HD видео, поддержка HD TS, HD MTS, HD WMV, HD MPG, HD MPEG4, H.264/AVC , HD AVI, HD ASF и других видео форматов, поддержка High-Definition (HD) видео кодирования и декодирования, извлечение аудио в AAC, AC3, AIFF, AMR, AU, FLAC, MP3, M4A, MP2, OGG, WAV, WMA и другие аудио форматы, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C183682E11AFF2F7679E4B2A598BE199BA7A1A52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309265   (550345) от 20.06.2019
+
+Transmit 5 v5.5.0 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550345.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Photo Mechanic — фотобраузер и фоторедактор оперативно обрабатывающий тысячи снимков в одиночном и пакетном режимах, отбирает из них самые удачные, обрезает, добавляет информацию к фото, рейтинг, корреспондируется с цифровыми камерами, интегрируется со многими редакторами в т.ч. Adobe Photoshop, позволяет легко экспортировать данные. Программа предназначена для профессиональных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.06.2019Разработчик: Camera Bits, Inc.Поддерживаемая ОС: macOS 10.10.5+Язык интерфейса: Английский
+Transmit представляет собой отличный FTP (File Transfer Protocol), SFTP, S3 (Amazon.com файл-хостинг) и iDisk / WebDAV клиент, который позволяет загружать, выгружать и удалять файлы через Интернет, с продуманным, простым и интуитивно-понятным интерфейсом, высокой скоростью передачи/приема файлов, прекрасной стабильностью. Теперь Transmit подключается к 10 новым облачным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.06.2019Разработчик: Panic Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B23B414E2AF62E062D65D80E620FD8BE56E9B56D
+magnet:?xt=urn:btih:76DBCC32297B40118967678A0CC6E7C8B09AB599
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,25 +449,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 693866   (548409) от 27.08.2013
+###  Публикация: 1309679   (550344) от 20.06.2019
 
-Журнал | National Geographic [Россия] №9 (сентябрь 2013) [PDF]
+Hollywood Vampires - Rise (2019) [MP3|320 Kbps] <Hard Rock>
 
->>Журналы
->>Научно-популярные журналы
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550344.jpg" />
 </div>
 
 
 ###  Подробнее
 
-National Geographic - уникальный научно-популярный географический журнал, официальное издание американского Национального географического общества - публикует беспрецедентные и эксклюзивные материалы об истории, археологии, науке и культуре. Ядро журнала одинаково для всех стран, что делает National Geographic по-настоящему общемировым изданием.Формат: PDF
+01. I Want My Now
+02. Good People Are Hard to Find
+03. Who's Laughing Now
+04. How the Glass Fell(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C5407EB3D3254CCCCC68220D1807A4389A8E3EC6
+magnet:?xt=urn:btih:6F10CB2A8241540D9687B5DFE8621F62DCDD0CDB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,27 +478,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 693919   (548408) от 27.08.2013
+###  Публикация: 1309712   (550343) от 20.06.2019
 
-Sacred Seven / Священная Семерка [2011, TV, 12] BDrip 1080p raw
+Растровый клипарт - Home Farm #09 [PNG]
 
->>Аниме с субтитрами
->>Аниме (FullHD)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550343.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этом странном мире сверхчеловеческие возможности дают обладание чудесными камнями, которые «родственны» организму владельца. Кусочек такого минерала когда-то достался 17-летнему Аруме Тандодзи – и счастья ему не принес. Из-за взрывов буйства и ярости парень искалечил немало людей, ушел из дома и сейчас находится на испытательном сроке. В школе столь знатного хулигана все обходят десятой дорогой, да и сам герой не желает ни с кем сближаться. Только одноклассница Вакана Ито верит Аруме и старается вовлечь его в свой «клуб самоцветов», впрочем, без особого успеха. Так бы и жил Тандодзи изгоем, если бы однажды в двери не постучалась рыжая малышка в сопровождении дворецкого.
-
-Гостья по имени Рури оказалась главой корпорации Айба, а попутно координатором борьбы с Аси – каменными демонами, давно угрожающими человечеству. Против демонов мало помогает обычное оружие – нужны воины Света, черпающие силу из волшебных камней. В последующем вихре событий Рури отдает Аруме собственный Камень – в итоге герою удается обуздать (   Читать дальше...   )Жанр: приключенияРежиссер: Охаси ЁсимицуПродолжительность: 12 по 25 мин
+Клипарт домашняя ферма для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 165x228-4955x5854
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E9B4EB86248377D1F27DCF770BB75E0E9ABF8E4
+magnet:?xt=urn:btih:D8DA6EAEB7436897BB5A11DC7889AD52BCD665BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -574,104 +504,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309787   (548407) от 22.06.2019
+###  Публикация: 1309557   (550342) от 20.06.2019
 
-МосГаз. Операция Сатана (2018) WEBRip [H.264/720p-LQ] (сезон 5, серии 1-8 из 8)
-
->>Отечественные сериалы
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал является пятым в серии фильмов о майоре Черкасове (Мосгаз 2012, Палач 2014, Паук (Гознак) 2015, Шакал 2016).
-1975 год — холодная война между СССР и США, гонка вооружений. Напряженно работают физики-ядерщики. В Советском Союзе становится очевидной утечка секретной информации о разработке ракеты «Сатана». Казалось бы, как может быть связан майор милиции с разведкой (   Читать дальше...   )Производство: Россия / Красный квадрат киноЖанр: детектив, криминалРежиссер: Юрий МорозАктеры: Андрей Смоляков, Марина Александрова, Даниэла Стоянович, Владимир Юматов, Сергей Угрюмов, Луиза Мосендз, Яна Сексте, Владимир Ильин, Виктория Исакова, Александр Домогаров, Сергей Колтаков и др.Продолжительность: ~00:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81007A724A9621DD09D8548A6D3AB29D9B039ECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310019   (548405) от 22.06.2019
-
-Журнал | Радио №6 (июнь 2019) [DJVU, PDF]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548405.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале представлены новости науки и техники, устройство и ремонт отдельных образцов видео и аудиотехники, конкретные устройства в технике измерений и источников питания. Показаны разработки радиолюбителей-конструкторов, большой объем устройств из прикладной электроники. В каждом журнале имеется специальный раздел для начинающих радиолюбителей.Жанр: Научно-популярный журналФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D768AF97587706536C8C7D29711BC4A9E569FCF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 694032   (548403) от 27.08.2013
-
-Журнал | Electronics Projects. Volume 25 (2012) [PDF] [En]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548403.jpg" />
-</div>
-
-
-###  Подробнее
-
-В очередном выпуске серии  Electronics Projects описаны 89 радиолюбительских конструкций  различного направления: от устройств для дома до КВ-УКВ аппаратуры.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DEA3CF523FD085C962BEC0C85E88856407D8D8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310092   (548401) от 22.06.2019
-
-Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Designer SP2 14.0.7232.5000 VL (x86) RePack by SPecialiST v19.6 [Ru/En]
+AnyMP4 Video Converter Ultimate 7.2.56 RePack (& Portable) by TryRooM [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550342.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Microsoft Office 2010 — один из лучших наборов офисных приложений для компьютеров, телефонов и браузеров, включающий функции, на которые можно положиться уже сегодня, и возможности, которые могут потребоваться в будущем. Данный набор приложений позволяет уверенно принять вызов сегодняшней экономической ситуации, не упуская из виду факторы, необходимые для достижения (   Читать дальше...   )Язык интерфейса: Русский, Английский
+AnyMP4 Video Converter Ultimate - универсальная программа для преобразования видео, может конвертировать почти все форматы видео, такие как MP4, AVI, MOV, FLV, MKV, M4V и даже HD видео HD TS, HD MTS, HD AVI, HD MOV, HD MP4 и т.д., преобразовывать 2D и 3D видео с непревзойдённой скоростью и наилучшим качеством полученного видео. Кроме того, пользователи имеют возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31C4D05FC2BAF31456F25AAB05B58CDFE0ECFBE9
+magnet:?xt=urn:btih:015947AB17ED8C81FAFAC45F1C965BF3CF42B2E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -679,25 +530,185 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309721   (548399) от 22.06.2019
+###  Публикация: 1309673   (550341) от 20.06.2019
 
-Tor Browser Bundle 8.5.3 Final [Ru/En]
+Freemake Video Converter 4.1.10.270 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550341.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пакет для анонимного интернет-серфинга путем маршрутизации и шифрования трафика по распределенной сети серверов. Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех посещаемых хостов информацию о физическом расположении посетителя. Включает в себя программное (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Freemake Video Converter - это бесплатное универсальное приложение, которое предлагает вниманию пользователей инструменты для быстрого конвертирования видеоматериалов в распространенные форматы, их последующего редактирования и записи на оптические носители. С помощью Freemake Video Converter энтузиасты также смогут выполнять некоторые другие действия, например, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E30EA64248EE5914726F5AE55AB7F1CC95CD984
+magnet:?xt=urn:btih:A100FD4FFB584FB18E8E935338D3007776D75069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309732   (550339) от 20.06.2019
+
+Растровый клипарт - Insect #04 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт насекомые для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 111x115-5186x3189
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE7D414E73A22506B7D99C0DDFA2E4E8AFC0661A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309759   (550338) от 20.06.2019
+
+Обои - Desktop Wallpapers Full HD. Part (461) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE0960D8D8170A19BE063AD34D1F93DC24BC8F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309754   (550336) от 20.06.2019
+
+Обои - Ultra HD 3840x2160 Wallpaper Pack 391 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550336.jpg" />
+</div>
+
+
+###  Подробнее
+
+В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ECE8A899EBA1195C88E52EB7C5D63C169BDBF1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309734   (550335) от 20.06.2019
+
+Растровый клипарт - Interior #05 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт интерьер для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 228x500-1100x1100
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:707108AC886FAAF3A800364AF27FB255CE920DBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 693067   (550320) от 25.08.2013
+
+VA - Old Pop songs (1969 - 1997) vol.2 (2013) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Level 42 - Hot Water 1984
+02. Level 42 - Lessons In Love
+03. Lionel Richie - Hello 1984
+04. Lisa Stansfield - Change(   Читать дальше...   )Жанр: Музыка, PopПродолжительность: 02:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F5D58491A2CD8623990B208206E0B93E333B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237670   (550294) от 25.07.2018
+
+Оборотни старого морга / The Boneyard (1991) BDRip [H.264] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расследуя обыкновенное убийство, полицейские офицеры Кэллам и Маллин, присутствуют при вскрытии в местном морге. Рядовая процедура превращается в леденящий душу кошмар, когда страшная восточная тайна становится реальностью и морг наводняют ужасные оборотни.
+Перед лицом неизведанного, на грани жизни и смерти, сталкиваясь с вампирами на каждом шагу, напарники, взывая (   Читать дальше...   )Производство: США / Backbone Productions, Backwood Film, Prism EntertainmentЖанр: Ужасы, ФэнтезиРежиссер: Джеймс КамминсАктеры: Эд Нельсон, Дебора Роуз, Норман Фелл, Джеймс Истерманн, Денис Янг, Уилли Стрэтфорд мл., Филлис Диллер, Роберт Юн Джу Ан, Рик Брофи, Сэлли МиддлтонПеревод: Авторский одноголосый закадровый, любительський одноголосый закадровыйСубтитры: АнглийскиеПродолжительность: 01:33:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F762DDB3463CFF36180E6B6789C13BA0A7D9EFB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

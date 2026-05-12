@@ -1,3 +1,55 @@
+###  Публикация: 1091479   (942808) от 09.01.2017
+
+Проекты - Pond5 - Parallax Scrolling [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания фото-видео слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D527FAB0CC29D767FA54A3C467D3D5E4D47296E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091584   (942804) от 09.01.2017
+
+Проекты - VideoHive - The Slideshow - 18378168 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942804.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Slideshow - это современный, динамичный и легкий в использовании многоцелевой шаблон.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF541704C2BC3EC1C7F5F2FE0D740C30305CA89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091421   (942740) от 09.01.2017
 
 Проекты - VideoHive - Grunge Slideshow - 18296229 [AEP]
@@ -627,59 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4CF29DE59F116CCF7835CD3DA72AFF62067DEA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984322   (939986) от 08.02.2016
-
-Проекты - Pond5 - Dubstep Presentation [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания Вашего фото-слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:015CED2395384BEBFF4CD7036D3E29017A00D1F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092195   (939943) от 11.01.2017
-
-Проекты - Fashion Nebula [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fashion Nebula - элегантный проект для создания модного слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C29B97DFAA095F51DF3C5B3E34597149415BF046
 ```
 
 https://mybot314.ru/tekegram_catalog/

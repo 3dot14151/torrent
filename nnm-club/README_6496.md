@@ -1,25 +1,25 @@
-###  Публикация: 1507903   (798153) от 06.11.2021
+###  Публикация: 1507154   (798763) от 03.11.2021
 
-VA - Café De La Cita, Vol. 1 (Jazzy Bar Lounge & Chill out Tunes to Relax) (2017) [AAC|~312 Kbps] <Lounge, Chill Out, Jazz>
+VA - Vintage Café: Lounge and Jazz Blends (Special Selection), Vol. 17 (2020) [AAC|~306 Kbps] <Downtempo, Lounge, Jazz>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798763.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Artenovum - Galactic Highway (Nu Chillgroove Mix) (5:03)
-02. Bernon - Suitcases to Space (Jazzy Chillout Version) (5:19)
-03. Dave Neville - The Sun Is Coming (Smooth Jazz Mix) (6:47)
-04. Avalon Project - I Can Read Your Mind (Chill Breeze Mix) (5:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, JazzПродолжительность: 01:50:41
+01. Sarah Menescal - I Fall Apart (3:39)
+02. Beluga's Trio, Shelly Sony - Love You Inside Out (3:43)
+03. Groove Da Praia, Ituana - Talking in Your Sleep (Bossa Nova Mix) (3:48)
+04. Urban Love, Luca Giacco - Suedehead (2:59)(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:29:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A2009BDE91A7B5263CF0613FFB8B652E2F3DA17
+magnet:?xt=urn:btih:100DC99B2B83C84CC1D936BCAC3E3454AFB88341
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,27 +27,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508010   (798152) от 06.11.2021
+###  Публикация: 1507245   (798762) от 03.11.2021
 
-Invisor - Media File Inspector 3.18 [En]
+Downie 4 v4.3.8 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798762.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Invisor – Инспектор файлов мультимедиа
-Отображает техническую информацию о вашем видео и аудио файлов с возможностью сравнения собранных данных.
-Invisor основан на хорошо известной библиотеке MediaInfo и показывает подробную информацию о контейнере файла и потоков данных, включая видео, аудио, субтитры и главы. Поддерживает большинство форматов видео и аудио файлов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2021Разработчик: © 2021 Maxim PozdeevПоддерживаемая ОС: macOS 10.7.3 +Язык интерфейса: Английский
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 03.11.2021Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:40373F65CBD1AED73DD4DCA5F561CA2D7B2C1654
+magnet:?xt=urn:btih:D6C68054819C2B4DCEC41987B131ADAFCDFA1C3B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -55,28 +55,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507880   (798151) от 06.11.2021
+###  Публикация: 1507145   (798761) от 03.11.2021
 
-VA - Luxury Buddha Lounge, Vol. 3 (2014) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Vintage Café: Lounge and Jazz Blends (Special Selection), Vol. 16 (2020) [AAC|~290 Kbps] <Downtempo, Lounge, Jazz>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jasmon - Oriental Cafe (4:06)
-02. Man In A Room, Natasha Tsirou - Marveland (5:22)
-03. SoulAvenue - Padmasundari (5:56)
-04. Aqualise - Sonar (Original Version) (7:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:40:56
+01. Jazzystics, Apollinare Rossi - Riders on the Storm (3:46)
+02. Jamie Lancaster - Take It Easy (3:16)
+03. Michelle Simonal - Reminiscing (3:18)
+04. STEREO DUB, Karen Souza - Back Down South (Bossa Nova Mix) (2:45)(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:32:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FE789E1E647C4A6805EDC1035D9FBCBB70FEC4B
+magnet:?xt=urn:btih:A16D564D94605003C13BDCED245BBB01A7B1CF0D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -84,28 +84,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507887   (798150) от 06.11.2021
+###  Публикация: 1507144   (798760) от 03.11.2021
 
-VA - Chill Out Nation, Vol. 1 (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''E''. Тур 4. Динамо (Киев, Украина) - Барселона (Испания) (03.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lounge Groove Avenue - Next to the Sun (4:20)
-02. Peter Pearson - Chilled To The Heart (4:34)
-03. Marga Sol - What I Long For (Chill Mix) (5:24)
-04. D-Chill, Paola Cordoni - Are You Still (5:10)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:01
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''E''. Тур 4. Динамо (Киев, Украина) - Барселона (Испания) (03.11.2021)
+СУДЬЯ Хацеган Овидиу (Арад, Румыния)
+Судья на линии 1: Григориу Мирча Михаил (Румыния)
+Судья на линии 2: Георге Себастьян (Румыния)(   Читать дальше...   )Телекомпания: Матч! Футбол 2Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:52:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:326B3BF56957595E18D48812281F1E27F901C1DC
+magnet:?xt=urn:btih:D254ED52BEB82FB3BD3DF781F0925E187A2A80CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -113,85 +113,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507878   (798149) от 06.11.2021
+###  Публикация: 1507162   (798759) от 03.11.2021
 
-VA - Luxury Buddha Lounge, Vol. 2 (2014) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sylvering - The Power of Love (4:35)
-02. Smooth Deluxe - My Sweet Aimée (5:36)
-03. Guenter Haas - Lost in a Dream (6:42)
-04. E-Love - You Take My Heart (Gardenhouse Chill Out Edit) (6:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F335974E6B114CBAA57F6FF92A3039D380960A35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507908   (798148) от 06.11.2021
-
-VA - Café De La Cita, Vol. 5 (Jazzy Bar Lounge & Chill out Tunes to Relax) (2021) [AAC|~296 Kbps] <Lounge, Chill Out, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazzy System - China Town (3:46)
-02. Audiozoom - So Beautiful (3:25)
-03. Cuetec - Around Midnight (4:23)
-04. Jean Mare - Metropolitan Nights (Lounging Electro Cut) (4:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, JazzПродолжительность: 01:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F85E4F8B3F2EC0A4B1B604418BEC80EDDE7768F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508020   (798147) от 06.11.2021
-
-iFlicks 3.8 fix [Multi/Ru]
+Sketch 79 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Как добавить и смотреть фильмы в iTunes, iPhone или iPad? Используйте iFlicks. Добавьте метаданные к фильмам и сериалам и ваша медиатека будет выглядеть просто шикарно. Управление вашей видео коллекцией еще никогда не было такой удобной.
-
-iFlicks — это метаданные к сериалам и фильмам. При помощью добавления метаданных iFlicks поможет сделать вашу iTunes библиотеку (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.11.2021Разработчик: © 2015-2020 by iFlicks.Поддерживаемая ОС: macOS 10.13.2+Язык интерфейса: Русский, Английский, Немецкий и др.
+Сделайте набросок графического дизайна для цифрового мира. Мощные инструменты и элегантный интерфейс в одном отмеченном наградами пакете. Потому что создание красивых вещей должно быть радостью, а не обузой.Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: © Bohemian CodingПоддерживаемая ОС: 10.15 or laterЯзык интерфейса: Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D3C125A9CA06BC6C25C6C4C4E2EB0AC84B2DE69
+magnet:?xt=urn:btih:9D714CE3A61326213F474029564177D28442D77D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -199,25 +139,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507977   (798146) от 06.11.2021
+###  Публикация: 1507308   (798758) от 03.11.2021
 
-PhotosRevive 2.0.1 [Multi]
+Vitamin-R 4.0 [En]
 
->>Архив торрентов
->>Архив 4Apple
+>>Программы для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798758.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PhotosRevive автоматически раскрашивает ваши старые черно-белые фотографии. Приложение использует революционный искусственный интеллект, который добавит цвета ультра-реалистичным способом. Приложение очень простое в использовании. Сканируй или импортируй свою фотографию и все. Приложение раскрасит его без каких-либо усилий с вашей стороны.Тип издания: macOS SoftwareРелиз состоялся: 04.11.2021Разработчик: © 2021 NeededAppsПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и др.
+Vitamin-R — продвинутый таймер для техники Pomodoro. Каждый из нас постоянно сталкивается с ситуацией, когда необходимо сфокусироваться на выполнении задачи, но желанное состояние потока так и не приходит. Или, когда начав работать над очень важным для вас проектом, вдруг, через некоторое время, вы обнаруживаете себя на странице Facebook или бесцельно блуждающим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2021Разработчик: Rights ReservedПоддерживаемая ОС: macOS 10.14 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C477E41AB0E0BEFD231F460C89C86C80FAAA57A1
+magnet:?xt=urn:btih:BF198764762DD58424CD432798C8CB73B6DE4026
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -225,28 +165,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507889   (798145) от 06.11.2021
+###  Публикация: 1507155   (798757) от 03.11.2021
 
-VA - Chill Out Nation, Vol. 2 (2021) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Vintage Café: Lounge and Jazz Blends (Special Selection), Vol. 18 (2020) [AAC|~304 Kbps] <Downtempo, Lounge, Jazz>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798757.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Steen Thottrup - Diversities (4:11)
-02. Lemongrass, Jane Maximova - Grapes (Roberto Bronco Remix) (6:20)
-03. Marc Hartman - Mirror Of Love (5:17)
-04. Five Seasons - Caribbean Aquanauts (4:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:05:04
+01. Ituana - Tape Loop (3:11)
+02. Sarah Menescal - Company (3:00)
+03. Anakelly, STEREO DUB, Nova Bossa Ltd. - Last Friday Night (T.G.I.F.) (3:30)
+04. 48th St. Collective, Michelle Simonal - Over My Shoulder (3:41)(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:27:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFED980081E9ECE00535060A489BFABA23DEDC41
+magnet:?xt=urn:btih:3F855A47EDABF297972EA177FFBE34D6F71B642A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -254,28 +194,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507943   (798144) от 06.11.2021
+###  Публикация: 1507149   (798756) от 03.11.2021
 
-VA - 50 Italian Standards, vol. 2 (2020) [AAC|~318 Kbps] <Nu Jazz, Lounge, Easy Listening>
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Тур 4. Обзор матчей (03.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798756.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Papik, Alan Scaffardi - Ancora Tu (5:12)
-02. Cristiana Polegri - Cocktail D'Amore (3:39)
-03. Melania, Christian Lisi - Maramao Perchè Sei Morto (3:56)
-04. Walter Ricci, Stefano Di Battista - Guarda Che Luna (3:36)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, Easy ListeningПродолжительность: 03:19:03
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Тур 4. Обзор матчей (03.11.2021)Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:27:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E5FCDD6A8B036DFDD3760A5043FD53F7B0A953C
+magnet:?xt=urn:btih:352638E8763ADC1016480E2663F5DA573FC7DF07
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -283,133 +220,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508012   (798143) от 06.11.2021
+###  Публикация: 1507157   (798755) от 03.11.2021
 
-Своя игра (06.11.2021) WEBRip [H.264/1080p] (выпуск 1)
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: русскиеПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15BB7C8E6F237C21B63860FEBC4A42591D0B1886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507946   (798142) от 06.11.2021
-
-VA - 50 Italian Standards, vol. 3 (2021) [AAC|~316 Kbps] <Nu Jazz, Lounge, Easy Listening>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papik, Francesca Gramegna - Nel Blu Dipinto Di Blu (Volare) (4:21)
-02. Papik, Walter Ricci - Viento 'e Terra (4:18)
-03. Papik, Alan Scaffardi - Canzoni Stonate (4:00)
-04. Papik, Danny Losito - Figli Delle Stelle (3:53)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, Easy ListeningПродолжительность: 03:22:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC27E3263D1A4B387112A27B88CD2D9A142CCD99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508043   (798141) от 06.11.2021
-
-Розали и Леонтина в театре / Rosalie et Leontine vont au theatre (1911) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшая юмористическая зарисовка. Можно сказать, что фильм представляет собой антиинструкцию по поведению. Проще говоря - как не надо вести себя в театре. Да и в любом общественном месте. На мой неискушенный взгляд, произведение довольно-таки вульгарное и безвкусное. Но кто я такой чтобы судить сделанное более ста лет назад. Ну, вот прошло сто лет и что? Современный (   Читать дальше...   )Производство: Франция, Pathé FrèresЖанр: Комедия, короткометражный, немое киноРежиссер: Ромео БосеттиАктеры: Сара ДюамельПеревод: НемойСубтитры: ОтсутствуютПродолжительность: 00:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91EBA18938EFAB43F991070EEE7C04AAE3AC8836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508022   (798140) от 06.11.2021
-
-Своя игра (06.11.2021) WEBRip [H.264/1080p] (выпуск 2)
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играЯзык озвучки: РусскийПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E80D5864EFCFA5011FDADC421B776DB132E1BD20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507923   (798139) от 06.11.2021
-
-Shortcut Bar 2.9.4 fix [En]
+iNet Network Scanner 2.8.4 [En]
 
 >>Программы для macOS
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798755.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Shortcut Bar - невероятно удобное приложение, с его помощью вы получите быстрый доступ к файлам, папкам и приложениям, которые вам необходимы.
-Приложение «живет» в меню баре и позволяет добавлять ярлыки в неограниченном количестве. Всякий раз, когда вам требуется доступ к этим важным файлам и папкам, просто нажмите на иконку в строке меню и выберите элемент из раскрывающегося (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.06.2021Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+iNet предоставляет Вам информацию о сети к которой подключен ваш Mac. Удобный дизайн позволяет даже неопытным пользователям получить полную информацию о вашей локальной сети.
+iNet показывает устройства, подключенные к вашей локальной сети, компьютер или маршрутизатор, а также их имя, IP и поставщика. iNet обнаруживает и различает Windows и Macintosh. Для большинства (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.08.2021Разработчик: BananaGlueПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Испанский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:943BD3F5D23A7FD2DFAB256B338E8D59EFCF1F7F
+magnet:?xt=urn:btih:38B69B07EE63CED1C381DB36B322C4B162389729
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -417,28 +247,139 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507941   (798138) от 06.11.2021
+###  Публикация: 1507148   (798754) от 03.11.2021
 
-VA - 50 Italian Standards, vol. 1 (2018) [AAC|~326 Kbps] <Nu Jazz, Lounge, Easy Listening>
+Магнитная Аномалия feat. Я Vegan - Я больше не ем животных (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798754.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я больше не ем животных
+2. Сила
+3. Нормально
+4. Еее(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D54B31704863DF01B9237B7D14B136A92F43E91F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507146   (798753) от 03.11.2021
+
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''H'. Тур 4. Ювентус (Италия) - Зенит (Россия) (03.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''H''. Тур 4. Ювентус (Италия) - Зенит (Россия) (03.11.2021)
+СУДЬЯ Эрнандес Эрнандес Алехандро Хосе (Санта-Крус-де-Тенерифе, Испания)
+Судья на линии 1: Наранхо Хосе (Испания)
+Судья на линии 2: Собрино Теодоро (Испания)(   Читать дальше...   )Телекомпания: Матч!Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:51:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFCB4E3C29A113D8750733B584EFC65824FC26CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507151   (798752) от 03.11.2021
+
+Футбол. Лига Чемпионов Online 2021/2022. Групповой этап. Тур 4. Обзор матчей (03.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол.Лига Чемпионов Online 2021/2022. Групповой этап. Тур 4. Обзор матчей (03.11.2021)Телекомпания: Матч ТВ ПремьерЖанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADFBA52DC367038FBB8F9FAC1A39570981EC8F7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507061   (798751) от 03.11.2021
+
+Justus - Live From a Former Submarine Wharf in The Port of Rotterdam (2021-11-01) [MP3|~245 Kbps (V0)] <Big Room, Future House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justus (NL) vs. Tiësto - ID vs. Red Lights
+02. Justus - Satisfaction 2021Жанр: Big Room, Future HouseПродолжительность: 00:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E455639921065EEBECC9E3F81967DB989CAE5E7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507158   (798750) от 03.11.2021
+
+VA - Vintage Café: Lounge and Jazz Blends (Special Selection), Vol. 19 (2021) [AAC|~298 Kbps] <Downtempo, Lounge, Jazz>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798750.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Papik - E la chiamano estate (3:12)
-02. Melania - Tu Vuo Fa L'americano (4:04)
-03. Sugarpie And The Candymen - Volare (Nel Blu Dipinto di Blu) (2:48)
-04. Sweet Caterina - Parole Parole (4:22)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, Easy ListeningПродолжительность: 03:15:07
+01. Sarah Menescal - Like a Prayer (3:38)
+02. The Cooltrane Quartet, Eve St. Jones - Never Gonna Give You Up (3:08)
+03. Nenei - Dangerous Woman (3:41)
+04. Amazonics - Duel (3:13)(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:38:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D413D12EC02267F57C594FE9D320CAA7178CDF67
+magnet:?xt=urn:btih:89717FDAF35E1132C5F3D0575D2F3D65D468CBA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -446,106 +387,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508053   (798137) от 06.11.2021
+###  Публикация: 1507205   (798749) от 03.11.2021
 
-По следу монстра (06.11.2021) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798137.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Кровь и песок» В Крыму бесследно исчезает семья с маленьким ребенком. Масштабные поиски не давали результатов. Что же произошло… Несчастный случай? Может быть соседские войны? Или семью украла банда вымогателей? История, которую вспоминают со слезами на глазах…Жанр: Документальный, криминал, расследованиеСубтитры: РусскиеПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F0E489E2D0DD13B7F65668A1AD15D77CFA699FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507924   (798136) от 06.11.2021
-
-Живая еда с Сергеем Малозёмовым (06.11.2021) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пшено: почему многие считают его суперпродуктом, чем эта крупа полезна на самом деле и можно ли с ее помощью лечить почки? Как готовить сырники без вреда для здоровья? В чем секрет идеальных сырников? Опасен ли белый налет на шоколаде? Рецепт недели — хурма, запеченную в сметане.Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB541FD9574D83FE1EBEC6848976507535D2AFBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507997   (798135) от 06.11.2021
-
-Иван Прийма | Голоса Сербии (1993) [PDF, DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798135.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге филолога и публициста Ивана Приймы «Голоса Сербии» о животрепещущих событиях в Югославии рассказывают сами участники этих событий. Информация из первых рук подкрепляется документальными свидетельствами. Ретроспективный план книги высвечивает забытую историю русско-сербских связей. Содержание представляет интерес для любого читателя, стремящегося прояснить (   Читать дальше...   )Жанр: История. ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF3FE7AF8204291A39A6C3CA15BCE22C45F8D7BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507978   (798134) от 06.11.2021
-
-Claudio Chiara - It's Easy to Say (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+Howlin' Wolf - The London Howlin' Wolf Sessions (1989) [FLAC|Lossless|tracks + .cue]<Chicago Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798749.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. After the Shower
-02. Candlelight on Crystal
-03. Come to Me
-04. Piano and Strings(   Читать дальше...   )Жанр: JazzПродолжительность: 00:23:44
+01. Rockin' Daddy
+02. I Ain't Superstitious
+03. Sittin' On Top Of The World
+04. Worried About My Baby(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 00:40:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5C1103C6C863A0CBC1C4341CF427B6914CDFFA4
+magnet:?xt=urn:btih:FC204EA3DF759918F4D5917357E637C32BE0C6CB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -553,26 +416,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508048   (798133) от 06.11.2021
+###  Публикация: 1507161   (798748) от 03.11.2021
 
-DxO PhotoLab 5 ELITE Edition 5.0.1 CR2 [Multi]
+VA - Vintage Café: Lounge and Jazz Blends (Special Selection), Vol. 20 (2021) [AAC|~290 Kbps] <Downtempo, Lounge, Jazz>
 
->>Программы для macOS
->>Графика для macOS
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798748.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
-Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.10.2021Разработчик: DxO LabsПоддерживаемая ОС: macOS 10.15.0 +Язык интерфейса: Английский, Немецкий, Французский и др.
+01. Sarah Menescal - Stand by Me (3:06)
+02. Nova Bossa Ltd., Lizette - 99 Red Balloons (3:27)
+03. Amazonics, Michelle Simonal - Cry for Help (2:56)
+04. Scubba, Lila Liu - Lost in Love (2:35)(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:21:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDE9E0F97A5F185ED5F7012A0E040F424F8E08F1
+magnet:?xt=urn:btih:D4EACBF9D8B8DD5554E8C2155E0E6640EFFB22ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -580,26 +445,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507968   (798132) от 06.11.2021
+###  Публикация: 1507204   (798747) от 03.11.2021
 
-DetectX Swift 1.0981 [En]
+Игорь Герман  - Привет, бродяги...(1995) [FLAC|Lossless|tracks + .cue]<Шансон>
 
->>Архив торрентов
->>Архив 4Apple
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798747.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Легкое приложение для устранения неполадок и безопасности для компьютеров Mac, которое помогает находить и удалять рекламное ПО, вредоносное ПО, кейлоггеры и другие нежелательные программы.
-Он не устанавливает никаких расширений ядра или привилегированных демонов-помощников, и его можно использовать для всех (без рекламы, без подписок и без сбора данных!).Тип издания: macOS SoftwareРелиз состоялся: 16.08.2021Разработчик: © 2021 Sqwarq SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+01. Арбат
+02. Гуцулочка
+03. Вальc - романс
+04. Ялта(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:41:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC1CA6B1D5C89379270CA34BFD1A55A2FD18B9E6
+magnet:?xt=urn:btih:FBEDBF092348FA96F58F854AE237268B13277AC5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,69 +474,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508045   (798131) от 06.11.2021
+###  Публикация: 1507164   (798746) от 03.11.2021
 
-Exposure Software Eye Candy 7 v7.2.3.176 fix [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alien Skin Eye Candy 7 — новая версия набора из 30 фильтров и более 1500 пресетов со множеством настроек для Adobe Photoshop, которые позволят выполнить с легкостью множество дизайнерских задач, начиная от веб-интерфейсов и заканчивая впечатляющими логотипами. Плагин создает реалистичные эффекты природных явлений, предоставляя красивый детальный результат. Простой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.06.2021Разработчик: © 2021 ALIEN SKIN SOFTWARE, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF0A8F801C4F0DC96D1FBCBFC9C5F214ECE76345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507863   (798130) от 06.11.2021
-
-Святитель Иоанн (Максимович) | Царский путь Креста Господня, вводящий в Жизнь Вечную (1996) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие люди часто недоумевают, почему случаются с ними те или иные скорби, и задаются вопросом: зачем они посылаются человеку?
-
-На эти вопросы даёт ясный ответ книга «Царский путь Креста Господня». В ней дан полный анализ скорбей, с которыми встречается человек на пути спасения. Святые отцы глубоко и всесторонне раскрыли значение скорбей, их нравственную сущность (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E20CACE52FCD4ED892794884292B6F97E4B8E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507994   (798129) от 06.11.2021
-
-K-Lite Codec Pack Update 16.5.3 [En]
+K-Lite Codec Pack Update 16.5.1 [En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798746.jpg" />
 </div>
 
 
@@ -679,7 +492,7 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0733C65C12349031A99DFD4C1396A8320450D41
+magnet:?xt=urn:btih:10D94EDC198D30A769E798C7731C0338BF9098F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -687,25 +500,219 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508056   (798128) от 06.11.2021
+###  Публикация: 1507215   (798745) от 03.11.2021
 
-MotoGP. Этап 17. Гран-при Алгарве. Квалификация (06.11.2021) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+Dead Can Dance - SACD Box Set (2008) [AAC|~335 Kbps] <Modern Classical, Experimental, Ethereal>
 
->>Спорт и активный отдых
->>Авто, Мото
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798745.jpg" />
 </div>
 
 
 ###  Подробнее
 
-6 ноября 2021, суббота. 17:10 МСК. Этап 17, Гран-при Алгарве. Португалия, КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:56:44
+1.01. The Fatal Impact (3:24)
+1.02. The Trial (3:54)
+1.03. Frontier (3:16)
+1.04. Fortune (3:49)(   Читать дальше...   )Жанр: Modern Classical, Experimental, EtherealПродолжительность: 06:26:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BA1B4DA336872DB9FDED3A621B552D811F81D72
+magnet:?xt=urn:btih:100582648ACC6534487ACDAA89E528665CA21D4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273882   (798744) от 04.01.2019
+
+Берлинская стена. Путь к свободе / The Berlin Wall. Escape to Freedom (2006) SATRip
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страшная бетонная стена, вдоль которой расставлены смертельные ловушки. Немногим желающим покинуть ГДР удалось проползти, перелезть или пробить эту стену. Этот фильм о восточных немцах, которые благодаря своей смелости и находчивости сумели преодолеть «Берлинскую стену».Производство: США, ГерманияЖанр: Документальный, историяПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53D83872E18C2C712382EC01EDB0EABA25E865FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273992   (798743) от 04.01.2019
+
+GoodSync Enterprise 10.9.21.6 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798743.jpg" />
+</div>
+
+
+###  Подробнее
+
+GoodSync - программа из серии высоконадежного, удобного и простого в использовании программного обеспечения от компании Siber Systems - разработчика RoboForm. Программа автоматически синхронизирует и делает резервные копии документов, фотографий, музыкальных файлов, электронных писем. Синхронизация производится между любыми носителями, как подключенными непосредственно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3507F4E2A897621D5CDE60956AF092CA81CBAEA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273518   (798742) от 04.01.2019
+
+Хоккей. Молодёжный Чемпионат мира 2019. Предварительный раунд. Группа B. Казахстан — Словакия (30.12.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798742.jpg" />
+</div>
+
+
+###  Подробнее
+
+31 декабря 2018, понедельник. 06:30 МСК
+43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
+Предварительный раунд. Группа B.
+Казахстан — Словакия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20CE26B651DE2E51AD03F56BC62DAE63ACBA16DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273880   (798741) от 04.01.2019
+
+VA - EDM Rave Dance Music Explosion: Top 100 Massive Festival Hits 2019 - Goa Psy Trance Dubstep Bass Trap (Explicit) (2019) [MP3|320 Kbps] <Pop, Dance, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Galaxy Dust Project - Capitan NEMO
+02. Wizack Twizack - Fly With Us
+03. K Theory - The Tower (Drewell Trap Remix 2018 Remaster)
+04. C-Drench - Snakes Hip Hop Rap Mix(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 10:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC95D8C7460CA62B98BBD645E9FE24973ACDA92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273510   (798740) от 04.01.2019
+
+Хоккей. Молодёжный Чемпионат мира 2019. Предварительный раунд. Группа B. Швеция — США (29.12.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798740.jpg" />
+</div>
+
+
+###  Подробнее
+
+30 декабря 2018, воскресенье. 06:30 МСК
+43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
+Предварительный раунд. Группа B.
+Швеция — США(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F9102412C55BC014B0B9CED7EF5344E7B0FF95A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273759   (798739) от 04.01.2019
+
+Алла Холод | Чужая гостья (2018) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марьяна и Ульяна Карелины – близнецы. Но похожи они только внешне, а по характеру и образу жизни совершенно разные: Марьяна – деятельная карьеристка, месяц назад она вступила в должность генерального директора телеканала и начала жесткую борьбу с финансовыми махинациями. Уля – мягкая, нежная, неконфликтная, девушка-колибри. Однажды встревоженная чем-то Уля назначила (   Читать дальше...   )Жанр: Современные детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD05D77F534BF6AF44A0F321062A9DCA27DD5E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273059   (798738) от 04.01.2019
+
+Подшивка журналов | Woodshop News [+спецвыпуски]  (2018) [PDF] [En]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Woodshop News — издание представляет самую последнюю информацию об инструментах, оборудовании и технологиях ремонта дома и техники для умельцев на все руки. От именитых корпоративных подрядчиков до дачников и любителей мастерить, наши читатели найдут в издании последовательные рекомендации по домашнему ремонту и благоустройству, садовому дизайну и изготовлению мебелиЖанр: Столярное дело, домоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D0411A2777F6141644781521D0C90AE1A2913C
 ```
 
 https://mybot314.ru/tekegram_catalog/

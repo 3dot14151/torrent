@@ -1,3 +1,29 @@
+###  Публикация: 1232831   (596148) от 26.06.2018
+
+Nier Music Concert: Ningyou Tachi no Kioku / NieR Music Concert: The Memory of Puppets (2017) Blu-Ray [1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596148.jpg" />
+</div>
+
+
+###  Подробнее
+
+NieR Music Concert - серия концертов в Японии и Тайване, в которых представлены живые выступления NieR Automata и оригинальной музыки NieR. На каждом из концертов также была представлена ​​уникальная драма со спектаклем, исполняемая живыми японскими актерами. Из-за успеха концертов Square Enix решила выпустить диск Blu-Ray с записью ночного концерта "Прощай", (   Читать дальше...   )Производство: Япония | SQUARE ENIX CO., LTD.(PLC)(D)Жанр: концертЯзык субтитров: английский, китайский, корейский.Продолжительность: 02:03:47 / 01:58:06 / 02:01:12 / 01:57:48 / 02:02:33 / 02:02:54 / 02:02:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D575DF746BCED6E4F7F59FC95346E66EB904A2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915429   (592205) от 05.07.2015
 
 Metallica - Francais Pour Une Nuit (2009) BDRip [H.264/1080p]
@@ -695,57 +721,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 921815   (573647) от 26.07.2015
+###  Публикация: 361798   (574287) от 11.07.2011
 
-U.D.O. - Live in Sofia (2012) BDRip [H.264/1080p]
+Boney M - Die ZDF-Kultnacht (2011) HDTV
 
->>Театр и Музыкальное видео
+>>След.
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_574287.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Концерт группы U.D.O., прошедший 16 ноября 2011 года в Софии (Болгария).01. Rev-Raptor
-02. Dominator
-03. Thunderball
-04. Leatherhead(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:25:12
+Запись со спутника, шоу-программа ''Die ZDF-Kultnacht'' на телеканале ZDF 18.06.2011Жанр: ДискоПродолжительность: 01:58:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:246F933482049988EB5B01A9B248F66EF75E73A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921772   (573583) от 26.07.2015
-
-Status Quo - Back2SQ1 - The Frantic Four Reunion, Live at Wembley Arena (2013) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Status Quo на Wembley Arena в марте 2013 года. Status Quo — британская рок-группа, основанная бас-гитаристом Аланом Ланкастером и гитаристом Фрэнсисом Росси в 1962 году в Лондоне, Англия.01. Intro/Junior's Wailing
-02. Backwater
-03. Just Take Me
-04. Is There a Better Way(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues Rock, Rock 'n' RollРежиссер: Andy Gamble, Jaff CousinsПродолжительность: 01:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F478E4C3ECC8A7C83C5EEF1BF6E08C350D39DB80
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1173549   (389699) от 12.10.2017
+
+Logos (Stephen Sicard) - Le Temps des Archanges (2017) [MP3|320 Kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Au dela du Soleil
+02. Rencontre magique
+03. Les voix invisibles
+04. Instant present(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73064B8345DBED034353B5D4D724EE3D08EA339B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326180   (387183) от 19.09.2019
 
 Medwyn Goodall - The Goddess of Machu Picchu (2019) [MP3|320 Kbps] <New Age>
@@ -752,35 +781,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3E62A6E259F15E71A64C8DFF7792C8AE3688B83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179243   (351518) от 30.10.2017
-
-Steve Orchard - Theory of Communion (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Affirmation (3:15)
-02. Denials and Accusations (5:57)
-03. Touching Planet Earth (5:31)
-04. Blind Panic (4:43)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA702F9BD36A48AD6015337407C53498CBB2C5BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

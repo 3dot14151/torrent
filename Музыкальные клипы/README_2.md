@@ -1,3 +1,96 @@
+###  Публикация: 603364   (996877) от 15.01.2013
+
+Сборник клипов - Dj Vj Magrao Videomix (2011-2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов от DJ VJ Magrao (настоящее имя- Luis Eduardo), известного бразильского диджея.
+Magrao - один из пионеров видеомикс-направления.
+Отличительной чертой его миксов является присутствие юмора.
+Мегамикс - это видеосборник,составленный из небольших фрагментов клипов.(   Читать дальше...   )Жанр: Pop, Club, Dance, House, Video-MegamixПродолжительность: ~2011, V.10 - 01:09:13; 2012, V.11 - 01:29:54; 2012, V.12 - 00:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D6730DE5466DDC236D0B33C0BB2C498B4F818E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603800   (996648) от 16.01.2013
+
+Тина Тернер / Tina Turner video clips (2007) TVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличные клипы не стареющей Тины Тернер!01. Eros Ramazzotti feat. Tina Turner - Cose Della Vita (Cant stop thinking of you)
+02. Foreign Affair
+03. Golden Eye
+04. I Don`t Wanna Loose
+05. Let's Stay Together
+06. Look Me In The Heart
+07. Love Thing
+08. Nutbush City Limits
+09. On silent wings
+10. Private dancer 1(   Читать дальше...   )Жанр: Музыка, Rock, PopПродолжительность: 01:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58266E430B54423310326FF5154ED5BBFADD14EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604401   (995990) от 18.01.2013
+
+Лучшие клипы / The best videos of all time (Rock) H.264 (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ac Dc - Heatseeker
+02. Queen - We Are The Champions
+03. Ac Dc - T.N.T.
+04. Alice Cooper - Along Came A Spider(   Читать дальше...   )Жанр: Музыка, Rock, Glam rock, Hard rockПродолжительность: 02:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95AAA22B4811144D8911AD5E22BC06E7F182F8D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605384   (995809) от 19.01.2013
 
 Лучшие клипы / The best videos of all time (Country) H.264 (2012) DVDRip
@@ -628,84 +721,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEF6F6688CB660F7165FFE0575C5F6E6B81251BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610335   (990343) от 29.01.2013
-
-Tom Boxer feat. Antonia - Shake It Mama (2011) HDRemux [h.264,1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:380F156AF6B948AAA28F3860CCDADAA9DEB5CBC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610096   (990253) от 29.01.2013
-
-Avril Lavigne - What The Hell (2011) BDRip [h.264,1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A33350E750631491706C09F88B90D6E6398A9DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610082   (990225) от 29.01.2013
-
-Avril Lavigne - Alice (2010) BDRip [h.264,1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78642697EB3FDDEC279B1E2C2CC19DE951DD2B8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

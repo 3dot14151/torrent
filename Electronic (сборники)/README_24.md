@@ -1,3 +1,32 @@
+###  Публикация: 983565   (943866) от 06.02.2016
+
+VA - Jazzy Lounge, Vol.2 (2016) [MP3|320 кб/с] <Balearic, Downtempo, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943866.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Matt Lovers - Analogamente 04:28
+2. Mediterranean Soul - Imperat 03:52
+3. Fusion Dee - Blues In Mirror 04:18
+4. Second Groove - Load In Repetition 04:32(   Читать дальше...   )Жанр: Balearic, Downtempo, Lounge, ChilloutПродолжительность: 01:25:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3516C42D9BF586ECCBF08B8E9544ECA41B17AF93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363287   (943765) от 27.02.2020
 
 VA - EDM Immersion (2020) [MP3|320 Kbps] <Dance, Club, Techno, House>
@@ -716,35 +745,6 @@ VA - Trance Big World Audition (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E412825E880E7D5E8E95ED8E89B3EF4C7ABE0CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092094   (940301) от 11.01.2017
-
-VA - Sun Goes Down: Chillout Party (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940301.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Agent Juno - Sunstorm - Soundtrack Version
-002. Sansinena - Complicate
-003. Chiffre 100 - Jolly
-004. Lukas Termena - Feelings(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 11:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1D3DF2F6707906CC58BA86FCBFBC86CA672112F
 ```
 
 https://mybot314.ru/tekegram_catalog/

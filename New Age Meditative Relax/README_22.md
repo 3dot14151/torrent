@@ -1,3 +1,32 @@
+###  Публикация: 1179243   (351518) от 30.10.2017
+
+Steve Orchard - Theory of Communion (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Affirmation (3:15)
+02. Denials and Accusations (5:57)
+03. Touching Planet Earth (5:31)
+04. Blind Panic (4:43)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA702F9BD36A48AD6015337407C53498CBB2C5BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953497   (349436) от 04.11.2015
 
 Anima - Sacred Alliance (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
@@ -714,32 +743,6 @@ Wuauquikuna - XI Magic Of The Andes (2018) [MP3|320 Kbps] <Native american, Ethn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E28B3B077F85FE63E4EE42BA55CB1D0E929EAA4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 265016   (315727) от 01.12.2010
-
-VA - Ocean Music Love. Best Relax And Sex Music (2010) [MP3|128-256 kbps]<Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RelaxПродолжительность: 08:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B327FEEB3CB5E0963A8B1B52317E39ECC0D4E2E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

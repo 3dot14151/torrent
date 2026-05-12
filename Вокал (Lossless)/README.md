@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1867605   (1067698) от 02.05.2026
+
+Amici Forever - The Opera Band (2004) [FLAC|Lossless|image + .cue] <Classical, Pop>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067698.jpg" />
+</div>
+
+
+###  Подробнее
+
+1		Prayer In The Night 3:16
+2		Senza Catene (Unchained Melody) 3:47
+3		Canto Alla Vita 4:26
+4		Vita Mia	4:17(   Читать дальше...   )Жанр: Classical, PopПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F5D4E5930EDA84891A414494558DEB36D528275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 75657   (1042134) от 04.01.2021
 
 Сергей Рахманинов - Всенощное бдение (1986) Мелодия, Грамзапись [FLAC|Lossless|tracks] <Classical>
@@ -738,35 +767,6 @@ Anna Netrebko, Rolando Villazon, Thomas Hampson - Violetta. Arias And Duets From
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99BE35C7E3943570C1677B8D68F4437C2E34A66A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100406   (899355) от 04.02.2017
-
-De Monte - Laudate Dominum (Currende, Erik Van Nevel) (2001) [FLAC|Lossless|image + .cue] <Classical sacred>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Benedictio et claritas
-02. - Cirumdederunt me
-03. - Dulcis et rectus Dominus
-04. - Asperges me(   Читать дальше...   )Жанр: Classical sacredПродолжительность: 01:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0FAC6B7591E86A025D0953DA154AA25E9CE3EF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 1362860   (946399) от 25.02.2020
+
+Проекты - VideoHive - Audio Visualization // Music Producer Tool 3.0 - 24314482 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946399.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Audio Visualization // Music Producer Tool 3.0» - стильный элегантный проект для создания музыкальных подкастов.
+Это проект After Effects в первую очередь предназначен для музыкантов, которые хотят продвигать музыку в YouTube, Facebook, Instagram и других социальных сетях.
+Используя этот шаблон, вы можете визуализировать свой музыкальный трек и сделать его более (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6D56A9AC827BC2013365C0FFC5CE8BC51F36399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 751071   (945840) от 30.01.2014
+
+Проекты - VideoHive - High Tech Interface Project - 609140 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945840.jpg" />
+</div>
+
+
+###  Подробнее
+
+High Tech Interface Project - это эксклюзивный АЕ шаблон High Tech интерфейса для Вашего творчества.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27194A0FF80E9F08232511DC930A2387C327AF02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 751080   (945836) от 30.01.2014
 
 VideoHive - Hi-Tech Logo Reveal 02 - 4046296 [AEP]
@@ -634,58 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F77C6C559CC25D52F1D2E7BEDB596A48DDC91190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091479   (942808) от 09.01.2017
-
-Проекты - Pond5 - Parallax Scrolling [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания фото-видео слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D527FAB0CC29D767FA54A3C467D3D5E4D47296E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091584   (942804) от 09.01.2017
-
-Проекты - VideoHive - The Slideshow - 18378168 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942804.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Slideshow - это современный, динамичный и легкий в использовании многоцелевой шаблон.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CF541704C2BC3EC1C7F5F2FE0D740C30305CA89
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1090121   (947539) от 06.01.2017
+
+VA - Deep House + Kizomba (2017) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny Ramos - So Sick
+02. Monsieur De Shada - Swimming Pool Girl
+03. Liju - Meu Marido
+04. Jian Amari - Let's Chill(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:12:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D5F9AEBBE0D6BC9931E9C7974878A61C0CB458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090156   (947436) от 06.01.2017
 
 VA - Traxsource Top 200 Tracks of (2016) [MP3|320 Kbps] <House, Deep House, Tech House>
@@ -727,35 +756,6 @@ VA - Lucid Dreams: Mermaid Party (2016) [MP3|320 кб/с] <Electro, Club, Funky 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6D235CEFDE0B0B7F1621C5289F6D2C807BC54C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983565   (943866) от 06.02.2016
-
-VA - Jazzy Lounge, Vol.2 (2016) [MP3|320 кб/с] <Balearic, Downtempo, Lounge, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943866.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Matt Lovers - Analogamente 04:28
-2. Mediterranean Soul - Imperat 03:52
-3. Fusion Dee - Blues In Mirror 04:18
-4. Second Groove - Load In Repetition 04:32(   Читать дальше...   )Жанр: Balearic, Downtempo, Lounge, ChilloutПродолжительность: 01:25:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3516C42D9BF586ECCBF08B8E9544ECA41B17AF93
 ```
 
 https://mybot314.ru/tekegram_catalog/

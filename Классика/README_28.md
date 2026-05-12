@@ -1,3 +1,61 @@
+###  Публикация: 1153420   (557970) от 27.07.2017
+
+The Royal Philharmonic Orchestra - Plays Hits Of Phil Collins (1990) [FLAC|Lossless|image + .cue] <Classical Crossover, Instrumental>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Air Tonight (5:06)
+02. Groovy Kind Of Love (3:30)
+03. Easy Lover (4:40)
+04. Do You Remember (3:42)(   Читать дальше...   )Жанр: Classical Crossover, InstrumentalПродолжительность: 00:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4FF666CAF70B3F5F640BA47CD69AB86B94673E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305739   (555886) от 02.06.2019
+
+VA - Шедевры классической музыки в рок-обработке (Unknown) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hooked On America (4:07)
+02. Hooked On A Song (5:11)
+03. Hooked On Romance (6:42)
+04. Also Sprach Zarathustra (1:13)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 02:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66AE1C1CDCD4F3180BDDBD77422BD757B7571B80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305765   (555743) от 03.06.2019
 
 VA - Шедевры классической музыки в рок-обработке  том 2 (Unknown) [FLAC|Lossless|tracks + .cue] <Instrumental, Pop, Classical Crossover>
@@ -694,64 +752,6 @@ John Clerk of Penicuik (1676-1755)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D97D346204C87536C82986EF60283A4B323193A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 698356   (529926) от 08.09.2013
-
-Ludovico Einaudi - In a Time Lapse (2013) [FLAC|tracks + .cue]<Modern Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corale (2:05)
-02. Time Lapse (5:31)
-03. Life (4:22)
-04. Walk (3:27)(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 01:06:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D87240AD2C3AACA6295975DF96CF65F15D96A4DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927140   (529617) от 12.08.2015
-
-Paul Anthony Adams - Sonates au Clair De Lune (Moonlight Sonata) (2014) [MP3|320 кб/с]<Neo-Classical, New age>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beethoven - Moonlight Sonata
-02. Schubert - Serenade
-03. Mozart - Adigia from Piano Concerto #23 A major
-04. Elgar - Nimrod Adagio from Enigma variation(   Читать дальше...   )Жанр: Neo-Classical, New ageПродолжительность: 01:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1731D6A9CD6F4EB1D25BF4F8E05D62BCBABA7ED6
 ```
 
 https://mybot314.ru/tekegram_catalog/

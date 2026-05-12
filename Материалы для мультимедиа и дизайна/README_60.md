@@ -1,3 +1,109 @@
+###  Публикация: 1365173   (931492) от 06.03.2020
+
+3D модели - 3DDD - Wardrobe & Cabinets - 3D Models - 3dSkyPro - Volume 1 [Corona|V-Ray|*.max, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник моделей с сайта 3ddd/3dsky.
+Количество моделей: 50 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B8486E2E57C90C037D78A2B2B63E1E3AABBEF4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365177   (931483) от 06.03.2020
+
+3D модели - 3DDD - DECORATION SET - 3D Models - 3dskyPro - Volume 1 [Corona|V-Ray|*.max, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник моделей с сайта 3ddd/3dsky.
+Количество моделей: 99 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC44B142A8A2084031F60B792A085E9191AB80AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 194463   (931386) от 06.03.2020
+
+Футажи - Video3D - «Салюты» Fireworks 02RU  [MOV, AVI]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для создания привлекательных зрелищных эффектов, при монтаже свадебного фильма не обойтись от компьютерных спецэффектов с разнообразными салютами, фейерверками и световыми вспышками. Профессиональное звуковое сопровождение качественное исполнение видеороликов с альфа каналом, создадут праздничную атмосферу в Вашем фильме. В основном на дисках представлены завершённые (   Читать дальше...   )Формат: MOV, AVIРазрешение файлов: 720x576
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A82EE2822B55B800BA5CB93F04DDC2061CF598C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 754659   (931200) от 08.02.2014
+
+Сборник - Открытки на смотрины / Baby shower card [JPEG,PSD,EPS,AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Открытки на смотрины (обмывание ножек)Формат: JPEG,PSD,EPS,AIРазрешение файлов: 6000х6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDECF81EF2C7DC44E96DE50F24E85ECBA2847EFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 754537   (931133) от 08.02.2014
 
 Растровый клипарт - Анатомия человека,органы,вирусы / Human anatomy,viruses and internal [JPEG]
@@ -566,110 +672,6 @@ Organic juice maker - генератор сцен, который поможет
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EDC93395BEADCFAA3E9DB89FFFC24E3B06A15ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489544   (925287) от 16.08.2021
-
-3D модели - CGTrader - Scania P Crew Cab CP28 Chassis Truck 2017 [V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925287.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки Scania.Формат: V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63EAB77AF67A535034DF4DEE49F003C2048C850A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489556   (925223) от 16.08.2021
-
-3D модели - Hum3D - Skoda Superb (B6) Combi 2011 [V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925223.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки Skoda.Формат: V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3D2566BB6701B8421A75D6E892E08B9AE74855F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489567   (925221) от 16.08.2021
-
-3D модели - TurboSquid - Iveco EuroCargo Double Cab Chassis Truck 2008 - 1266903 [V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925221.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки IvecoФормат: V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:778B81914DCCDDA51D0CD642E56692A0D08376B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366145   (925205) от 10.03.2020
-
-Стили - GraphicRiver - Holographic Text Effects vol 3 - 24957031 [PSD, ASL]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тенденция голографического дизайна получила огромный успех на протяжении нескольких лет. Будьте модны с этими макетами в 2019 году! 10 блестящих голографических эффектов. Это простой способ представить свой текст, форму или логотип в классном стиле ретро.Формат: PSD, ASLРазрешение файлов: 2560×2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C8C911B111013F405AF2761FDA85204B16C722B
 ```
 
 https://mybot314.ru/tekegram_catalog/

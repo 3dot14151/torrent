@@ -1,3 +1,75 @@
+###  Публикация: 604241   (996423) от 17.01.2013
+
+Wolfgang Amadeus Mozart–The Violin Concertos Philharmonia Orchestra violin Thomas Zehetmair authentic 2CD 1990-1991 (2007)/[WavPack (iso.wv)|Lossless]<Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скрипач Томас Зехетмайр, играющий на романтическом «страдивари» старым смычком и на жильных струнах - бесподобен!
+К его виртуозности невозможно предъявить никаких претензий, а такого трепетного, лёгкого и летучего звука услышишь не часто...(   Читать дальше...   )Violin Concerto No.1 B-Dur KV.207 (1775)
+1. Allegro moderato [07:00]
+2. Adagio [07:20]
+3. Presto [05:17]
+Violin Concerto No.2 D-Dur KV.211 (1775)
+4. Allegro moderato [08:01]
+5. Andante [05:51]
+6. Rondeau: Allegro [04:04]
+Violin Concerto No.3 G-Dur KV.216 (1775)
+7. Allegro [08:30](   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E337B239590ACED6D0309A2707EA614F2A1502D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604680   (996129) от 18.01.2013
+
+VA-Charles Ives Symphony No 4 and No 2 (1999) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Орманди обладал очень хорошей памятью и быстро запоминал все сочинения непосредственно по партитуре. Обычно при дирижировании он не пользовался ни палочкой, ни нотами. Звучание оркестра под его управлением отличалось чувственностью и точностью исполнения...
+(   Читать дальше...   )Symphony No 4 
+1. Prelude - Maestoso    [03:16]
+2. Allegretto    [11:24]
+3. Fugue - Andante moderato    [09:21]
+4. Largo maestosao    [09:01]
+
+
+Symphony No 2 
+5. Andante moderato    [05:52]
+6. Allegro    [13:27](   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1363B3AE3F107AEF13E3D6D342CA32623B4046
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604651   (996061) от 18.01.2013
 
 Telemann, Albinoni, J.S. Bach, J-J. Mouret, Handel, Yon - Music for Trumpet and Organ: Festive Music (1999)/2003 Naxos [WavPack (iso.wv)|Lossless]<Chamber>
@@ -789,66 +861,6 @@ VA - Лунный Свет (2002) [FLAC|Lossless]<Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D6F3438D416EBF6CC04440C554CC129BCF3D909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614154   (980872) от 05.02.2013
-
-Антонио Вивальди - Времена года (2002) [FLAC|Lossless]<Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Весна
-02. Лето
-03. Осень
-04. Зима
-
-Исполняет Английский камерный оркестр под управлением Леонарда СлаткинаЖанр: ClassicalПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BAA694A337D1B89A25A7117524930D11B4155F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973590   (978946) от 09.01.2016
-
-Chopin - The Nocturnes (Maria Joao Pires)(2CDs) (1996) [FLAC|Lossless|image + .cue] <Classical, Recitals, Romantic Period, Chamber Music, Nocturne>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nocturne No. 11 in G minor, Op. 37 - I - Andante sostenuto (05:47)
-02. Nocturne No. 12 in G Major, Op. 37 - II - Andantino (05:57)
-03. Nocturne No. 13 in C minor, Op. 48 - I - Lento (06:45)
-04. Nocturne No. 14 in F sharp minor, Op. 48 - II - Andantino (07:18)(   Читать дальше...   )Жанр: Classical, Recitals, Romantic Period, Chamber Music, NocturneПродолжительность: 01:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A6CF46D8BC7009B7DF0CF1528A67B0AC2274CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

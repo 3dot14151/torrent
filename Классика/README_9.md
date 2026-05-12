@@ -1,3 +1,61 @@
+###  Публикация: 995042   (887778) от 09.03.2016
+
+Fabio Biondi, Europa Galante - Vivaldi - La Stravaganza (2011) [MP3|320 кб/с] <Classical, Concerto>
+
+>>Классика
+>>Концерты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concerto RV 383a - I. Allegro 02:42
+02. Concerto RV 383a - II. Largo e cantabile 01:56
+03. Concerto RV 383a - III. Allegro 02:36
+04. Concerto RV 279 - I. Allegro 04:14(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:765DDF97F07BF92F41313A20E4EC56B4365E264B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994874   (887421) от 09.03.2016
+
+И. С. Бах (J. S. Bach) - Полное собрание произведений (Hanssler 172 CD) (2000) [MP3|320 кб/с] <Classical>
+
+>>Классика
+>>Полные собрания сочинений
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Die Kompletten Werke, Volume 1 (4001-2): Kantaten, BWV 1-10, 12, 13 (feat. conductor: Helmuth Rilling)
+
+01. Kantate, BWV 1 'Wie schön leuchtet der Morgenstern': I. Coro 'Wie schön leuchtet der Morgenstern'
+02. Kantate, BWV 1 'Wie schön leuchtet der Morgenstern': II. Recitativo (Tenore) 'Du wahrer Gottes und Marien Sohn'Жанр: ClassicalПродолжительность: 178:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27600329A839B303F908AAC1BC34C2C593082741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995241   (886364) от 10.03.2016
 
 Library Tapes - Escapism (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, InstrumentaI>
@@ -680,64 +738,6 @@ Piano Concerto No. 1 in D minor Op. 15:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D4AF9207049AD0CF200787419BB753D8710DD7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996796   (877420) от 15.03.2016
-
-Telemann - A Fagotto Solo (2010) [FLAC|Lossless|tracks] <Classical, Chamber Music>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I. Andante  03:16
-02. II. Vivace  04:05
-03. III. Largo  03:33
-04. IV. Allegro  04:29(   Читать дальше...   )Жанр: Classical, Chamber MusicПродолжительность: 01:12:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC0321CD6588DED8521D7DDEDB35F50798B69795
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997016   (877412) от 15.03.2016
-
-Rudolf Innig - Nowowiejski - Complete Organ Symphonies (1998) 3CD [FLAC|Lossless|tracks] <Classical, Keyboard>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прoдолжительность: 01:08:32
-
-01. Preludio Festivo  08:32
-02. Intermezzo, Allegretto  03:56(   Читать дальше...   )Жанр: Classical, KeyboardПродолжительность: 03:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D1039EF445822BD9A5C07EBD1F57A512C49FADF
 ```
 
 https://mybot314.ru/tekegram_catalog/

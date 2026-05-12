@@ -1,3 +1,56 @@
+###  Публикация: 839875   (339537) от 10.11.2014
+
+VideoHive - Top Of The Town - 41898 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Top Of The Town проект для создания трейлера к фильмуФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB0F4FB93B26C75BE7897FB1A946DE57557EC647
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954767   (339474) от 08.11.2015
+
+Проекты - VideoHive - Paper Planes [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для эффектного представления вашего логотипа.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F22B5D81ADC7D91F050F393E8AF30C5D41A2980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954712   (339471) от 08.11.2015
 
 Проекты - VideoHive - Logo Slices [AEP]
@@ -631,60 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E24C689D8332091D0E9023FC081F491B564A151B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955026   (336792) от 09.11.2015
-
-Проекты - Motion Array - Parallax Intro [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания эффектного слайдшоу из ваших изображений.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:505AEB4765DCB693B3F559A976856F636311DB6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955051   (336786) от 09.11.2015
-
-Проекты - VideoHive - Promotion Website / App [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания промо-видео вашего сайта или приложения.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C444C2A67F5CF44CF38E316B4B5E87108E2BE1E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

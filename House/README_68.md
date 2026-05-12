@@ -1,3 +1,67 @@
+###  Публикация: 586999   (224468) от 10.12.2012
+
+VA - Milano Fashion Nights: House Music Compilation (2012) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Carbonero - Magnus
+02. Roberto Carbonero - Woman in Love - Stefano Albane
+03. Phreo - Passion
+04. Luca La Greca - Deep Breath
+05. Moreno Pezzolato - Word - Marcelo Tag Remix
+06. Lovework - Lady Deep - Main Mix
+07. Pavel Sheemano - Cow
+08. Alene Barret - You Come in the Night - Deep M
+09. Manuel Battista - What You Want
+10. Roberto Carbonero - Ellen(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A805FB7862434F40A399CEEB32D8FF17C8DB4A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585345   (222601) от 21.10.2022
+
+VA - ADE Highlights (2022) CD, Compilation [MP3|320 Kbps] <Melodic House & Techno, Deep Progressive, Electronica>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jero Nougues, Butterflies on Mars - Hold On (Rework)
+02. Guy Augustin - Odyssey (Original Mix)
+03. Xiasou, Hernan Torres - Bring Me Fire (Original Mix)
+04. Kenshi Kamaro - Mad Max (Original Mix)(   Читать дальше...   )Жанр: Melodic House & Techno, Deep Progressive, ElectronicaПродолжительность: 02:23:52 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A5A1DEF99D20D1D6AF641ED05E31D2A13904981
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342792   (222524) от 03.12.2019
 
 VA - Crossfit 2019 - Best Cross Fit Workout Music - Motivation Gym Music Mix (2019) [MP3|320 Kbps] <Future House, Dance>
@@ -687,64 +751,6 @@ VA - Ibiza Summer 2023: The Sounds Of The Island (2023) [MP3|320 Kbps] <Dance, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7328112FB0EF188437D8626669C13893BA7710B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638557   (211896) от 09.06.2023
-
-Chicane - Nevertheless (2023) [MP3|320 Kbps] <House, Progressive House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane - In One Ear & Out The Other (Extended Mix) [5:27]
-02. Chicane feat. Paul Aiden - Nevertheless (Extended Mix) [5:31]
-03. Chicane feat. The Mannequin - All This Time Alone (Extended Mix) [3:44]
-04. Chicane - LouBeeLou (Extended Mix) [5:04](   Читать дальше...   )Жанр: House, Progressive House, ElectronicПродолжительность: 01:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8DD8FB9EBA71326E9794A1C83E46D2A23B36FB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639114   (211830) от 11.06.2023
-
-VA - Summer 2023: Best Of Deep House (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dani Corbalan - Broken (Extended Mix) [5:05]
-02. Real Nam - All My Life (Extended Mix) [2:38]
-03. D.J. Mirko B. - Sun Freezes Cold (Extended Mix) [3:37]
-04. Deep Emotion - I Know You Want It (Extended Mix) [4:07](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC9F902EA80360578B1306C063A334E8315EAAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

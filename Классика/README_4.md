@@ -1,3 +1,63 @@
+###  Публикация: 169715   (962396) от 28.01.2010
+
+Трио Сергея Жилина - П.И.Чайковский In Jazz - Времена Года (2005) [MP3|320 kbps]<Classical crossover, Jazz>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962396.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Декабрь	07:01
+2. У камелька	05:17
+3. Баркарола	11:05
+4. Осенняя песнь	07:47(   Читать дальше...   )Жанр: Classical crossover, JazzПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978951   (962094) от 24.01.2016
+
+Stravinsky - The Rite Of Spring / Mahler - Symphony No.1 (2014) [FLAC 2.0|48.0/24|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Композитор: Igor Stravinsky,  Gustav Mahler
+Дирижер: Zubin Mehta
+Оркестр / Ансамбль: Australian World OrchestraThe Rite Of Spring
+01. The Rite of Spring: Part 1, "The Adoration of the Earth" (16:43)
+02. The Rite of Spring: Part 2, "The Sacrifice" (18:54)
+Symphony No.1(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:35:37 - 01:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:887DA99D08E78894AE62BBA0A67E28B0FCC5E9FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978058   (961955) от 24.01.2016
 
 Lev Oborin, David Oistrakh, Svyatoslav Knushevitckiy - Beethoven - Piano Trio in C minor, Triple Concerto (2011) [FLAC|Lossles|tracks + .cue] Classical, Classicism
@@ -690,61 +750,6 @@ Erik Satie performed by Pascal Rogé - 3 Gymnopédies & Other Piano Works (1984)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8A9407E2B376920E5EC95328694855A1FC2FCFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625310   (945651) от 04.03.2013
-
-W.A. Mozart - Missae Breves k.49, 65, 194 & 220: Nikolaus Harnoncourt, Concentus Musicus Wien & Arnold Schoenberg Chor (1998) [FLAC|Lossless]<Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicalПродолжительность: 01:08:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC59A871D18D728803622414B55D6B4BCA000808
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091112   (944393) от 08.01.2017
-
-Enrico Caruso - Grand Collection (2006) [FLAC|Lossless|tracks + .cue] <Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mattinata (Leoncavallo)
-02. Libiamo,libiamo (Verdi)
-03. La danza (Rossini)
-04. O sole mio (Capua)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:12:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF94C9CCC49D17AEC61C178F416A3DFB5C5F1D8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

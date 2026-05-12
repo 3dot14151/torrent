@@ -1,3 +1,35 @@
+###  Публикация: 735043   (228049) от 18.12.2013
+
+Tsugumi - 3 альбома (2012-2013) [FLAC|Lossless] <Touhou, Vocal, Doujin Ongaku, J-Rock>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228049.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:14] 01. リボン - 暗闇に甘い鍵
+[04:05] 02. 珠梨 - Prayer
+[04:18] 03. Cutie Pai まゆちゃん - Clap Line
+[05:19] 04. リボン - 初恋
+[05:26] 05. 珠梨 - stella
+[04:46] 06. ぽらぽら。 - 暗闇の地底
+[04:04] 07. 珠梨 - Mystic WhiteЖанр: Touhou, Vocal, Doujin Ongaku, J-RockПродолжительность: 00:00:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40AE14A257B87D88A6C432F70C1C42E4B6C034F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 735061   (227453) от 19.12.2013
 
 Stygian Riverside - 6 альбомов (2008-2011) [FLAC|Lossless] <Touhou, Vocal, Instrumental, Doujin Ongaku, J-Metal>
@@ -722,35 +754,6 @@ Chaos Control - The Legacy Within (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B222CDF4528A81637693F731EB3E665C55FB817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592194   (184466) от 21.11.2022
-
-Illusion Force - The World Soul (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal, Power Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eastern Wisdom
-02. Machination Utopia
-03. The Coming Tragedy
-04. The Force Of Illusion(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Power MetalПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43651A2E0C86E5753171764419D859A15886B942
 ```
 
 https://mybot314.ru/tekegram_catalog/

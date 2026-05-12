@@ -1,23 +1,25 @@
-###  Публикация: 1186900   (284588) от 26.11.2017
+###  Публикация: 1263335   (286545) от 20.11.2018
 
-Орел и решка. Рай и ад-2 (2017.11.26) WEB-DL [H.264/720p-LQ] (сезон 15: Сан-Сальвадор. Сальвадор)
+Antiquus Scriptum - Abi In Malam Pestem / In Pulverem Reverteris (2002) [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
 
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286545.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Команда проекта продолжит свои "райско-адские" путешествия по миру, но во второй части "Рая и ада" зрителей ждут изменения.
-Во-первых, немного поменяется концепция: теперь прекрасное и ужасное будут искать в каждом исследуемом городе. Во-вторых, в 15-м сезоне вместо ушедшей в отпуск Леси Никитюк путешествовать с Региной Тодоренко будет новый ведущий. (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:45:56
+Abi In Malam Pestem:
+01. Principium: Cosmogony - The Creation
+02. Eine such nach wissen
+03. Abi in malam pestem(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:57:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8497AD56C74422AD660FF6FB389C582EFFC44A8
+magnet:?xt=urn:btih:189EA0E71242193AD4DE766F93079D9BC0027FA4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335789   (284587) от 04.11.2019
+###  Публикация: 1263774   (286544) от 20.11.2018
 
-Shapednoise - Aesthesis (2019) Numbers [FLAC|Lossless|WEB-DL|tracks] <Experimental, Bass, Noise, Industrial>
+Конькобежный спорт. Кубок мира 2018-2019. 1-й Этап. Обихиро (Япония). 2-й День Соревнований (17.11.2018) WEB-DL [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intriguing (In The End) (feat. Mhysa) (02:47)
- 02. Blaze (feat. Justin K Broadrick) (04:47)
- 03. Elevation (03:04)
- 04. Rayleigh Scattering (04:03)(   Читать дальше...   )Жанр: Experimental, Bass, Noise, IndustrialПродолжительность: 00:35:49
+Кубок мира по конькобежному спорту 2018/2019 (ISU World Cup Speed Skating 2018-2019) — серия этапов соревнований по конькобежному спорту.
+1-й Этап. Обихиро (Япония)
+2-й день соревнований:
+1. Женщины - 500 м 2-й забег(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:44:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC6C31D78BA703B47213974E6A0896CDE72965AD
+magnet:?xt=urn:btih:BE431786D7115EA89C1F3795D0D503BDA09EEBE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,28 +56,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080935   (284586) от 09.12.2016
+###  Публикация: 1263342   (286543) от 20.11.2018
 
-Lay Your Ghost - A Darker Love (2016) [MP3|320 Kbps] <Synthpop>
+Kong - Push Comes to Shove (1995) [FLAC|Lossless|image + .cue] <Instrumental Progressive Experimental Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Results (4:44)
+02. Arabloop (5:07)
+03. Hoover (7:26)
+04. Ditch (5:27)(   Читать дальше...   )Жанр: Instrumental Progressive Experimental MetalПродолжительность: 00:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E48F306242FE823CBB2B7050DA5315D01C805C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263689   (286542) от 20.11.2018
+
+Kiyoshi Sugimoto Quartet - Country Dream (1969) 2007, Columbia Music Entertainment [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Country Dream [8:26]
+02. Step Ahead [11:39]
+03. The Apple [7:02]
+04. Limited Space [4:14](   Читать дальше...   )Жанр: Jazz Fusion, Guitar JazzПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68123DBA357C33FED730308B9E5A22202E7A7B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263416   (286541) от 20.11.2018
+
+Футбол. Лига Наций УЕФА 2018-2019. Лига B. Группа 2. 5-й тур. Турция — Швеция (17.11.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286541.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Darker Love
-02. Das Ende
-03. Death Of Me
-04. Holy Ghost(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:22:12
+17 ноября 2018 года, суббота. 20:00 МСК
+Лига Наций УЕФА 2018-2019. Групповой турнир
+Лига B. Группа 2. 5-й тур.
+Турция — Швеция(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:41:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8767897696F7472F9017FB1E7AD8D5A358393A03
+magnet:?xt=urn:btih:0D5E06F2DB3731E0D77FD3D87D92DB91E1333CB9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -83,25 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186563   (284584) от 26.11.2017
+###  Публикация: 1263339   (286540) от 20.11.2018
 
-А. М. Алексеев и др. (ред.) | Экономика капиталистических стран после второй мировой войны. Статистический сборник (1953) [PDF]
+Gordian Knot - Gordian Knot (1998) Japan [FLAC|Lossless|image + .cue] <Progressive Metal>
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Статистический сборник «Экономика капиталистических стран после второй мировой войны» содержит систематизированный и обобщенный цифровой материал, иллюстрирующий основные процессы, происходящие в экономике современного капитализма, и важнейшие изменения в ней, происшедшие после второй мировой войны. В сборнике приведены сведения о населении и территории капиталистических (   Читать дальше...   )Жанр: История, политология, экономика, статистикаФормат: PDF
+01. Galois (2:05)
+02. Code / Anticode (6:44)
+03. Reflections (6:49)
+04. Megrez (4:00)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:03:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9093009B04B0FB0FF71157D737D7A1190B5F1A1E
+magnet:?xt=urn:btih:79451F9E1238F1AF93C0FEE8ED08F0879EE751CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -109,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335867   (284583) от 04.11.2019
+###  Публикация: 1263765   (286539) от 20.11.2018
 
-Lucio Lasorte Show - Mascherata (1979) LP [MP3|320 Kbps] <Funk Soul, Disco, Chanson>
+Конькобежный спорт. Кубок мира 2018-2019. 1-й Этап. Обихиро (Япония). 1-й День Соревнований (16.11.2018) WEB-DL [H.264/720p-LQ]
 
->>Pop
->>Зарубежная поп-музыка
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286539.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mascherata (3:14)
-02. Orfeo Negro (4:34)
-03. Les Feuilles Mortes (4:35)
-04. More (Theme From Mondo Cane) (4:45)(   Читать дальше...   )Жанр: Funk Soul, Disco, ChansonПродолжительность: 00:42:00
+Кубок мира по конькобежному спорту 2018/2019 (ISU World Cup Speed Skating 2018-2019) — серия этапов соревнований по конькобежному спорту.
+1-й Этап. Обихиро (Япония)
+1-й день соревнований:
+1. Женщины - Командная гонка преследования(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:09:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F968848C4EB0689F3BB302DF672ECD752FE6783
+magnet:?xt=urn:btih:1A23C5C574AC7058BB20A2F47234B9386655A7EA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -138,83 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 849108   (284582) от 11.12.2014
+###  Публикация: 1263640   (286538) от 20.11.2018
 
-Бернар Вербер | Микролюди (2014) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Третье человечество».
-
-Дэвид Уэллс и Аврора Каммерер создали новое человечество, которое могло бы принять от нас эстафету.
-После «Третьего Человечества», «Микролюди» продолжают сагу о маленьких людях, которые хотят жить так же, как мы все, но вынуждены сражаться за самые элементарные права.(   Читать дальше...   )Жанр: Научная фантастика, Социальная фантастикаПеревод: Н. Цветкова, Н. ЕгороваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA5789671FCE35436DA79039F7F99B476B375474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186910   (284581) от 26.11.2017
-
-Растровый клипарт - Tubes #67 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт Tubes для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 120x594-1089x1210
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F4674086173E31199ABFE8BA95A4159A7EA8462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335943   (284580) от 04.11.2019
-
-Aly & Fila - Live @ SHINE Ibiza Closing Party, Eden Ibiza, Spain 2019-09-19 [MP3|320 Kbps] <Trance>
+VA - 3xA Mixed Series VI (2018) [FLAC|Lossless|WEB-DL|tracks] <House>
 
 >>Electronic
->>Radioshow, Live Mixes
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286538.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Robot Koch ft. Delhia De Frace - Reach (Monkey Safari Remix)
-02. ID-ID
-03. Guy Mantzur & Khen - Where Is Home
-04. Hot Since 82 ft. Alex Mills - Vapours(   Читать дальше...   )Жанр: TranceПродолжительность: 02:56:21
+01. Dr. Alfred - Cygnus (Th Moy Remix)                              [07:59]
+02. Experimental Feelings and Joy - Run (Christian Monique Remix)   [10:04]
+03. Dziathy - Festiv4l (Mendexx Remix)                              [07:36]
+04. Kade B - Shemyaza (PushnBall Remix)                             [07:40](   Читать дальше...   )Жанр: HouseПродолжительность: 04:53:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9164C11ADEE0B6A64B704EAC66E53530D96B444A
+magnet:?xt=urn:btih:65E2E70F1714243635F3E957824BE89A97702553
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -222,28 +230,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186875   (284579) от 26.11.2017
+###  Публикация: 423329   (286532) от 15.12.2011
 
-Ali McGuirk - Slow Burn (2017) [MP3|320 Kbps] <Blues, R&B, Soul>
+Журнал | Авторевю №23 (декабрь) [2011] [PDF]
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286532.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Calling  (04:39) 
-02. I Can't  (02:40) 
-03. Long Time  (04:15) 
-04. Don't Have To  (03:52) (   Читать дальше...   )Жанр: Blues, R&B, SoulПродолжительность: 00:45:21
+Издание «Авторевю» рассказывает о новинках автомобильного рынка. Самые свежие новости, самые новые автомобили, все это и многое другое можно найти на страницах "Авторевю".Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95ACB439E7A0F7103BE70AF8719759AA6B96C956
+magnet:?xt=urn:btih:E113EFE56EDADBDE95B03269393BFE0E8BB047E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -251,28 +256,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335827   (284577) от 04.11.2019
+###  Публикация: 1186509   (286521) от 25.11.2017
 
-Ray Charles - Cocktail Hour 1940-e - 1950-e (2000) 2CD, Allegro [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Alex Riel - Rielatin' (2000) Stunt Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286521.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Ain't That Fine [2:18]
-02. Hey Now [2:20]
-03. What Have I Done? [2:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:17:44
+01. Did You Call Her Today [07:00]
+02. Bessie's Blues [11:34]
+03. Committed [07:39]
+04. Dexterity [08:22](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B7F9B1A321BBAF10BE29BC1A241A78042F1A943
+magnet:?xt=urn:btih:BBC2CCC0F69B040263C8BDCAD2E4DCE85F0B0C29
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -280,28 +285,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335955   (284576) от 04.11.2019
+###  Публикация: 1186523   (286519) от 25.11.2017
 
-VA - Take Five: Great Jazz Instrumentals (2017) [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Cool>
+Бобслей. Кубок мира 2017-2018. 2-й Этап. Парк-Сити (США). Мужчины. Четверки (18.11.2017) WEB-DL [H.264/1080p-LQ] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286519.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 ноября 2017 года, воскресенье. 02:00 МСК
+Бобслей. Кубок мира 2017-2018. 2-й Этап. Парк-Сити (США)
+Мужчины. Четверки. 1-я и 2-я попытка
+Стадион: Олимпийский парк Юты (Парк-Сити, США)Телекомпания: IBSF TVЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F52237AA8017FFF3B81F5BFD1D7E6E2BEDF59F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186511   (286517) от 25.11.2017
+
+Kyoto Jazz Sextet - Unity (2017) Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286517.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dave Brubeck Quartet - Take Five (5:27)
-02. Art Blakey & The Jazz Messengers - Blues March (6:12)
-03. Miles Davis Quartet - My Funny Valentine (6:01)
-04. Ben Webster & Oscar Peterson - Bye Bye Blackbird (6:46)(   Читать дальше...   )Жанр: Bop, Hard Bop, CoolПродолжительность: 01:14:26
+01. Peaceful Wind [07:24]
+02. Song for Unity (feat. Tomoki Sanders) [13:02]
+03. Mission [06:47]
+04. Ancient Future [10:22](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:08:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8DC653724FF4674B969F1EAF0C0D2A9B4A87E37
+magnet:?xt=urn:btih:82E46307CD5976DC60278861C025D29243639BD2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -309,300 +343,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186691   (284574) от 26.11.2017
+###  Публикация: 1186328   (286514) от 25.11.2017
 
-Журнал | Сваты на кухне №11 (37) (ноябрь 2017) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284574.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Сваты на кухне" - журнал, в котором своими любимыми рецептами делятся читатели. В каждом номере более 200 кулинарных и околокухонных советов, «вкусные» премудрости, праздничные, экономные и быстрые рецепты. Читатели получат множество кулинарных советов, которые смогут тут же применить на практике; разнообразят свое домашнее меню с помощью рецептов-помощников, (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C00F16C0CB102F2901185AE6DA79ACA64BDA94A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335911   (284573) от 04.11.2019
-
-Vivaldi 2.9.1705.38 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B86E945BC6C96D9110EDF7BD18BE67FBAD1DD549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186879   (284570) от 26.11.2017
-
-VA - Deep House Collection vol.146 (2017) [MP3|320 Kbps] <House, Indie Dance, Jackin House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.!Sooks - The Kitchen Will Dub (Phasen Remix)
-02.Achilles & One - Alive (Pete Herbert Remix)
-03.Albert Marzinotto & Jerique - Trying To Love Me (Original Mix)
-04.Alok - Big Jetplane (Capital People Remix)(   Читать дальше...   )Жанр: House, Indie Dance, Jackin HouseПродолжительность: 14:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACDE1B6F098F9FEBAFC690C9329468D4D54A5647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186754   (284568) от 26.11.2017
-
-VA - Record Super Chart #513 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Malaa  -  Notorious 3:58
-02.  Martin Garrix, Matisse & Sadko  -  Forever 4:40
-03.  Tiesto feat. Vassy  -  Faster Than A Bullet 3:56
-04.  CamelPhat & Elderbrook  -  Cola (Denis First Remix) 2:30(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4B1A9EAFF048E670AB40DB195B821C874A3A033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186593   (284567) от 26.11.2017
-
-П. А. Аршинов | История махновского движения [1918-1921 гг.] (1923) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284567.jpg" />
-</div>
-
-
-###  Подробнее
-
-История махновского движения, написанная по горячим следам, одним из сподвижников Нестора Ивановича. Автор впервые и наиболее полно осветил и теоретически обосновал махновское движение. Автор соединял в себе постоянного участника движения и обладателя богатой сокровищницы материалов; результатом явился труд о сущности махновского движения, о его идеологии и органических (   Читать дальше...   )Жанр: История, политологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAA8AC801A414A72F6AE13AE0793D0971DBF9217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186690   (284565) от 26.11.2017
-
-Журнал | Золотые рецепты наших читателей №22 (200) (ноябрь 2017) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярное кулинарное издание, созданное исключительно на основе писем читателей — профессиональных поваров, кондитеров и домашних кулинаров. Все рецепты подкреплены качественными фотографиями блюд и их авторов, что позволяет заранее оценить конечный результат. Часть рецептов опробована на редакционной кухне. Важно, что для публикации редакция отбирает простые, доступные (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E4D6ECF5CC12374F2767895FF655A87656F7C04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335801   (284564) от 04.11.2019
-
-The Intergalactic Orchestra - Super Nova (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Star Probe Navigator (4:49)
-02. Time Slip (8:16)
-03. Talk Down (5:32)
-04. Endless Journey (4:45)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FCF1A54832DA7A4F231D4837F887ECDD1049B67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186907   (284563) от 26.11.2017
-
-Растровый клипарт - Tubes #66 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт Tubes для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 94x394-1195x1400
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A60C81C12B47920AD5FEE1C750C5D7AB3C0E3AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186676   (284562) от 26.11.2017
-
-Формула 1. Гран-при Абу-Даби 2017. 20-й Этап. Квалификация (25.11.2017) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284562.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ноябре на острове Яс проходит последний этап чемпионата мира по автогонкам Формулы-1. Даже если ты не поклонник подобных развлечений, на таком мероприятии стоит побывать хотя бы раз в жизни.
-От всех остальных трасс Марина Яс отличается в первую очередь самым протяжённым прямым участком. Часть трассы проходит рядом с побережьем, поэтому наблюдать за гонкой можно (   Читать дальше...   )Телекомпания: Россия, Матч HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: Русские (Вшитые, отключаемые)Продолжительность: 00:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68BA0EC8458695D0E7E8C96716EABD5E00A8458C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186580   (284561) от 26.11.2017
-
-В. В. Маяковский | Мое открытие Америки (1926) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284561.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 июня 1925 года на трансатлантическом корабле «Эспань» Маяковский отбыл из порта Сент-Назер (Франция) в Мексику. Морское путешествие закончилось 8 июля в мексиканском порту Вера-Круц. После недолгого пребывания в Мексике поэт отправился на границу с США, где ему удалось получить американскую туристическую визу на 6 месяцев под залог в 500 долларов.
-
-Хотя со времени (   Читать дальше...   )Жанр: История, политология, культурология, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B94C9636D187630A955B64E9AE30E0CCB646EB99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186815   (284560) от 26.11.2017
-
-King King - Exile & Grace (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Marcus Printup - Nocturnal Traces (1998) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286514.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. (She Don't) Gimme No Lovin'  (03:56) 
-02. Heed the Warning  (04:13) 
-03. Broken  (04:42) 
-04. Find Your Way Home  (04:28) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:19
+01. Woody's Beat [07:17]
+02. Have You Met Miss Jones? [05:56]
+03. Shertzing Along [06:08]
+04. Body & Soul [05:20](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:59:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39DD19D25042330679CF9AB1358E80F2400D433D
+magnet:?xt=urn:btih:D212E96897C076F38163E54DAC7EBB1B32888D1E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -610,53 +372,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186802   (284559) от 26.11.2017
+###  Публикация: 1186491   (286513) от 25.11.2017
 
-Международная пилорама (2017.11.25) SATRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284559.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Международная пилорама» сэкономит время телезрителей. Следить за политической обстановкой в мире, колебаниями курсов валют и новостями шоу-бизнеса теперь вовсе не обязательно. Каждую субботу Тигран Эдмондович в свойственной ему язвительной манере будет разбирать события мировой политики. Под огонь его едких комментариев попадут многие — от журналистов до политических (   Читать дальше...   )Производство: НТВЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 00:36:23Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB78A16A4EEA15A77580F28492CE0CB925D8E808
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335839   (284558) от 04.11.2019
-
-Хоккей. НХЛ 2019-2020. Калгари Флэймз - Вашингтон Кэпиталз (03.11.2019) WEB-DL [H.264/720p-LQ] [hand made 60fps] [ENG]
+Фигурное катание. Гран-при 2017-2018. 5-й Этап. Интернешнл де Франс 2017. Гренобль (Франция). Показательные выступления (19.11.2017) HDTV [H.264/1080i-LQ]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286513.jpg" />
 </div>
 
 
 ###  Подробнее
 
-04 ноября 2019 года, понедельник 03:00 МСК
-Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100 % при вместимости 18 506)
-Главный судья: Тревор Хансон (Канада); Главный судья: Горд Дуайер (Галифакс, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:50:04
+19 ноября 2017 года, воскресенье
+Серия Гран-при по фигурному катанию сезона 2017-2018.
+«Internationaux de France 2017» — 5-й Этап. Гренобль (Франция)
+Показательные выступления(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: Церемония, Спорт, ШоуЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:13:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46358080133C37E62A15E568720D3223DBDD6D81
+magnet:?xt=urn:btih:D0FA832088B251CB50A391CD85A35C293A5A78A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,28 +401,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335977   (284557) от 04.11.2019
+###  Публикация: 1186507   (286512) от 25.11.2017
 
-Blush Response - Fissures In The Megastructure (2019) Schematic Music Company [FLAC|Lossless|WEB-DL|tracks] <Industrial, Techno>
+Dave Brubeck - Blue Rondo A La Turk (1982) 2005, Delta Music [FLAC|Lossless|tracks + .cue] <Cool>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286512.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Compound Dynamic Particles (06:09)
- 02. Worshipping The Cybernetic Godhead (05:33)
- 03. Convert Hostile Elements Into Willing Servants (06:46)
- 04. Fissures In The Megastructure (05:49)(   Читать дальше...   )Жанр: Industrial, TechnoПродолжительность: 01:00:30
+01. Tritonis [07:37]
+02. Koto Song [09:47]
+03. Improvisation [06:01]
+04. Big Bad Basie [05:04](   Читать дальше...   )Жанр: CoolПродолжительность: 00:53:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F945A2E3AAE422BEEDFE77B54F3AB95C948F311F
+magnet:?xt=urn:btih:169B5385B7E7353D4EC8A4F07075738AEA22E3E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -693,28 +430,313 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335916   (284556) от 04.11.2019
+###  Публикация: 1186169   (286511) от 25.11.2017
 
-VA - Uplifting Trance 2020 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
+Футбол. Лига Чемпионов УЕФА 2017-2018. Группа E. 5-й тур. Спартак М (Россия) – Марибор (Словения) (21.11.2017) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286511.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 ноября 2017 года, вторник. 20:00 МСК
+Лига Чемпионов УЕФА 2017-2018. Групповой турнир
+Группа E. 5-й тур.
+Спартак (Москва, Россия) – Марибор (Марибор, Словения)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B4E0E70DFE7FAFC62DD522188D767F6472625EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186506   (286510) от 25.11.2017
+
+Lester Young Trio with Nat King Cole and Buddy Rich (1943, 1944, 1946) 1994, Verve [FLAC|Lossless|image + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back to the Land [03:55]
+02. I Cover the WaterfrontЖанр: SwingПродолжительность: 01:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639E26889FD1A8FD5D81D943B47B36DFAD13CB5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 848987   (286505) от 10.12.2014
+
+Wizard Barristers: Benmashi Cecil / Маги в законе [2014, TV, 12 ep] BDRip Hi10p 720p Raw+Rus
+
+>>Архив торрентов
+>>Архив Аниме
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286505.jpg" />
+</div>
+
+
+###  Подробнее
+
+В очередном параллельном мире магия давно стала нормой жизни, но ее носителей, называемых также «вудами», никто не освобождал от ответственности. Отношение к магии в обществе враждебное, за соблюдением правил строго следит Магический Трибунал, а раз есть судьи, то должны быть и защитники. И вот в 2018 году в известную токийскую адвокатскую фирму «Бабочка» поступает на стажировку 17-летняя Сесиль Судо, юный гений магии и юриспруденции. Народ в конторе работает опытный и тертый, прокуроры и конкуренты не раз намекали, (   Читать дальше...   )Жанр: приключения, комедияРежиссер: Умэцу ЯсуомиПеревод: GMCФормат: MKV |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5846D6B6AA2FE783E3CAA161955DB6C7C551E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263439   (286469) от 20.11.2018
+
+Футбол. Лига Наций УЕФА 2018-2019. Лига A. Группа 4. 6-й тур. Англия — Хорватия (18.11.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286469.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 ноября 2018 года, воскресенье. 17:00 МСК
+Лига Наций УЕФА 2018-2019. Групповой турнир
+Лига A. Группа 4. 6-й тур.
+Англия — Хорватия(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8AAD4629EE9A2A528E8E3EE712E81671F57126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263656   (286468) от 20.11.2018
+
+Футбол. Лига Наций УЕФА 2018-2019. Лига B. Группа 3. 6-й тур. Северная Ирландия — Австрия (18.11.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286468.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 ноября 2018 года, воскресенье. 20:00 МСК
+Лига Наций УЕФА 2018-2019. Групповой турнир
+Лига B. Группа 3. 6-й тур.
+Северная Ирландия — Австрия(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6542C51BAFD48B22E81A57165D0C7E6E44C40C1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263644   (286467) от 20.11.2018
+
+VA - German Top 50 Party Schlager Charts 19.11.2018 (2018) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michelle feat. Matthias Reim - Nicht Verdient
+02. Maite Kelly - Die Liebe Siegt Sowieso
+03. Andrea Berg - Ja Ich Will
+04. De Lancaster - Rosenzeit (feat. Kay Dörfel)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5D2D57150C484E8E719A626E1619321E725C1FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263647   (286466) от 20.11.2018
+
+no.9 - Switch of LIFE (2018) Steve* Music [FLAC|Lossless|WEB-DL|tracks] <IDM, Modern Classical>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Restart (05:34)
+ 02. Paper song (05:30)
+ 03. Switch of LIFE (06:11)
+ 04. Euphemistic (feat. kafuka) (05:03)(   Читать дальше...   )Жанр: IDM, Modern ClassicalПродолжительность: 01:24:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2EA840EBFE20DE9C4BE8582A6D269735D9D7D4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263652   (286465) от 20.11.2018
+
+VA - Trance The Annual 2019 (2018) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286465.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Steve Allen - Vorny (F.G. Noise Remix)
-02. Kaimo K & Trance Classics feat. Maria Nayler - Closest Thing To Heaven (Original Mix)
-03. Nikolauss - Ares (Kiyoi & Eky Remix)
-04. Lost Witness - Crashing Into Love (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:18:42
+01. Rank 1 - L e d There Be Light (Cosmic Gate Remix)
+02. Marcel Woods - Beautiful Mind (Dennis Sheperd Remix)
+03. Joop - The Future (Alex Ender 2018 Festival Mainstage Mix)
+04. Jochen Miller - Revenge (Jochen Miller's Festival Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:38:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87E6B38FB8DB2491689E956CFB782C87F2DBD68A
+magnet:?xt=urn:btih:B4B1967022698D48B96C202427FF4E21E05A4816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263278   (286464) от 20.11.2018
+
+Lambert & Dekker - We Share Phenomena (Instrumental Version) (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Tug 03:34
+02. In an Oblique Way 03:43
+03. Another One 03:31
+04. Manifold 02:59(   Читать дальше...   )Жанр: Alternative, Indie PopПродолжительность: 00:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCFF0CD013254A86F22F95486DE7E0E0C3AE2BF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263657   (286463) от 20.11.2018
+
+VA - TranceMission Vol.4 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Elliass - Adieu (KAYAT Remix)
+02. Vlad Gee - 712 Days (Mark Doyle Remix)
+03. Baran Ozhan - IRED (Original Mix)
+04. Angel Ace - Aura (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:30:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7161AEBF0B0FD921892CC2BCFCA60DF8A3FAF40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263341   (286462) от 20.11.2018
+
+Skyharbor - Sunshine Dust (2018) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Signal (1:20)
+02. Dim (4:58 )
+03. Out Of Time (4:57)
+04. Synthetic Hands (5:41)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EAF252518F57792A79F0991E4137D308D2039F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

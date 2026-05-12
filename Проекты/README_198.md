@@ -1,3 +1,55 @@
+###  Публикация: 814364   (560898) от 19.08.2014
+
+Videohive - Wedding Photos Slideshow - 4565295 [AEP]
+
+>>Проекты
+>>Свадебные и романтические (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект дает ощущение, якобы личного присутствия за просмотром фотографий.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6525EFAE3111B0C429217BB857302605DA3DF1EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 814376   (560893) от 19.08.2014
+
+VideoHive - Nomination Ceremony - 7804836 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nomination Ceremony - проект для какого-либо события, церемонии. Неплохо подойдёт для выпускного, юбилея.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CD05DDA5779787F5FAAB58D6F4D87E4706CF427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045121   (560877) от 22.08.2016
 
 Проекты - VideoHive - Corporate Logo Reveal - 17217764 [AEP]
@@ -618,60 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43AACD03DB9D44F18B7F5FE5B1A56BF6DAA84304
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924210   (558767) от 03.08.2015
-
-Проекты - VideoHive - Portfolio/Company Motion Promo [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чистый и стильный рекламные шаблон, идеально подходит для вашего портфолио, услуг, компании и т.д.
-Идеально презентация для вашего бизнеса, услуг или продукта!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13C4C3276EF78E4A4461BAB5C7C16BADF2E8C27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924280   (558761) от 03.08.2015
-
-Проекты - VideoHive - Summer Opener - Dynamic Titles [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект с забавными динамичными заголовками. Легко и спокойно редактируется под свои ролики!
-Подробный видео-учебник прилагается.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB8DC77270B1142979FF1CA2FDD263891E7199F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

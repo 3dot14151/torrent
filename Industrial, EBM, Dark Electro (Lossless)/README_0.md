@@ -1,3 +1,32 @@
+###  Публикация: 1086474   (1015388) от 18.05.2021
+
+ESA (Electronic Substance Abuse) - Discography 16 Releases (2006-2021) [FLAC|Lossless|tracks+.cue, tracks] <Rhythmic Noise, Industrial, Tribal, Ambient>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Detach (05:15)
+ 02. I Detach (Mechanical Vein Remix) (04:35)
+ 03. I Detach (Moris Blak Remix) (04:32)
+ 04. I Detach (Mr.Kitty Remix) (03:05)Тип издания: CD, WebЖанр: Industrial/Rhythmic Noise/ElectroПродолжительность: 14:20:36 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA0000B78F5EB03934EE9E145C3D235542F4424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962860   (1011238) от 13.06.2021
 
 Syntech | Greyhound - Discography (2006-2019) Hands Productions  [FLAC|Lossless|tracks+.cue, tracks]<Rhythmic Noise, Industrial, Experimental, IDM, Tribal, Ambient>
@@ -708,35 +737,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3A394887A30FE384124DE058F9D4CF74B5AB6E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103674   (885655) от 12.02.2017
-
-Absurd Minds - Tempus Fugit (2017) [FLAC|Lossless|WEB-DL|tracks] <EBM, Synth-pop>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Travel (4:10)
- 02. Farewell (5:38)
- 03. Kreuzfeuer (4:52)
- 04. Now We Hear the Call (4:44)(   Читать дальше...   )Жанр: EBM, Synth-popПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71EB7175DA2642A99B41D01ED2BD0BE43C08E5C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

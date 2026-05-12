@@ -1,3 +1,57 @@
+###  Публикация: 953802   (346227) от 05.11.2015
+
+Проекты - VideoHive - Album memories Old Film Look - Full HD [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для семейного (домашнего) фото-видео слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88E891AD5F2B0E0CE6CA8B2DBF1841FB3D7FDCF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953825   (346225) от 05.11.2015
+
+Проекты - VideoHive - Beautiful Logo Intros - 10278470 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для эффектного представления вашего логотипа.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AB297487356101FE78A6192EA788D9F52AFED60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953847   (346220) от 05.11.2015
 
 Проекты - Love Slideshow Sony Vegas Project [VEG]
@@ -630,60 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C37E800E1FAF08E96520B75298A646F6D5D5DD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953926   (343825) от 06.11.2015
-
-Проекты - VideoHive - Folding Photos Slideshow - 10113737 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания фото-слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB9CC923B19F7D98CBBED501752923DBA311B179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953956   (343813) от 06.11.2015
-
-Проекты - VideoHive - World Map Paintings Pack - 12070408 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект, содержащий анимированные флаги, названия и географические очертания стран.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A7FC020700E894EEAC818C12A5D45849E45BB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

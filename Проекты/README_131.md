@@ -1,3 +1,55 @@
+###  Публикация: 1283601   (739489) от 17.02.2019
+
+Проекты - Pond5 - Family Story Slideshow - 91863781 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Family Story Slideshow - Простой и легко настраиваемый проект для создания альбома воспоминаний или реализации любой другой вашей творческой идеи.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED1B51D9729CB0FA8523DD718E569F0C3541C292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283686   (739483) от 17.02.2019
+
+Проекты - VideoHive - Prestige Awards - 10117431 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prestige Awards - это эксклюзивный и профессиональный коллекционный пакет для After Effects с модульной структурой. Этот проект может быть идеально использован для создания видео-роликов церемонии награждения. А так же для: слайд-шоу, свадебных фильмов, вступления к фильму, Love story, презентаций, музыкальных видео и др.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2BE6568BCC894154447624EEA4AD235C707B3A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 785017   (739470) от 09.05.2014
 
 VideoHive – Heart Photos Collage (Heart Of The Photos) - 6674019 [AEP]
@@ -624,58 +676,6 @@ VideoHive – True Love Memories - 6807751 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0912D051394806C3EFF0FD3714224666367EB872
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 789001   (733624) от 23.05.2014
-
-VideoHive – SEO. Internet Marketing. Web Promotion Pack - 7209231 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733624.jpg" />
-</div>
-
-
-###  Подробнее
-
-От автора: SEO. Internet Marketing. Web Promotion Pack - крутой проект сделанный специально для тех, кто продвигает свои(й) товар(ы) через интернет. С помощью данного проекта вы можете показать свои услуги, товары, веб-сайт или продвижение бизнеса...Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1252CFC2B831BDD180288A4A6AFCB4A91F14552B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 789002   (733623) от 23.05.2014
-
-VideoHive – Precious Memories - 6640091 [AEP]
-
->>Проекты
->>Свадебные и романтические (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733623.jpg" />
-</div>
-
-
-###  Подробнее
-
-От автора: Efekt Studio представляет проект "Драгоценные моменты" чтобы сделать ваши воспоминания незабываемыми.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6748C8458C1F3A9DB44AA04C9EADABEADF18A84
 ```
 
 https://mybot314.ru/tekegram_catalog/

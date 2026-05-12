@@ -1,3 +1,123 @@
+###  Публикация: 454641   (77184) от 19.02.2012
+
+Foreigner: Greatest Hits/Soundstage (2008)[720p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockРежиссер: Joe Thomas
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448157   (77057) от 19.02.2012
+
+Виниловое видео (2011-2012) IPTVRip [Обновляемая]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Музыкальная, развлекательная передачаРежиссер: Светлана ЛялькинаПродолжительность: Выпуск: ~ 00:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F87788B345D2D8219EFFC60EFBE5C7865704E50D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 452415   (76986) от 18.02.2012
+
+РАЗИНРИМИЛЕВ (Фёдоров, Волков, Медески, Рибо, Смит) 2011 DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76986.jpg" />
+</div>
+
+
+###  Подробнее
+
+«РАЗИНРИМИЛЕВ»: Кантата с перекурами
+Запись московской презентации альбома "РАЗИНРИМИЛЕВ" в ГлавClub 12/3/2010.
+
+В Мюзик-холле прошла презентация пластинки «РАЗИНРИМИЛЕВ», музыкальной интерпретации поэмы Велимира Хлебникова, совместной работы вокалиста «Аукцыона» Леонида Федорова и контрабасиста Владимира Волкова. В записи и концерте принимали участие американские музыканты, уже сотрудничавшие с «Аукцыоном» на альбоме 2007 года «Девушки поют», – Джон Медески (клавишные) и Марк Рибо (гитара), а в качестве ударника выступил Чес Смит.1. Я Разин
+2. Утро (Путь)
+3. Бой
+4. Делёж добычи
+5. Тризна
+6. Печаль
+7. Волны
+8. Голова-нога
+9. Шамурла
+10. Стало(   Читать дальше...   )Жанр: Кантата с перекурамиРежиссер: Сергей ВасильевАктеры: Фёдоров, Волков, Медески, Рибо, СмитПеревод: ОтсутствуетПродолжительность: 01:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1312CAD3CF7BAA5F7CB8C5C6534D31A802808B5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454296   (76903) от 18.02.2012
+
+Eros Ramazzotti - Stilelibero (2001) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76903.jpg" />
+</div>
+
+
+###  Подробнее
+
+На представленном DVD записан международный тур в поддержку альбома. С ним Eros Ramazzotti выступил в восточно-европейских странах, включая Россию, где он дал три концерта в Кремлёвском дворце
+Эрос Лучано Вальтер Рамаццотти (итал. Eros Luciano Walter Ramazzotti, итал. Eros Ramazzotti; род. 28 октября 1963, Рим) — итальянский певец и композитор. Один из наиболее популярных (   Читать дальше...   )01. Dove c'e musica
+02. II mio amore per te
+03. Musica e
+04. L'aquila e il condor(   Читать дальше...   )Жанр: PopРежиссер: Не указанАктеры: Eros RamazzottiПеревод: ОтсутствуетЯзык субтитров: итальянские, английские, испанские, французские, немецкиеПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 453487   (76803) от 17.02.2012
 
 Катя Самбука - Зашли мне лям (Uncensored) (2010) WEBRip [720p]
@@ -590,137 +710,6 @@ Primo Victoria feat. Joakim Broden (Sabaton) Napalm Records(   Читать да
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D5FA095EB1E6BB65AC868C607A608046F1EC381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 447890   (74637) от 07.02.2012
-
-Van Canto - Live at Wacken (2008) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74637.jpg" />
-</div>
-
-
-###  Подробнее
-
-У группы ударник и пять вокалистов, которые с помощью голоса заменяют почти все нужные музыкальные инструменты.
-Группа имеет кавер-версии других исполнителей, среди которых Metallica («Battery», «Master of Puppets»), Iron Maiden («Fear Of the Dark»), Blind Guardian («Bard’s Song — In the Forest»), Nightwish («Wishmaster»), Deep Purple («Stormbringer»), Manowar («Kings (   Читать дальше...   )01. Pathfinder (Live At Wacken 2008) (Bonus DVD)
-02. Kings Of Metal (Live At Wacken 2008) (Bonus DVD)
-03. Rain (Live At Wacken 2008) (Bonus DVD)
-04. The Bard´s Song (Live At Wacken 2008) (Bonus DVD)(   Читать дальше...   )Жанр: Концерт, A Capella MetalПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D4A2193FE1115C7F92BE06C97C4D5D2FA9E8BE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 447242   (74540) от 06.02.2012
-
-Лучшие Онлайн Клипы 2011 / The Best Online Clips 2011 (2012) DVD9
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Форум онлайн видеоклипов подытожив прошедший год и решил совместно со студией видео монтажа, M.O.Y.D. Studio (http://moydstudio.com.ua), создать DVD под название “The Best Online Clips 2011”.  Для этого было отобрано 35 клипов из рейтинга просмотра в онлайн.Skrillex - First Of The Year
-Dominator  - After Video
-LMFAO - Sexy and I Know It
-Rihanna - Man Down
-Coldplay – Paradise
-Pitbull - Rain Over Me ft. Marc Anthony
-LMFAO - Party Rock Anthem ft. Lauren Bennett
-Beyoncé - Love On Top
-SEREBRO - Мама Люба
-Jennifer Lopez - On The Floor ft. Pitbull(   Читать дальше...   )Жанр: POPФормат: AC-3Продолжительность: 02:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0FB0A490FE94F80FE32E0B0BDD2C111F030E64D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 447937   (74518) от 06.02.2012
-
-The Rolling Stones: Let's Spend the Night Together (1981/2011) [1080p] Blu-ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74518.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Under My Thumb - (Tempe, Arizona, 13 December 1981 (outdoor stadium show))
-2. Let's Spend the Night Together - (Tempe, 13 December 1981)
-3. Shattered - (Tempe, 13 December 1981)
-4. Neighbours - (Tempe, 13 December 1981)(   Читать дальше...   )Жанр: rockРежиссер: Хэл ЭшбиАктеры: Мик Джаггер, Кит Ричардс, Чарли Уоттс, Билл Уаймен, Ронни Вуд, Йен Стюарт, Ian McLagan, Эрни Уоттс, Бобби Кис, Джерри ХоллПродолжительность: 01:30:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 447318   (74337) от 05.02.2012
-
-Foreigner - Rockin' at the Ryman (2011) [1080i] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт 16 марта 2010 года в Ryman Theatre, в Нашвилле, США. Прозвучали как композиции из нового альбома, так и всеми любимые хиты группы.…
-
-Filmed on the 16th March 2010, ROCKIN' AT THE RYMAN finds 80s pop sensation Foreigner back doing what they do best; rocking out loud. Blu-Ray versions of the live concert in the famous Rayman Theatre, be sure to stay updated for the new Foreigner experience about to take place! Recorded with the highest equipment to capture the rocking that actually took place, this concert included the full-set for ultimate listening and viewing pleasure. This new announcement is certainly a dream come true for any fan or new listener, including all of the hits from their album “Can’t Slow Down” like “Double Vision”, “Cold As Ice” to “Jukebox Hero”, “Hot Blooded” and “Urgent”. This is something you really have to see for yourself, and with the new DVD/Blu-ray disc quality, you can experience it as if you were there.01. Double Vision
-02. Head Games
-03. Cold As Ice
-04. In Pieces
-05. Blue Morning, Blue Day
-06. Waiting For A Girl Like You
-07. When It Comes To Love
-08. Dirty White Boy
-09. Starrider
-10. Feels Like The First Time(   Читать дальше...   )Жанр: RockВ ролях: Mick Jones, Kelly Hansen, Jeff Pilson, Tom Gimbel, Michael Bluestein, Jason BonhamПродолжительность: 01:46:35
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

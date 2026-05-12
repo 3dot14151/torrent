@@ -1,3 +1,29 @@
+###  Публикация: 592184   (136005) от 21.12.2012
+
+Nature Wallpapers (18.12.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C64C7C7394E5EBAC04E6EC0BE63DCE3535323D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592507   (135983) от 21.12.2012
 
 Nature Wallpapers (21.12.12) [Wallpapers]
@@ -665,32 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51C91908EBFF9560B86CDF03607A78D32D2C2A9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697033   (119253) от 05.02.2024
-
-Обои - Обои для рабочего стола от Роскосмоса [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корпоративные обои для рабочего стола от Роскосмоса.Формат: JPGРазрешение файлов: 1280х1024(4:3 Normal), 1440x900(16:10 Wide screen), 1920x1080(16:9 HD)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F1159F0E710FD623EEADB8391122D90E34BD82D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,144 +1,12 @@
-###  Публикация: 1540485   (652535) от 30.03.2022
+###  Публикация: 1227029   (652351) от 23.05.2018
 
-iStat Menus 6 v6.62 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652535.jpg" />
-</div>
-
-
-###  Подробнее
-
-iStat Menus 6 — лучшее приложение для контроля работы Mac с новым дизайном и поддержкой macOS Mojave и macOS Catalina.
-Одни владельцы Mac предпочитают пользоваться компьютером без оглядки на процессы, происходящие «под капотом» операционной системы и самого устройства, другие любят держать все под пристальным контролем. Первым хочется пожелать и дальше наслаждаться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.03.2022Разработчик: © 2022 Bjango Pty LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7291B91F0F32349D2872B938911E16D1BFB6D44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540576   (652534) от 30.03.2022
-
-Cyberduck 8.3.0 Build 37309 [Multi/Ru]
+Mozilla Thunderbird 52.8.0 Portable by PortableApps [Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cyberduck — программа представляет собой бесплатный мультифункциональный клиент для подключения к удаленным директориям серверов, поддерживая работу с многими популярными протоколами подключения. В список типов серверов, к которым возможно выполнить подключение, вошли любые FTP, FTP-SSL, защищенное подключение SFTP, WebDAV, а также публичные облачные сервера Amazon (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68E2DEA9127903CC74B72BED323DB2E7AFA78AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540595   (652532) от 30.03.2022
-
-Soft Organizer Pro 9.19 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soft Organizer - утилита для полного удаления ненужных программ из системы.
-Зачастую после удаления программ в системе остаются следы от них, ненужные файлы и папки на дисках и записи в реестре. Это происходит даже в том случае, если приложение удалялось по всем правилам, с использованием собственного деинсталлятора (инструмента для удаления программы, созданного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280A595CEF0918C73B703CB4F92DD64D5EDEB9E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540600   (652528) от 30.03.2022
-
-Files Inspector Pro 3.19 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если на диске заканчивается свободное место, и вы не можете понять, чем занят ваш диск, то Files Inspector – отличное решение для поиска и удаления затерявшихся фильмов, загруженных файлов и неиспользуемых программ, которые вам уже не нужны, но занимают место на диске.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B85BDC4B4245C84C0D8AFD9EAC9576EB98CAA8C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 798982   (652509) от 23.06.2014
-
-Анна Литвинова, Сергей Литвинов | Незримая связь (2014) [MP3]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652509.jpg" />
-</div>
-
-
-###  Подробнее
-
-В последнее время Татьяне Садовниковой фатально не везло: ее подставили на дороге, обвинили в преступлении, которого она не совершала, и вдобавок уволили с работы... В поисках удачи она отправилась в Тибет, к легендарной горе Кайлас. Все тяготы пути и восхождения Таня перенесла не зря: у подножия священного камня она нашла белую нефритовую чайку. После этого ее дела (   Читать дальше...   )Жанр: ДетективПродолжительность: 05:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7215C5620353D58BEB6E134AD516574AA1D8EA72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291749   (652505) от 26.03.2019
-
-Mozilla Thunderbird 60.6.1 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652351.jpg" />
 </div>
 
 
@@ -148,7 +16,7 @@ Thunderbird — это бесплатная почтовая программа,
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3817829CA1ED12F544CB049032C2425AA74E265E
+magnet:?xt=urn:btih:4D0BAC418BAC412293E10397A35055C3F3B5236D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -156,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291861   (652499) от 26.03.2019
+###  Публикация: 678634   (652344) от 12.07.2013
 
-VA - The Jazz Hop Cafe - Jazz Hop #4 Autumn Exclusives (2017) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz Hop, ChillHop>
+Slade -Slade On Stage (1982) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652344.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Classik - Moonlight Metropolis (4:42)
-02. MAXGONZ - Rainfall (3:25)
-03. SkyBlew - Pixy Stix & Snick (3:44)
-04. Rythmatical - Sleep (3:59)(   Читать дальше...   )Производство: The Jazz Hop CaféЖанр: Hip-Hop, Jazz Hop, ChillHop, Instrumental, LoungeПродолжительность: 01:02:33
+Жанр: Hard RockПродолжительность: 00:41:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10FC23C58B9396C0D15FBF75CDE8971CC58C65F0
+magnet:?xt=urn:btih:A4A4F89115A3522328D2BA4D38CDAA7C80A84FA1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -185,28 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291862   (652496) от 26.03.2019
+###  Публикация: 1141256   (652320) от 09.06.2017
 
-VA - The Jazz Hop Cafe - Jazz Hop #5 Summer Exclusives (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz Hop, ChillHop>
+VA - Healing Lights 5 (Compiled by Djane Gaby) (2017) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652320.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Taiyo Ky - Keikyu Beat (Ft. Phoebe Lee) (2:33)
-02. Pabzzz - Serenade (3:24)
-03. EMERLD - I Know (Ft. Jerré & Buuda) (3:18)
-04. Profound Beats - Starry Eyes (2:59)(   Читать дальше...   )Производство: The Jazz Hop CaféЖанр: Hip-Hop, Jazz Hop, ChillHop, Instrumental, LoungeПродолжительность: 00:54:00
+01. Astrix & DJane Gaby – New Earth Portal (Intro) (02:54)
+02. Pointfield & Tranonica – Healing Energy (08:44)
+03. Ascent – Cosmic Energy (06:50)
+04. Atacama – Clouds (07:46)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:14:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF6FCC6223C804D01913DCE21D4E45679FC9983E
+magnet:?xt=urn:btih:2FA44DD44124D3474D41259BA5192746EBA8DC42
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -214,54 +79,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291583   (652490) от 26.03.2019
+###  Публикация: 1141075   (652319) от 09.06.2017
 
-Morph Age Pro 4.3.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Morph Age Pro мощный инструмент для высококачественного морфинга и варпинга(деформации) цифровых изображений и видеофрагментов для Mac OS X.
-Результаты работы с программой могут быть сохранены в виде видеоролика. Программа позволяет плавно регулировать изменения изображения с помощью направляющих кривых. Версия PRO может работать с видео, в то время как стандартная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: март 2019Разработчик: Creaceed SPRLПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859705E20EC3EEF0E37BFECC6A2BA4862E44BB36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291792   (652484) от 26.03.2019
-
-Elmedia Player Pro 7.2.1 (1778) [Multi/Ru]
+SyncMate Expert 6.7 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652319.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Elmedia Player - мультимедийный плеер для воспроизведения практически всех видео форматов: (FLV, SWF, MOV, MP4, DIVX, RV, RM и даже Silverlight). Это удобный и простой в настройке плеер, который проигрывает медиа файлы локально, а также имеет встроенный веб-браузер, позволяющий заходить на любой сайт и выбирать понравившееся видео для просмотра.
+SyncMate — это единственное приложение для синхронизации данных в OS X, которое позволяет синхронизировать Mac с несколькими устройствами одновременно (Android-устройства, неограниченное количество iOS устройств, другие Mac компьютеры, любые MTP устройства и монтируемые диски).
 
-Elmedia Player PRO (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.03.2019Разработчик: Eltima LLCПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Мультиязычный, включая русский
+Больше нет необходимости покупать различные приложения для синхронизации под каждое устройство (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 июня 2017Разработчик: Eltima SoftwareПоддерживаемая ОС: OS X 10.8.5 +Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8854B6A38581F5E0B07A8556401B000FCE5E757
+magnet:?xt=urn:btih:78D5D5263F5C4F47E5BA7D59FE96D4ACA9F0C46D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -269,28 +107,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141176   (652465) от 09.06.2017
+###  Публикация: 1141180   (652316) от 09.06.2017
 
-VA - Vocal Dance Vol. 2 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
+Internet Download Manager 6.28 Build 12 Final RePack by elchupacabra [Ru/En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652316.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Papulin - Paper Boats (feat Maria Milewska - extended mix) (05:45)
-02. Elite Electronic & John Swanson - Polaris (extended mix) (06:00)
-03. Roman Messer & Armos - Higher (feat Angel Falls - original mix) (06:30)
-04. Attila Syah & Cari - Dark Side Of The Moon (original mix) (06:32)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:19:48
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05CF2A9FCF755ED2D0D2E7A97F9DFC7A191C0266
+magnet:?xt=urn:btih:BF994CBABAEACE3F5E9826E045A285907C14F39C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -298,28 +133,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141266   (652464) от 09.06.2017
+###  Публикация: 1141178   (652312) от 09.06.2017
 
-Psybuddy - Sonic Treatment (2017) [MP3|320 Kbps] <Psy-Trance>
+AMD Radeon Software Crimson ReLive Edition 17.6.1 Beta [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652312.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sonic Treatment 08:21
-02. Puma Punku 08:41
-03. Galactic Horizons 07:32
-04. Addictive Noize 08:41(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:18:58
+AMD представила программное обеспечение Radeon нового поколения, которое отличается новыми функциями, высокой производительностью, а также уровнем стабильности. Новое ПО Radeon Software Crimson ReLive Edition включило в себя энергоэффективную работу графики за счет технологии Radeon Chill, а также инструмент для записи происходящего на экране и стриминга при помощи (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD6C454FFAB58C7BB06B58861139D3F83D2ED2C5
+magnet:?xt=urn:btih:CFD013C5E58C91FDD61EE3A3CE4E1512D2ED254B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -327,27 +159,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141134   (652455) от 09.06.2017
+###  Публикация: 1141272   (652311) от 09.06.2017
 
-iExplorer 4.1.1.0 [En]
+Джеймс Лусено | Катализатор. Изгой-Один: Предыстория (2017) [FB2]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652311.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ситуация, когда жизненно необходимо скачать какую-либо информацию с компьютера на внешний накопитель, знакома всем. Особенно это актуально как раз тогда, когда такого накопителя с собой почему-то нет. Но главное, чтобы под рукой был любимый i-девайс, потому что, в таком случае, решение указанной проблемы уже есть – это приложение iExplorer.
+Роман из межавторского цикла «Звёздные войны».
 
-iExplorer - утилита для (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 июня 2017Разработчик: Macroplant LLC.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+Война разрывает галактику на части. В течение многих лет Республика и сепаратисты сражались среди звезд, применяя всё более смертоносные технологии в попытке выиграть войну. Как член сверхсекретного проекта Звезды Смерти Канцлера Палпатина, Орсон Кренник, намерен разработать супероружие, прежде чем это сделают враги. (   Читать дальше...   )Жанр: Космическая фантастикаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1EF664D1E64CEA6CB41C42EAF77C9261960C7767
+magnet:?xt=urn:btih:E986B64F681FA49C4B632B59B5E686846D521FAB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -355,103 +187,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141324   (652453) от 09.06.2017
+###  Публикация: 1540607   (652306) от 30.03.2022
 
-OverPicture for Safari 1.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652453.jpg" />
-</div>
-
-
-###  Подробнее
-
-OverPicture - расширение Safari, которое позволяет воспроизводить любое Web-видео в режиме PIP (Picture-In-Picture) и расположить его в любом месте рабочего стола. Нажмите кнопку воспроизведения/паузы в любом Web-видеоплеере в Safari, затем на панели инструментов PIP, и видео начнет воспроизводиться в режиме Picture-In-Picture поверх ваших окон. Плагин встраивает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.06.2017Разработчик: Pedro Jose PereiraПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BED942F278884D29368D89BBA6DE1C8393E46F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141287   (652450) от 09.06.2017
-
-Открытый микрофон (2017.06.09) SATRip (выпуск 20) (Дайджест)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652450.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 января на ТНТ начнется новое оригинальное юмористическое шоу талантов – «Открытый микрофон». Участниками проекта станут молодые (и не очень), никому неизвестные стендап-комики, которые будут бороться за возможность попасть в основной состав одного из самых популярных комедийных шоу в России – Stand Up на ТНТ. Несмотря на то, что многие участники «Открытого микрофона» (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 00:46:37Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35E45E259F1D22366070E0AA61D8478C6C387289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141286   (652448) от 09.06.2017
-
-Камеди Клаб / Комеди Клаб / Comedy Club (2017.06.09) SATRip  (Дайджест)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652448.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 00:46:04Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CCA8D7F9A87A725FE9FC4161604AEF46B290FBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540526   (652443) от 30.03.2022
-
-Avidemux 2.8.1 Nightly(r220330) + Portable (x64) [Multi/Ru]
+Movavi Picverse 1.7.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652306.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Avidemux - небольшой, простой редактор для работы с видео, который может использоваться как для обработки и редактирования видео, так и для конвертирования видеофайлов из одного формата в другой. Возможна работа со всеми наиболее популярными видеоформатами, включая AVI, совместимые с DVD MPEG файлы, MP4 и ASF. С помощью Avidemux можно производить базовые операции (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Movavi Picverse - представляет собой один из самых популярных и продвинутых графических редакторов на цифровом рынке, который просто идеально подойдет как новичкам и любителям, так и профессиональным специалистам. Здесь вы сможете реализовать любой творческий проект, адаптировав качество фотографий под свои индивидуальные потребности и желания. Но главной и самой (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F62803628E006F763D6A595397F22187AACBED4
+magnet:?xt=urn:btih:202E21621E86195AC1AE49E5B2F42F4F3A53796F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -459,25 +213,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540551   (652441) от 30.03.2022
+###  Публикация: 1540609   (652305) от 30.03.2022
 
-HWiNFO 7.22 Build 4730 + Portable [Multi/Ru]
+EasyUEFI Technician 4.9 Release 1 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652305.jpg" />
 </div>
 
 
 ###  Подробнее
 
-HWiNFO32/64 - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Русский, Английский и другие
+EasyUEFI - удобная утилита для редактирования загрузочного меню операционных систем Windows на основе EFI/UEFI. Технология UEFI все чаще используется разработчиками и производителями ПК как замена известного всем интерфейса BIOS, позволяя более гибко и тонко управлять параметрами запуска операционной системы.Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA94FB753C7C6113DB55CF73BFE096BF94675834
+magnet:?xt=urn:btih:E5C5D42D67B375FDF382A824AEA8C285C13B1F6A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -485,106 +239,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540615   (652440) от 30.03.2022
+###  Публикация: 516663   (652287) от 29.06.2012
 
-TechSmith Camtasia 21.0.18 (Build 35847) RePack by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Camtasia Studio - мощная утилита для записи изображения с экрана в видеофайлы различных форматов, имеется возможность редактирования видео, есть встроенные Macromedia Flash (SWF) и видео проигрыватели. Camtasia захватывает действия и звуки в любой части Windows-систем и сохраняет в файл стандарта AVI. Сделанное при помощи программы видео можно экспортировать в один (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8925CA6FF7BEAB357F81DA9CFB9850441208A954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540505   (652437) от 30.03.2022
-
-Reason Studios Reason 12.2.5 STANDALONE, VST3, AAX (x64) [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reason Studios выпустила новую версию DAW Reason 12. Программа получила улучшенную функциональность Rack Extensions, переработанный Combinator и новый сэмплер.
-Обновление приносит множественные улучшения Rack для работы с расширениями, новый сэмплер Mimic Creative Sampler и переработанную функциональность раздела Combinator.
-Новая версия Reason 12 улучшает пользовательский (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66B2C2C5EB41D6AC48E2C4054955A176CC601E2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540564   (652435) от 30.03.2022
-
-AnyTrans for iOS 8.9.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652435.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyTrans предназначен для быстрой и удобной передачи файлов с компьютера на iPhone/iPad и наоборот. Музыку, фото, видео, приложения, книги, контакты, sms и другие данные можно добавить в ваш iOS-девайс буквально в два счёта и так же просто вытащить их оттуда.
-AnyTrans, не в пример iTunes, прост и интуитивен. Каждое устройство отображается на отдельной вкладке, где (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.03.2022Разработчик: © 2022 iMobie Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F918BB2D3A65B7B640AE441655F8045BC5496EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514971   (652425) от 29.06.2012
-
-[Wallpapers 16+] Wallpapers Sexy Girls (25.06.12)
+[Графика] Индонезийские истории фотографа Девана Иравана (Dewan Irawan)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652287.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1280х1024 - 5616х3744
+Индонезийские истории фотографа Девана Иравана (Dewan Irawan)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:814004A4DCA441FC43528A5929F28E87AC175705
+magnet:?xt=urn:btih:AB87AD7039DEAB108E2BAE4790B6556C6767F5A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -592,34 +265,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 516565   (652423) от 29.06.2012
+###  Публикация: 517084   (652283) от 29.06.2012
 
-VA - Summer (2012) [MP3|320 кб/с]<Pop>
+VA - Armada Top 15 July (2012) [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652283.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. DJ Sandro Escobar - Давай, До Свидания!
- 02. Dress Code - Кучерявое Лето
- 03. Inna - Crazy Sexy Wild
- 04. Фиска Адвайта & MainstreaM One - Заново
- 05. Jandro - С Тобой
- 06. MC Yankoo vs. MlaDJa feat. Acero MC - Loca (Radio Edit)
- 07. Lady GaGa - Glitter & Grease
- 08. Дима Билан и Юлия Волкова - Любовь-Сука
- 09. Тимати & Grooya feat. La La Land & Timbaland - Not All About The Money (Radio Edit)
- 10. Flo Rida - Let It RollЖанр: PopПродолжительность: 03:41:35
+01. Armin Van Buuren - We Are Here To Make Some Noise (extended mix) (05:12)
+02. Maison & Dragen - Wet Dreams (06:27)
+03. Rick Mitchells & Bas Van Essen - Raptor (05:58)
+04. Orjan Nilsen - Endymion (07:37)
+05. Anevo - Incredibly (06:20)
+06. Hamerling & De Koning - Air (06:00)
+07. Simone Anes - Love Is A Battlefield (feat Abigail Bailey) (05:51)
+08. 2 Faced Funks vs Jay Colin - Life Is A Casino - Episode (extended mix) (06:48)
+09. Mike Koglin - Varana (feat LCK) (07:11)
+10. Susana & Rex Mundi - All Time Low (08:03)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:30:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F678408698E536D84D661C9AB88977BEB497597
+magnet:?xt=urn:btih:16850836C6A11B4C1DC01E413AF1949B23627B70
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -627,34 +300,60 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 516656   (652421) от 29.06.2012
+###  Публикация: 516622   (652282) от 29.06.2012
 
-Roger Shah - Magic Island - Music for Balearic People 214 (2012-06-22) [MP3|320 кб/с]<Trance>
+[Wallpapers] Best HD Wallpapers Pack (28.06.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C85AB2B2E6DDB543D38FBA53DED6CDD3EC0590AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516654   (652280) от 29.06.2012
+
+Aly & Fila - Future Sound of Egypt 242 (2012-06-25) [MP3|256 кб/с]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652280.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.	Magic Island - Intro (Hour 1)	(01:44)
-02.	Andy Duguid feat. Lizzie Curious - Music Box	(06:19)
-03.	Mike Shiver feat. Bo Bruce - Still Here	(05:58)
-04.	Tritonal feat. Jeza - I Can Breathe (Extended Mix)	(07:21)
-05.	Kaimo Kerge - What Could Have Been	(06:37)
-06.	Mike van Fabio - Beachbreeze	(07:46)
-07.	Pizz@Dox - 4am Redeemer (Falcon Remix)	(07:00)
-08.	Galactic Stone - Nature Impact	(06:02)
-09.	Hoyaa - Skydivers	(07:32)
-10.	Dreamy - Life (Mosahar Remix)	(06:59)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:58
+01.	Future Sound Of Egypt - Intro	(01:07)
+02.	ID - ID	(03:55)
+03.	Ruben de Ronde - Forever In Our Hearts (Spotlighted By Jorn van Deynhoven)	(06:34)
+04.	Dennis Sheperd & Cold Blue feat. Ana Criado - Fallen Angel (ID Remix)	(06:14)
+05.	ID - ID	(03:33)
+06.	Brad Ashtar - Dima (Andy Elliass Remix)	(06:10)
+07.	ID - ID	(04:21)
+08.	Estigma - Deception (Mike van Fabio & Araya Remix)	(05:57)
+09.	Ferry Tayle & Daniel Kandi - Flying Blue	(05:57)
+10.	Dark Matters feat. Neev Kennedy - Loneliness Won't Leave Me Alone (Sebastian Brandt Dub Mix)	(05:02)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F09CCF800A122B7C8C24598935000A6818C933E
+magnet:?xt=urn:btih:CF4D1A7CC38DC951F56DA434FDC89CFE615875D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,26 +361,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291734   (652410) от 26.03.2019
+###  Публикация: 516685   (652277) от 29.06.2012
 
-Emurasoft EmEditor Professional 18.7.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
+Wise Disk Cleaner 7.43 Build 497 + Portable [Multi(Rus)]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_652277.jpg" />
 </div>
 
 
 ###  Подробнее
 
-EmEditor Professional - профессиональная версия мощного текстового редактора для программистов, веб-разработчиков и простых пользователей с подсветкой синтаксиса и поддержкой юникода.
-Редактор обладает такими функциями, как поиск и замена в файлах с использованием регулярных выражений, автоопределением кодировок, подсветка ссылок и адресов электронной почты, блочный (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Wise Disk Cleaner - программа для быстрого и лёгкого освобождения свободного места на жёстком диске. Утилита удаляет ненужные мусорные файлы, которые не используются программами, установленными в вашей системе. Программа может определять более 50 типов мусорных файлов, и вы можете сами добавлять любые типы файлов, которые считаете мусором. После того, как программа просканирует систему на наличие мусорных файлов, можно индивидуально посмотреть каждый файл и подробную информацию о нём, после чего решить, стоит ли его удалять.
+
+Wise Disk Cleaner с его интуитивно понятным и удобным интерфейсом поможет вам легко избавиться от мусорных файлов. Существует два способа удаления файлов: если вы начинающий пользователь компьютера, то вы можете воспользоваться помощником (мастером) и использовать предустановленные настройки. Если вы пользователь с достаточными знаниями, то вы можете настроить программу более целенаправленно. Вы можете вручную выбрать папки для удаления, можете выбрать для удаления файлы с теми или иными (   Читать дальше...   )Название программы: Wise Disk CleanerЯзык интерфейса: Multi(Rus)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60E754D75D3175973FAAA46BCAAEE5661337AE22
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -689,25 +389,341 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291760   (652404) от 26.03.2019
+###  Публикация: 516713   (652276) от 29.06.2012
 
-CDBurnerXP 4.5.8.7042 + Portable [Multi/Ru]
+VA - Amazing Summer Compilation Ibiza (2012) [MP3|320 кб/с]<House>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652276.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CDBurnerXP - программа для записи CD и DVD, включая Blu-Ray и HD-DVD. Пишет данные с жесткого диска и из ISO имиджей, записывает CD с данными и аудио-CD. Кроме этого, позволяет создавать загрузочные диски, переписывать аудиоCD на жесткий диск "на лету" в файлы MP3, OGG, WMA, WAV, а также сохранять образы CD в виде ISO-файлов. CDBurnerXP может работать как (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Boom (Original Mix) - Alex Xela
+02. Gotcha (Original Mix) - Alex Xela
+03. Good Sensations (feat. Rosye Brown)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:865956CFB00DE19C08D888261A56AE579CD1A364
+magnet:?xt=urn:btih:7E1A6713608A001824832371369D8FB4352AF312
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516691   (652272) от 29.06.2012
+
+Bobina - Russia Goes Clubbing 199 (Erick Strong Guestmix) (2012-06-27) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Bobina - Russia Goes Clubbing Intro	(00:36)
+02.	Justin Prime - R!se	(06:06)
+03.	Beat Service - Fortuna	(05:36)
+04.	Ashley Wallbridge feat. Audrey Gallagher - Bang the Drum (Omnia remix)	(05:56)
+05.	Sunny Lax - Spring	(05:26)
+06.	Ledo - Between the Clouds (7 Baltic remix)	(03:51)
+07.	Koko B. feat. Ally Irwin - In Search For (Sou Kanai remix)	(07:34)
+08.	Daniel Kandi & Ferry Tayle - Flying Blue	(05:11)
+09.	Binary Finary & Genix - Smoking Gun (Sequentia remix)	(04:43)
+10.	Dark Matters feat. Neev Kennedy - Loneliness Won't Leave Me Alone (Sebastian Brandt remix)	(06:17)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C409DA67EBB2E4128BF2C2E6EC21EC426EBAEB9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515469   (652270) от 29.06.2012
+
+VA - To Sexy 4 The Club! (2012) [MP3|320 кб/с]<Funky, Club House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Syntheticsax & Laura Grig - Hear The Sound
+02. Loleatta Holloway - Stand Up (feat Johnny Vicious - Peter Parker remix)
+03. Soul-Ty - Que Pasa Carino
+04. Rob Renson - Get Down
+05. Deadstar - You Touch My Love (Charlie Nathan radio mix)
+06. Miqro - You Will See (feat Ronar - Zweiklang vocal mix)
+07. Audio Assembly - Sway (feat Paul Mahos & New Life Crisis - Nick Harvey instradub)
+08. Collective Sound Members - Reach Out
+09. V I F & Lola Palmer - Wish
+10. Dario Martino - Time Will Gonna ChangeЖанр: Funky, Club HouseПродолжительность: 03:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC6388E43A96B90064D9451F0D3F453A546F2EC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517026   (652267) от 29.06.2012
+
+Каникулы в Мексике - 2. Выпуск №85 (2012.06.29) (2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652267.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуТелекомпания: MTVПродолжительность: 00:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCB1EC80DB44D9FF4A57C1C71E47D40ABF83AF42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291721   (652256) от 26.03.2019
+
+Photo Mechanic 6 6.0 (build 2725) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Mechanic — фотобраузер и фоторедактор оперативно обрабатывающий тысячи снимков в одиночном и пакетном режимах, отбирает из них самые удачные, обрезает, добавляет информацию к фото, рейтинг, корреспондируется с цифровыми камерами, интегрируется со многими редакторами в т.ч. Adobe Photoshop, позволяет легко экспортировать данные. Программа предназначена для профессиональных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Camera Bits, Inc.Поддерживаемая ОС: macOS 10.10.5 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41C76670D914C13498600142526AD5A1AE76DCD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 344264   (652247) от 02.06.2011
+
+Pedro Del Mar - Mellomania Deluxe 489 (30-05-2011) [MP3|256 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652247.jpg" />
+</div>
+
+
+###  Подробнее
+
+PEDRO DEL MAR IN THE MIX:
+
+01. jan martin feat. hysteria! - save me now (beat service proglifting remix)Жанр: TranceПродолжительность: 02:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B1C9FECEF24561A214912F92D6D205F5F96BCE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 345208   (652237) от 02.06.2011
+
+NHL 10/11, SC: Финал, матч №1: Boston Bruins vs Vancouver Canucks (01.06.2011) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. NHL. Кубок Стэнли, финал, 1-й матч, Boston Bruins против Vancouver Canucks.Жанр: Спорт, хоккейТелекомпания: Формат: MPEG-4Продолжительность: 01:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A79E0D3E8E642E5E0A55C50F1AB3BE38BA45A18D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 345145   (652229) от 02.06.2011
+
+Paul Kalkbrenner - Icke Wieder (2011) /PKM 002CD/ [MP3|192-320 kbps]<Tech House, Minimal Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_652229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Minimal TechnoПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FED574381A2F0FB947F3AAF3B8B248E3D932BDB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227051   (652204) от 23.05.2018
+
+VA - Israel Rising (2018) [FLAC|Lossless|WEB-DL|tracks] <Folk, World>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Davis & Baruch Maoz - Aaronic Benediction (Birkat Hacohenim)
+02. Jonathan Settel - Sh'ma Yisrael
+03. Barry and Batya Segal - Al Chomatayeech Yerushalayim (On Your Walls O Jerusalem)
+04. Ted Pearce - Zealous over Zion(   Читать дальше...   )Жанр: Folk, WorldПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53ACAA7657336A1B5A8A0700FA8269235176ACA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226981   (652197) от 23.05.2018
+
+SMPlayer 18.5.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652197.jpg" />
+</div>
+
+
+###  Подробнее
+
+SMPlayer - мощный мультимедиа проигрыватель, который позволяет воспроизводить большинство известных аудио и видео форматов без потребности в дополнительных кодеках. Также умеет воспроизводить DVD диски и видео-потоки из Internet.
+Приложение представляет собой полноценную графическую оболочку для MPlayer, обеспечивающую как базовые функции MPlayer (воспроизведение (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758968B663487D2848C7E3D4010D88B58463A694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227047   (652192) от 23.05.2018
+
+Find Any File 1.9.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Find Any File - утилита для быстрого поиска любого файла на вашем Mac
+Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Thomas TempelmannПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96AB51A6E7A2EF59830F4D95F8D6251429E000A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030917   (652178) от 04.07.2016
+
+Волейбол. Мировая лига 2016.Мужчины. Предварительный этап.Группа A1. 2-й тур. Австралия – Франция (18.06.2016) WEB-DLRip [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652178.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 июня 2016, суббота. 13:10 МСК
+ Первая игровая неделя. 1-й дивизион. Группа A1. 2-й тур
+Стадион: Сидней Супер Доум (Сидней, Австралия) , 4426 зрителей (21 % при вместимости 21032)
+Судья 1:  Ибрахим Аль Наама (Катар)(   Читать дальше...   )Жанр: СпортЯзык озвучки: ИнтершумПродолжительность: 01:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3146DA81358CD4BD190233C846B480A48A7C58D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

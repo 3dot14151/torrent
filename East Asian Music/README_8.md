@@ -1,3 +1,32 @@
+###  Публикация: 1047291   (549881) от 29.08.2016
+
+Infinity of Sound - Girls on the Moon (2016) [MP3|320 Kbps] <K-Pop, Traditional, Covers>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dolphins
+02. I'm Your Cat
+03. Girls on the Moon
+04. Dreaming(   Читать дальше...   )Жанр: K-Pop, Traditional, CoversПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2475CF6D2016A4BF8DD76017E8E45EFDE81DE574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 875270   (546830) от 24.06.2019
 
 MISTY RAIN — 10 альбомов (2010-2017) Touhou Vocal /Doujin/ [FLAC|Lossless|tracks] <J-Pop, J-Rock>
@@ -731,35 +760,6 @@ Meiko Kaji - Aitsu no Suki Sona Blues (2011) [MP3|320 кб/с]<J-POP, Blues, Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F6148F556A5737F21D4B7BE35E5C4F7E3CDE1B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561630   (507128) от 11.07.2022
-
-coldrain - Nonnegative (2022) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore, Modern Rock>
-
->>East Asian Music
->>Asian Rock, Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Help Me Help You [00:03:43]
-02. CALLING [00:03:27]
-03. Cut Me [00:03:23]
-04. Before I Go [00:04:06](   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, Modern RockПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5EE5FBBA3190640D36C299581DD2DDA95F199EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 883038   (814540) от 30.03.2015
+
+Проекты - Revostock - Cartoon Logo Painter - 1024889 / Pond5 - Cartoon Logo Painter - 47516558 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультяшный проект для оживления вашего статичного лого. Саунд и ридми включены. Понятная структура проекта.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A6FC56DEE01F8754AEE6B137CB586A2A703ED3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117755   (814430) от 24.03.2017
+
+Проекты - VideoHive - VoluMax - 3D Photo Animator V4 Pro - 13646883 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814430.jpg" />
+</div>
+
+
+###  Подробнее
+
+VoluMax - 3D Photo Animator V4 Pro - проект для невероятной 3D анимации фотографий c огромным количеством эффектов(блики, грязь, пыль, параллакс, цветокор и прочее). Как это работает? Выберите пейзаж, портрет или любую другую картинку, а затем нарисуйте черно-белую карту глубины в After Effects или Photoshop. Белый для переднего плана и черный для фона. (Видеоурок (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B139DA51D79B060AF97901424C79E5D651A82F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 883043   (814406) от 30.03.2015
 
 Проекты - VideoHive - Cartoon Sneaky Box Logo Reveal [AEP]
@@ -622,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A5DB48C6FCCCE0CD32EFF6C9B0425290264C2BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008944   (811635) от 20.04.2016
-
-Проекты - VideoHive - Logo Power Twister [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания мощного представления вашего логотипа. Логотип создает на улицах города торнадо твистер и превращается в название вашей компании.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:021618A56D2C662D6FBC4F74BE2582B04EEE462C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009069   (811477) от 20.04.2016
-
-Проекты - VideoHive - Lower 3rds - Clean Lines [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания 10 чистых нижних плашек.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3CDD9BA70FCD533ADAE112F251B2BAFFF74CB27
 ```
 
 https://mybot314.ru/tekegram_catalog/

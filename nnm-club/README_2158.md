@@ -1,22 +1,22 @@
-###  Публикация: 1238240   (1010538) от 17.06.2021
+###  Публикация: 1477234   (1011155) от 14.06.2021
 
-Хранитель / Усмиритель душ / Стражи / Zhen hun / Guardian (2018) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-40 из 40) RusFilm [AD]
+Растровый клипарт - Elements Collage 174 [PNG, PSD, JPG]
 
->>Зарубежные сериалы
->>Сериалы с рекламой
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011155.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В древние времена на Землю попало инопланетное ДНК и смешалось с человеческим, в результате чего на свет появились новые виды существ внешне похожих на людей, но обладающих уникальными способностями и силами. Одни из них жили под землей (глубинники), другие на поверхности (природники) и все они мирно сосуществовали с людьми, до тех пор пока стало не хватать ресурсов. (   Читать дальше...   )Производство: Китай / Youku Original, Joytime, Shanghai Wings MediaЖанр: фантастика, фэнтези, триллер, драма, детективРежиссер: Чжоу Юаньчжоу, Han GaoАктеры: Бай Юй, Чжу Илун, Синь Пэн, Ли Янь, Цзян Минъян, Гао Юэр, Minting Liu, Siqi Li, Naichao Wang, Weichao WangПеревод: Двуголосый любительский - RusFilmЯзык озвучки: русскийСубтитры: китайские (hardsub)Продолжительность: ~00:45:00 серияРеклама: присутствуют видео, аудио вставки рекламы
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 171x416-2223x2327
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C978F240E1EA8AE58EBFC893A1E67EDCBB17194
+magnet:?xt=urn:btih:1A8414E8862B9130C18488297306AEC4C1543BAC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,158 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 653531   (1010537) от 17.06.2021
+###  Публикация: 1477167   (1011154) от 14.06.2021
 
-Подводная одиссея команды Кусто / The Cousteau Odyssey (1968-1998) DVDRip/SATRip (фильмов 124 из 126)
-
->>Зарубежные TV-бренды
->>Одиссея Жака Кусто
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010537.jpg" />
-</div>
-
-
-###  Подробнее
-
-На борту научно-исследовательских кораблей "Калипсо" и "Алкиона" капитан Кусто и его команда бороздят безграничные водные просторы нашей планеты, снимая бесчисленных и разнообразных обитателей морских глубин. Создатели акваланга - уникального оборудования для подводных погружений - исследуют затонувшие корабли и повествуют об поразительных открытиях (   Читать дальше...   )Жанр: Документальный, Природа, Приключения,Режиссер: Жак-Ив КустоАктеры: Жак-Ив Кусто и его командаПеревод: ОдноголосыйПродолжительность: 118 x ~00:45:00, 4 x ~01:30:00, 2 x ~00:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1841CCA07CA76C4A3F45E87296E3F51425C6084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404436   (1010536) от 17.06.2021
-
-Люцифер / Lucifer (2020) WEBRip [H.264/720p-LQ] (сезон 5, серии 1-16 из 16) LostFilm
-
->>Зарубежные сериалы
->>Сериалы DC Comics
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010536.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам одноимённой серии комиксов Нила Геймана и Сэма Кита. Заскучавший и несчастный повелитель преисподней Люцифер Морнингстар оставил свой престол и отправился в современный Лос-Анджелес, где основал ночной клуб «Lux». Очаровательный, харизматичный и дьявольски привлекательный Люцифер наслаждается отдыхом — вином, женщинами и музыкой, пока красивая поп-звезда (   Читать дальше...   )Производство: США / Aggressive Mediocrity, DC Entertainment, Jerry Bruckheimer Television, Vertigo, Warner Bros. TelevisionЖанр: фэнтези, драма, криминалРежиссер: Нэйтан Хоуп, Луис Шоу Милито, Эгил ЭгилссонАктеры: Том Эллис, Лорен Джерман, Кевин Алехандро, Лесли-Энн Брандт, Скарлетт Эстевес, Рэйчел Харрис, Д.Б. Вудсайд, Эйми Гарсиа, Триша Хелфер, Том Уэллинг и другие.Перевод: Многоголосый профессиональный (LostFilm)Язык озвучки: русский, английскийСубтитры: русские (Full), английские (SDH)Продолжительность: ~00:52:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4482C9C4F0947354A195ADD72D5EDE7C06A7A0B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477740   (1010535) от 17.06.2021
-
-Windows 11: Первый взгляд
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы установили утекшую в сеть сборку Windows 11 build 21996 на реальную машину Microsoft Surface 6 Pro, чтобы посмотреть на новый интерфейс Sun Valley и новые возможности «следующего поколения Windows»До официального мероприятия Microsoft, на котором будет представлено «следующее поколение Windows» остается чуть больше недели. Накануне в сети появилась сборка новой (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477933   (1010534) от 17.06.2021
-
-Прабабушка легкого поведения. Начало (2021) WEBRip [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010534.jpg" />
-</div>
-
-
-###  Подробнее
-
-1980 год, вся страна следит за событиями московской Олимпиады. Один только Вова Рубинштейн под шумок переодевается в звезд советской эстрады и пытается разбогатеть, устраивая фейковые концерты. На одном из таких концертов его разоблачают сотрудники КГБ и вербуют как агента под прикрытием. Теперь, чтобы не попасть за решетку, Вова должен выполнить ответственную миссию (   Читать дальше...   )Производство: Россия, Vice FilmsЖанр: КомедияРежиссер: Марюс ВайсбергАктеры: Александр Ревва, Глюкоза, Марина Федункив, Евгений Герчаков, Дмитрий Нагиев, Михаил Галустян, Наталья Бардо, Максим Лагашкин, Игорь Жижикин, Ирина БяковаПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D18556104BBEE53743375A3D01FE1DD1CFF76A60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463942   (1010533) от 17.06.2021
-
-Хрустальный (2021) WEBRip (сезон 1, серии 1-10 из 10)
-
->>След.
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сергей Смирнов — один из лучших «охотников на маньяков» в Москве. По особому приглашению губернатора он приступает к расследованию похищений и убийств мальчиков в родном городе — Хрустальном. Сергей уехал оттуда в столицу много лет назад, пытаясь избавиться от травмирующих воспоминаний детства. Чтобы найти преступника, Сергею придётся ещё раз пережить те страшные (   Читать дальше...   )Производство: Россия /  МТС Медиа, продюсерская компания «Среда»Жанр: детектив, драмаРежиссер: Душан ГлигоровАктеры: Антон Васильев, Екатерина Олькина, Дарья Екамасова, Карина Разумовская, Владимир Виноградов, Дмитрий Куличков, Сергей Гилёв, Андрей Курносов, Игорь Огурцов, Константин Тополага и др.Продолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58F79F855B728807EC7F35DE91D37E864FB7929B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478106   (1010532) от 18.06.2021
-
-Intrinsic - Intrinsic (1987) [FLAC|Lossless|tracks + .cue] <Power Metal, Speed Metal>
+Karcinoma - Invictus (2020) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Symphonic Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011154.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ahead Of The Game
-02. Hit The Streets
-03. Compo
-04. RIP!!(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 00:32:40
+01. Incantamentum [00:03:34]
+02. Invictus [00:08:20]
+03. La Casa Sotto La Tredicesima Luna [00:08:41]
+04. Mama [00:05:30](   Читать дальше...   )Жанр: Gothic Metal, Symphonic MetalПродолжительность: 01:06:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:88B30D193617F9991C6E59C43C329043936DA317
+magnet:?xt=urn:btih:C76B13B40341D2A51ECF127A6B9BB74952363465
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,24 +53,50 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478187   (1010531) от 18.06.2021
+###  Публикация: 1477216   (1011153) от 14.06.2021
 
-Chalice Of Sin - Chalice Of Sin (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Растровый клипарт - Elements Collage 166 [PNG, PSD, JPG]
 
->>нет
->>нет
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011153.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chalice Of Sin
-02. Great Escare
-03. Whisky
-04. Miracle(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:43
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 137x850-1833x1321
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6010AFE6A9814B066DD0B559888F9ABA17BCDE50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477221   (1011152) от 14.06.2021
+
+ICD-10 - Differential Diagnosis (2019) Hands Productions [FLAC|Lossless|tracks+.cue] <Industrial, Techno>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Congestion (05:32)
+ 02. White Surfaces (04:17)
+ 03. Dark Channels (05:44)
+ 04. Jittered Visions (06:20)(   Читать дальше...   )Жанр: Industrial, TechnoПродолжительность: 01:13:44
 
 ## Скачать торент
 ```bash
@@ -212,28 +108,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478228   (1010530) от 18.06.2021
+###  Публикация: 1477213   (1011151) от 14.06.2021
 
-Omago - Decrepitus (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Thrash Metal>
+Растровый клипарт - Elements Collage 165 [PNG, PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 188x624-2869x2609
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF04343092D89DE864D3852AAD51C6AA03ACADA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477311   (1011150) от 14.06.2021
+
+Teach Every Mary - Сотня фунтов за голову Тича (2021) [MP3|320 Kbps] <Heavy Metal, Folk Metal, Pirate Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011150.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sore Loser
-02. Headless
-03. Vile Schemer Vile
-04. Burn The Books(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:35:18
+01 - Баба на корабле [00:03:31]
+02 - Сотня фунтов за голову Тича [00:03:10]
+03 - Слава Безумцам! [00:03:23]
+04 - Королева пиратов [00:03:39](   Читать дальше...   )Жанр: Heavy Metal, Folk Metal, Pirate MetalПродолжительность: 00:31:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21C3F91D290234C2D3BC8FF42940DD8D279E441C
+magnet:?xt=urn:btih:F52EDDC4D3ADCC8A6D61EEBAAAAF94C60CB516C5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -241,28 +163,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478220   (1010529) от 18.06.2021
+###  Публикация: 1477210   (1011149) от 14.06.2021
 
-Thy Kingdom Will Burn - Thy Kingdom Will Burn (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+Растровый клипарт - Elements Collage 163 [PNG, PSD, JPG]
 
->>нет
->>нет
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011149.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Awakening
-02. Alone
-03. Follow The Fallen
-04. Rise Against(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:46:57
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 205x760-1500x1000
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:9BF2AD6FE33BF6CE9AEA204111FDDAE0FA017B56
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -270,28 +189,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478172   (1010528) от 18.06.2021
+###  Публикация: 1477224   (1011148) от 14.06.2021
 
-Bloodbeat - Process Of Extinction (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Thrash Metal>
+Растровый клипарт - Elements Collage 171 [PNG, PSD, JPG]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011148.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Creative Murder
-02. Beyond The Skeletons
-03. Pulse
-04. No Control(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:37:20
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 210x262-1862x1588
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF18C927CD777C55B6899EC53628552F2525BD2C
+magnet:?xt=urn:btih:9DF5D90B95F0364BC6DD439FB9D5F6095606DD67
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -299,28 +215,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478160   (1010527) от 18.06.2021
+###  Публикация: 1477219   (1011147) от 14.06.2021
 
-VA - Beatport Electro House: Sound Pack #299 (2021) [MP3|320 Kbps] <Electro, House>
+Растровый клипарт - Elements Collage 168 [PNG, PSD, JPG]
 
->>нет
->>нет
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011147.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Rendher - Needy
-002. Grazze & Dan Soleil - Unfolding
-003. Friend Within - Holding On
-004. Tone Troy - Yesterday(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 10:32:56
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 136x531-1789x2255
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:45C27463A3404473F61090A174C7335005874919
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -328,28 +241,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478181   (1010526) от 18.06.2021
+###  Публикация: 1477222   (1011146) от 14.06.2021
 
-The Day Of The Beast - Indisputably Carnivorous (2021) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Thrash Metal>
+Растровый клипарт - Elements Collage 170 [PNG, PSD, JPG]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011146.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Corruptor/Infestor
-02. Disturbing Roars At Twilight
-03. Indisputably Carnivorous
-04. Enter The Witch House(   Читать дальше...   )Жанр: Black Metal, Thrash MetalПродолжительность: 00:45:31
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 148x234-6000x4773
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DD522689105972F48A779A246E846E07C92925D
+magnet:?xt=urn:btih:CACCAC3A747B09DDE7EA03E5AB8B154116E6CEA9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -357,28 +267,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478017   (1010525) от 18.06.2021
+###  Публикация: 1477235   (1011145) от 14.06.2021
 
-Niva - Incremental IV (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+Растровый клипарт - Elements Collage 175 [PNG, PSD, JPG]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011145.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Don’t You Know
-02. Crush
-03. Better Just Forgotten
-04. Magnitude(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:52
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 195x570-2560x1920
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:454B6F3B24E6F824D877AF2A04BD49D685E44F93
+magnet:?xt=urn:btih:1C73B1F22B9ADE6DC2C4E648EEC092CF40CF38F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -386,28 +293,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478224   (1010524) от 18.06.2021
+###  Публикация: 1477233   (1011144) от 14.06.2021
 
-Ravager - The Third Attack (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+Растровый клипарт - Elements Collage 173 [PNG, PSD, JPG]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011144.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intruders
-02. Planet Hate
-03. Back To The Real World
-04. Priest Of Torment(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:40
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 220x760-2762x2253
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A9BE514FDBF4405BD937A90E520AE59D86F9B5A
+magnet:?xt=urn:btih:1233455211560234A498DABB6BAA98446D23C916
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -415,28 +319,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478170   (1010523) от 18.06.2021
+###  Публикация: 1477283   (1011143) от 14.06.2021
 
-Season Of Dreams - Heroes (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+Sandboxie 5.50.1 [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011143.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shadowreaper
-02. Heroes
-03. Legion Of The Werewolves
-04. Princess Of The Dark(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:53:23
+Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF005BCEF32BA6702CE13F0A23AE76BD49BCBFB1
+magnet:?xt=urn:btih:A2341496D48A8B7D88FF19B0AB7DB6FABCDE3298
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -444,227 +345,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478161   (1010522) от 18.06.2021
+###  Публикация: 1477186   (1011142) от 14.06.2021
 
-VA - Beatport Future House: Electro Sound Pack #300 (2021) [MP3|320 Kbps] <Electro House, Future>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010522.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Klartraum - Blue Pearl
-002. Alex Niggemann - Primary
-003. DJ Rob - Ambition
-004. Púrpura - Rumbama(   Читать дальше...   )Жанр: Electro House, FutureПродолжительность: 11:34:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478239   (1010521) от 18.06.2021
-
-Reinforcer - Prince Of The Tribes (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prince Of The Tribes
-02. Allegiance And Steel
-03. Black Sails
-04. Shieldmaiden(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478176   (1010520) от 18.06.2021
-
-Neonfly - The Future, Tonight (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This World Is Burning
-02. Last Of Our Kind
-03. Flesh & Blood
-04. The Future, Tonight(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478235   (1010519) от 18.06.2021
-
-Eazy - Crank It Up! (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out Of The Atmosphere
-02. Horse Of Steel
-03. Jb & Coke
-04. Me, Myself & I(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:30:
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478279   (1010518) от 18.06.2021
-
-Павел Астахов | Детям о праве. Дорога. Улица. Семья. Школа. Отдых. Магазин. Государство (2020) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга, озвученная самим Павлом Астаховым, предназначена для детей среднего школьного возраста. Для них она, наряду с другими книгами серии, станет первой ступенью на пути правового образования.
-
-Ребята совершат небольшое путешествие в мир взрослых людей. Подумают над возможными последствиями тех или иных поступков; поймут, как вести себя в различных жизненных (   Читать дальше...   )Жанр: Познавательная литература для детей/ПравоведениеПродолжительность: 10:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2DE9C643039BE5CE9E8498B0769FF608E41E81B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478232   (1010517) от 18.06.2021
-
-Angelwings - Primordium (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Genesis
-02. Primordium
-03. Nature’s Lullaby
-04. Fallen Angel Song(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86152D6383768BC947C3F0497F4CBDD0457852D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478274   (1010516) от 18.06.2021
-
-Екатерина Вильмонт | Даша и Ko. Секрет пропавшего альпиниста. Книга 15 (2018) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Просто мистика какая-то! Игорь случайно встретил в метро человека, который… полгода назад погиб в горах. Что это? Призрак? Мираж? А может быть, пропавший альпинист жив и просто от кого-то скрывается? Игорь, Петька, Даша и их друзья останавливаются на последней версии. Они хотят поговорить с его невестой, но сразу же выясняют – за ней установлена круглосуточная слежка…Жанр: Детская литература/ДетективПродолжительность: 04:29:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03B7D2040FCFF072282B2FE1758809EC06829F08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478145   (1010515) от 18.06.2021
-
-Футбол. Чемпионат Европы 2020. Группа С. 2 тур. Нидерланды - Австрия (2021) [H.264/1080p-LQ] [hand made 50fps]
+Футбол. Чемпионат Европы 2020. Групповой этап. Группа С. 1-й тур. Нидерланды - Украина (2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Спорт и активный отдых
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011142.jpg" />
 </div>
 
 
 ###  Подробнее
 
-17 июня в матче второго тура Евро-2020 сошлись сборные Нидерландов и Австрии.
-Чемпионат Европы по футболу 2020 года.
-Группа С. 2-й тур.
-Стадион:Йохан Кройф Арена (Амстердам) (Нидерланды), вместимость: 54990(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:02:19
+Чемпионат Европы по футболу 2020 года. 13 июня 2021, воскресенье. 22:00 МСК
+Групповой этап. Группа С. 1-й тур. Нидерланды - Украина
+СУДЬЯ Брых Феликс (Мюнхен, Германия)
+Судья на линии 1: Борш Марк (Германия)(   Читать дальше...   )Телекомпания: Первый HDЖанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:41:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE8F757C06F8CEC7900BFEF8C331A8973D334F04
+magnet:?xt=urn:btih:14D9AE0307D872A9E7139C6ECE87B48C467C3191
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -672,24 +374,247 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478241   (1010514) от 18.06.2021
+###  Публикация: 1477087   (1011141) от 14.06.2021
 
-Constancia - Brave New World (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Heavy Metal>
+Dig Me No Grave - Cosmic Cult (2014) [FLAC|Lossless|image + .cue] <Death Metal>
 
->>нет
->>нет
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011141.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Brave New World
-02. Forget Me Not
-03. Blame It On Love
-04. Synchronistic(   Читать дальше...   )Жанр: Progressive Heavy MetalПродолжительность: 00:46:57
+01. Through The Gates (4:02)
+02. Reptile (3:20)
+03. In Oblivion (3:16)
+04. Cosmic Cult (2:45)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4AA07FF45171AD1A27A3AA956288E40F9F22B10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477237   (1011140) от 14.06.2021
+
+Zoku Touken Ranbu: Hanamaru | Танец мечей: Цветочный круг [ТВ-2] [2018, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное аниме повествует историю про молодого мудреца по имени Санива, он отправляется в прошлое, чтобы наказать проказников, которые хотят исправить свое будущее, но именно он последняя преграда между этим. Но давайте по порядку, все начинается в 2205 году, технологии достигли своего прогресса и теперь отправится в прошлое очень легко и не составляет большого труда (   Читать дальше...   )Производство: Студия Doga Kobo / 動画工房Жанр: повседневность, комедияРежиссер: Косида ТомоакиПеревод: YakuSubЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D3362C9D29E9166E87FE4E70CB6C34280A6FA86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476938   (1011139) от 14.06.2021
+
+Футбол. Чемпионат Европы 2020. Групповой этап. Обзор матчей (13.06.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты Европы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Европы по футболу 2020 года. Обзор матчей. 1й тур.2й день (13.06.2021)Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:24:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279FB3CA82F3F90EFD6811DA7FFFFBDCEE0BC3B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477303   (1011138) от 14.06.2021
+
+Ocean Dark - Hope & Chaos (2021) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fallen [00:03:35]
+02 - Suddenly [00:04:09]
+03 - Proclaim [00:04:23]
+04 - Home [00:04:30](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C74058CC5C0992B03A3D90A8A300FB700B1698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477318   (1011137) от 14.06.2021
+
+Капитан Лис - Портовые Шлюхи, 2CD (2021) [MP3|320 Kbps] <Folk Rock, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Портовые Шлюхи (Rock Edition) [00:02:22]
+02. Нахер Шторм! (Rock Edition) [00:02:08]
+03. Чарка Рома (Rock Edition) [00:02:23]
+04. Горизонт (Rock Edition) [00:02:28](   Читать дальше...   )Жанр: Folk Rock, Folk MetalПродолжительность: 2CD, 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F79CA5905BDAF162C910A2C645AB63CD26A8EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477332   (1011136) от 14.06.2021
+
+Чемпионат США по супербайку 2021. Этап 3. Элкхарт Лейк. Гонка 1-2 / MotoAmerica 2021. Rd. 3. Elkhart Lake. Race 1-2 (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011136.jpg" />
+</div>
+
+
+###  Подробнее
+
+MotoAmerica — это организация, которая продвигает серию AMA Superbike с 2015 года. С санкции Американской ассоциации мотоциклистов и Международной федерации мотоциклистов она предлагает пять классов шоссейных гонок: Superbike, Stock 1000, Supersport, Twins Cup и Junior Cup.Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 00:58:58 + 01:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB283F7989704C002F5890C4947A0096953AFAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476816   (1011135) от 14.06.2021
+
+Sinoptik - 5 Albums (2014-2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Psychedelic, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le Menteur [00:06:27]
+02. Granny Greta [00:03:43]
+03. Young and High [00:05:01]
+04. Inception [00:00:59](   Читать дальше...   )Жанр: Progressive, Psychedelic, Stoner RockПродолжительность: 5 CD, 02:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E348F9BD362C5C5AE7A68CD9A9074C45175D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477084   (1011134) от 14.06.2021
+
+Dig Me No Grave - Immemorial Curse (2017) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:26)
+02. Ritual Slaughter (3:25)
+03. Initiation To Afterlife Disciplines (3:24)
+04. Cursed Acheron (3:49)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB4D7FD8F189C06F379F5B7650A0A365ACCF9655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477166   (1011133) от 14.06.2021
+
+She Bites - Joyride (2020) [FLAC|Lossless|image + .cue] <Melodic Rock, Female Vocal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demons (3:48)
+02. Joyride (3:40)
+03. She Is On Fire (3:54)
+04. Heartbreak Hotel (4:07)(   Читать дальше...   )Жанр: Melodic Rock, Female VocalПродолжительность: 00:41:23
 
 ## Скачать торент
 ```bash
@@ -701,28 +626,79 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478185   (1010513) от 18.06.2021
+###  Публикация: 1477366   (1011132) от 14.06.2021
 
-Eye Of Purgatory - The Lighthouse (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+Марина Мелия | Мама рядом! Главный секрет первого года жизни (2020) [MP3]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011132.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. And From The Fog...
-02. The Lighthouse
-03. Fornever To Awaken
-04. Carved In A Stone Bleeding(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:35:49
+Многие родители уверены: в первый год жизни ребенку нужны только уход и забота. А настоящее воспитание начнется позднее. Это огромное заблуждение! Вырастет человек целеустремленным или безвольным, общительным или замкнутым, сообразительным или не очень – во многом зависит от того, насколько мама вложится в первые 12 месяцев.
+В основу этой книги лег бестселлер (   Читать дальше...   )Жанр: Воспитание детей/Детская психологияПродолжительность: 06:39:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C338D2E526EE0A5E0254875E064AD947D46A43C1
+magnet:?xt=urn:btih:01E39B5E492DB5EB1B19A4D0876CF0B2F6E27584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477273   (1011131) от 14.06.2021
+
+Microsoft Visual Studio 2019 Community 16.10.1 (Offline Cache, Unofficial) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Community 2019 - Бесплатная, полнофункциональная и расширяемая интегрированная среда разработки для создания современных приложений для Android, iOS и Windows, а также веб-приложений и облачных служб.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00639AB3C85C2C91F04B898D15C042D5E1B35AC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 710293   (1011130) от 14.06.2021
+
+Ян Карафиат | Светлячки (2008) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011130.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1876 году в частной пражской типографии была анонимно напечатана небольшая книжка «Светлячки» или повесть «для маленьких и больших детей». Вскоре критики с восторгом нарекли автора «чешским Андерсеном» и в следующем издании появилось его имя. Им оказался священник-евангелист Ян Карафиат.
+ Как в капле воды, в недолгой жизни семейства светлячков отразил автор всё (   Читать дальше...   )Жанр: Сказки народов мираФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0395868A02CD1BE5F8DFA1F15081946F0C655CC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

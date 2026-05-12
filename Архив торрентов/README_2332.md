@@ -1,106 +1,22 @@
-###  Публикация: 1312564   (530954) от 05.07.2019
+###  Публикация: 926696   (531719) от 11.08.2015
 
-VA - A State Of Trance Festival 900 (Oakland-Alameda County Coliseum Bay Area, United States) (2019-06-29) [MP3|192 Kbps] <Trance, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fatum @ A State Of Trance Festival 900:
-01. Fatum - The Game
-02. Fatum & Genix & Jaytech & Judah - All In
-03. M.I.K.E. pres.Push - Strange World (Andrew Bayer Remix)w/Thomas Schumacher - The Fuzz(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 06:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD0C8C4397EE57C0C361F54C9F20068FAFD9DDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312231   (530937) от 05.07.2019
-
-Spacey Koala - Germination (2019) [FLAC|Lossless|WEB-DL|tracks] <Psydub, Psyglitch, Psyjazzy>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530937.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Germination (ft. JS Leblanc) 06:56
-2. Two Dolphins Having A Drink 05:25
-3. Plastic Lava 05:37
-4. Pestalotiopsis microspora 04:40(   Читать дальше...   )Жанр: Psydub, Psyglitch, PsyjazzyПродолжительность: 00:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:495FD7300A24279A58398A16A7D57146B3B08B48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926813   (530930) от 11.08.2015
-
-Adobe Flash Player 18.0.0.232 Final [3 в 1] RePack by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe® Flash® Player - плагин для браузеров Internet Explorer, AOL, Firefox, Mozilla, Netscape и Opera, позволяющий проигрывать Flash-ролики (файлы SWF). Без этой программы браузер будет некорректно отображать веб-страницы и интерактивные веб-элементы, разработанные по технологии Flash. Adobe® Flash® Player — это межплатформенная среда выполнения на основе браузера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:082D7E430273DC8EE22F5AEEBF1EE66C7D3D303F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926321   (530929) от 11.08.2015
-
-Дэдпул / Deadpool (2016) WEBRip [H.264/1080p] [Трейлер]
+Принимайся за работу / Get Cracking (1943) DVDRip [EN]
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531719.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Уэйд Уилсон — наемник. Будучи побочным продуктом программы вооруженных сил под названием «Оружие Х», Уилсон приобрел невероятную силу, проворство и исцеляющий фактор. Но страшной ценой: его клеточная структура постоянно меняется, а его здравомыслие сомнительно. Все чего Уилсон хочет — это держаться на плаву в социальной выгребной яме. Но течение в ней слишком быстрое.Производство: США, Marvel Enterprises, TSG Entertainment, Twentieth Century Fox Film CorporationЖанр: Фантастика, БоевикРежиссер: Тим МиллерАктеры: Райан Рейнольдс, Морена Баккарин, Джина Карано, ТиДжей Миллер, Эд Скрейн, Рэйчел Шин, Брианна Хилдебранд, Андре Трикоте, Тэйлор Хиксон, Джед РиисПеревод: Профессиональный (полное дублирование)Продолжительность: 00:02:48
+Джордж присоединяется к ополченцам и спасает мир секретным оружием! Взрывы смеха!Производство: Великобритания, Columbia British ProductionsЖанр: КомедияРежиссер: Марсель ВарнельАктеры: Джордж Формби, Дина Шеридан, Эдвард Ригби, Фрэнк Петтинджелл, Рональд Шайнер, Уолли Патч, И.В.Х. Эмметт, Фрэнк Эткинсон, Гарри Фаулер, Вера ФренсисПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:31:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3061B3743400B3BF8565CC03F947BE6C8EECB18
+magnet:?xt=urn:btih:B8F715B3328D8654BFA25ABFB80CB840516C07F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,54 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 926889   (530926) от 11.08.2015
+###  Публикация: 925821   (531714) от 11.08.2015
 
-NextLimit RealFlow 2015 9.0.0.0144 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530926.jpg" />
-</div>
-
-
-###  Подробнее
-
-RealFlow - это самостоятельное программное обеспечение для моделирования жидкости, которая может использоваться в сочетании со всеми основными 3D редакторами для создания как безупречно крупных потоков, так и мелких потоков жидкостей быстро и легко!  Программа лидер на мировом рынке в создании жидкостей и их анимацииЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CB3EDB3A443EE4FAC3F45161C3443EFDB9B5867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051732   (530890) от 12.09.2016
-
-VA - Grotesque Essentials Summer 2016 Edition (Mixed by RAM & James Dymond) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Trance>
+VA - Amen Breaks (2015) [MP3|320 кб/с]<Drum & Bass>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531714.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stoneface & Terminal - Keep Going (5:03)
-02. Dimension & Ryoji Takahashi - Hidamari (5:25)
-03. Ferry Corsten pres. Gouryella - Neba (8:16)
-04. Orla Feeney & Kriess Guyte - Vortex (7:42)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:23:35
+01. mSdoS  Countenance (Velocity Remix)
+02. Subway Funk  Information Highway (Original Mix)
+03. Payback  Everglade (Original Mix)
+04. Payback  Inspired (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:58:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4A3CFB1B3BED292FE45A3D363B71C8990403E47
+magnet:?xt=urn:btih:577055FC6DAD6813599262A894434498EC441DAF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,210 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051669   (530882) от 12.09.2016
+###  Публикация: 1155798   (531692) от 04.08.2017
 
-Any Given Day - Everlasting (2016) [FLAC|Lossless|tracks + .cue] <Metalcore>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Doom
-02. Endurance
-03. Levels
-04. Coward King(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11392B074F3F27752411C5425DF82DCBC3E3DB67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051663   (530876) от 12.09.2016
-
-USDownloader 1.3.5.9 Portable (11.09.2016) [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Universal Share Downloader - это программа для скачивания файлов. В первую очередь оптимизирована под скачивание (в том числе полностью автоматическое) с различных файлообменных серверов типа Deposit и прочих, сайтов с видео YouTube.com, RuTube.com и прочих. Universal Share Downloader поддерживает более 120! Вам достаточно добавить в программу ссылки, нажать старт (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F28B9B62CDD36B8A00761C4624CE088B004CF84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533271   (530853) от 11.08.2012
-
-Nature HD Wallpapers (09.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6551D810B924446727B9855316F4A11F4AE66743
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533287   (530852) от 11.08.2012
-
-Nature Wallpapers (10.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E7A17A1383302A7E4E20918941C9E8F03F830B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533270   (530851) от 11.08.2012
-
-Nature Wallpapers (09.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D72944113930799899E4FD78A4D5D2ABA6AC4DA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533570   (530849) от 11.08.2012
-
-Computer Desktop Wallpapers Collection (11.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9D387A94352024271840DBA3D39CDB067B82350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533286   (530848) от 11.08.2012
-
-Best HD Wallpapers Pack (10.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF8602C07280A2E43C54F3E86A2B1B7B48B0666D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533675   (530847) от 11.08.2012
-
-Каникулы в Мексике - 2. Ночь на вилле. Выпуск №115 (2012.08.10) (2012) SATRip
+Футбол. Лига Европы УЕФА 2017-2018. 3-й квалификационный раунд. 2-й матч. Люнгбю (Дания) — Краснодар (Россия) (03.08.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531692.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новая ведущая! Роскошные бунгало и Башня одиночки! Новые герои, новый приз и новые правила! Катрин выиграла главный приз, и герои «Каникул» уже собирались домой… Как вдруг судьба дала им еще один шанс! Они получили возможность остаться в Мексике и продолжить игру. И некоторые остались! Еще несколько выбывших участников вернулись на проект, чтобы снова попытать счастья, а кто-то приехал в Мексику впервые...Героев ждут лучшие каникулы в жизни: шоколадный загар, жаркие ночные клубы, бесконечный кредит в баре и классная тусовка… А еще страсть, интриги, умопомрачительные свидания, крепкая дружба, взрослые ссоры и настоящая любовь!Жанр: ТВ-ШоуТелекомпания: MTVПродолжительность: 00:22:52
+03 августа 2017 года, четверг. 20:45 МСК
+Лига Европы УЕФА 2017 - 2018. 3-й квалификационный раунд. 2-й матч
+Люнгбю (Конгенс-Люнгбю, Дания) — Краснодар (Краснодар, Россия)
+Стадион: Люнгбю (Конгенс-Люнгбю, Дания), вместимость: 9680(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:45:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43BA18771F5E91F6129236C96BB1DC779127C318
+magnet:?xt=urn:btih:8F9244458229503656735F8F5A6C225E90C7EFD0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,25 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 533571   (530846) от 11.08.2012
+###  Публикация: 1155022   (531688) от 04.08.2017
 
-Best HD Wallpapers Pack (11.08.12) [Wallpapers]
+Monster Energy NASCAR Cup Series 2017. 21-й Этап. Pocono - Overton's 400 (30.07.2017) HDTVRip [H.264/720p-LQ] [hand made 60fps] [EN]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531688.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+30 июля 2017 года
+Monster Energy NASCAR Cup Series 2017 является 69-м сезоном профессиональных гонок автомобилей в США и 46-м сезоном современной эпохи NASCAR Cup Series.
+21-й Этап. Overton's 400. Лонг-Понд (штат Пенсильвания, США)
+Дистанция: 400 миль (640 км). 160 кругов, круг - 2,5 мили (4,0 км)(   Читать дальше...   )Телекомпания: NBCSNЖанр: СпортЯзык озвучки: АнглийскийСубтитры: Английские (отключаемые)Продолжительность: 02:54:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87880F56E8AC75E320DF979125F93AD4B1C8403F
+magnet:?xt=urn:btih:2CB79467DE2E1D63FDF80A300B87ECB9CF4F5A4C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -400,25 +111,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 533574   (530845) от 11.08.2012
+###  Публикация: 819705   (531666) от 08.09.2014
 
-Beautiful Nature Wallpapers (11.08.12) [Wallpapers]
+Спасти Санту / Saving Santa (2013) BDRemux 3D [1080p] [3D/2D]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531666.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Эльф Бернард — очень мил, весел, и… слегка несерьёзен. Но ему придется измениться, ведь у него впереди потрясающее и очень опасное приключение! Кто-то собирается похитить Санту и его волшебные сани, в которых можно перемещаться в разные эпохи. А без Санты Новый год никогда не наступит! Бернарду придётся переместиться во времени, сразиться со злодеем, остановить его (   Читать дальше...   )Жанр: Мультфильм, Мьюзикл, Комедия, СемейныйРежиссер: Леон Джусен/ Leon Joosen, Аарон Силман/Aaron SeelmanАктеры: Мартин Фриман, Тим Карри, Тим Конуэй, Пэм Феррис, Эшли Тисдейл. Джоан Коллинз, Ксавье Алькан, Крис Барри, Ноэль Кларк, Ребекка ФердинандоПеревод: Дублированный (Лицензия)Субтитры: НетПродолжительность: 1.23.47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95D77D3E25D475493F5A6D69875250B8F8A2FC4C
+magnet:?xt=urn:btih:1E7D9EC118F5EF5F749816F5AB41010E82D297C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -426,25 +137,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 533596   (530844) от 11.08.2012
+###  Публикация: 1558488   (531655) от 20.06.2022
 
-ANIME-PATCHWORK (11.08.12) [Графика]
+Avidemux 2.8.1 Nightly(r220617) + Portable (x64) [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531655.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ANIME-PATCHWORK (11.08.12)
+Avidemux - небольшой, простой редактор для работы с видео, который может использоваться как для обработки и редактирования видео, так и для конвертирования видеофайлов из одного формата в другой. Возможна работа со всеми наиболее популярными видеоформатами, включая AVI, совместимые с DVD MPEG файлы, MP4 и ASF. С помощью Avidemux можно производить базовые операции (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B3774F68391A5793C26DB871EB6EA2B9880EC3C
+magnet:?xt=urn:btih:DE6CBBC8ADEE598D2D7127E3CDFE4FA4DC014E02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -452,25 +163,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 533573   (530843) от 11.08.2012
+###  Публикация: 1558523   (531646) от 20.06.2022
 
-Nature HD Wallpapers (11.08.12) [Wallpapers]
+AIMP 5.03 Build 2391 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531646.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Обновился маленький, качественный, абсолютно бесплатный аудио плеер. Проигрывает большое количество современных популярных форматов. Плеер потребляет самый минимум системных ресурсов, система его просто не замечает, но при этом мгновенно работает с плейлистами и радует своей скоростью работы, даже если сравнивать его с платными аналогичными продуктами.
+   Радует AIMP (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF64C984518C4F32AA491C8A3670AE66437832F4
+magnet:?xt=urn:btih:04FEEE8CC9C17197C0B4F439A880E20D8EE69545
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -478,25 +190,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 533815   (530842) от 11.08.2012
+###  Публикация: 1558492   (531643) от 20.06.2022
 
-Дом без адреса (2010) SATRip
+7-zip 22.00 Portable by PortableApps [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531643.jpg" />
+</div>
+
+
+###  Подробнее
+
+7-Zip – свободно распространяемый, один из самых известных архиваторов, который наверно хорошо всем знаком. Отличается очень высокой степенью сжатия, возможностью 256-бит AES шифрования, поддержка ZIP, RAR, CAB, 7z, GZIP, BZIP2 и TAR архивов и ещё много возможностей для работы с архивами. Программа имеет многоязычный интерфейс и  русский не исключение. В новых версиях (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5290B77F66F2CD8D88042700CE14293E8EF2AB6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926689   (531617) от 11.08.2015
+
+Без Ограничений / No Limit (1935) DVDRip [H.264] [EN]
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531617.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Люди приходят в этот мир для счастья, но почему-то чаще выбирают страдание. После аварии Анна вместе с истекающим кровью Андреем оказываются в одиноком доме — им нужна помощь. Андрей — единственный на свете близкий ей человек, и Анна боится его потерять. Но вместо помощи в этом странном месте Анна встречает свою мать, которая умерла год назад в доме для престарелых, и своего нерожденного сына. Анна не верит, что вновь сможет стать счастливой, ведь она предстает перед самым строгим судьей — своей совестью. Все можно изменить, надо только пожелать.Жанр: ДрамаРежиссер: Андрей ХоленкоАктеры: Лидия Омутных, Светлана Немоляева, Иван Савченко, Платон ШмаковПеревод: Оригинал (Русский)Продолжительность: 01:30:31
+Джордж Шаттлворт убежден, что у него есть талант, чтобы выиграть гонку "Isle of Man TT". Во время испытаний, тормоза отказывают. В результате, он устанавливает рекорд круга и мгновенно становится звездой.Производство: Великобритания, Associated Talking Pictures (ATP)Жанр: Комедия, МьюзиклРежиссер: Монти БэнксАктеры: Джордж Формби, Флоренс Десмонд, Ховард Дуглас, Питер Гоуторн, Альфред Годдар, Флоренс Грегсон, Джек Хоббс, Ив Листер, Эдвард РигбиПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:17:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16D35D8306C78B8C5BABDC8D6A8C119D87F8E6B3
+magnet:?xt=urn:btih:3E9EAF5F0500192C105C8D2982182B125B66C591
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -504,25 +242,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 533603   (530841) от 11.08.2012
+###  Публикация: 926864   (531615) от 11.08.2015
 
-Ensiferum - In My Sword I Trust (2012) [H.264/720р] WEBRip
+Atomix Virtual DJ Pro Infinity 8.0.0 build 2391.1045 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыкального Видео
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531615.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Viking | Folk MetalПродолжительность: 00:05:36
+Virtual DJ - профессиональная версия программы для диджеев, позволяющая микшировать музыку в режиме реального времени с использованием эффектов, переходов и многого другого. Программа отлично подходит как для профессиональных диджеев, так и для новичков. Virtual DJ содержит в себе множество аудио-инструментов, эффектов и примочек, созданных специально для ди-джеев, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9EF6E74FEC7032C12D718BEAFF4B0DE8F139FC8
+magnet:?xt=urn:btih:38A69268A091D8FFC303CB0154D5C07F1CC5DFFA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -530,66 +268,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 533647   (530839) от 11.08.2012
+###  Публикация: 926771   (531611) от 11.08.2015
 
-Liberty n' Justice - Light It Up (2009) [MP3|192 кб/с] <Hard Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light It Up (ft. Phil Lewis & JK Northrup)
-02. The Other Thief (ft. Dale & Troy Thompson)
-03. Blink (ft. Lynn Louise Lowrey & Eddie Ojeda)
-04. Do What You Believe (ft. CJ Snare & Bill Leverty)
-05. Man vs. Mother Nature (ft. Ted Poley & Vic Rivera)
-06. Treading on Serpents (ft. Les Carlsen & Oz Fox)
-07. Uncle Sam (ft. Sheldon Tarsha & Jeff Pilson)
-08. Every Reason to Believe (ft. Kelly Keeling & Kerri Kelli)
-09. Wrestling with God (ft. Pete Loran, Steve Brown & Ron 'bumblefoot' Thal)
-10. Best Time (ft. Chris Jericho & Phil Collen)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4CFE4E4867D63596804CFC3234CC5E9AA92485B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533789   (530838) от 11.08.2012
-
-Джек и Тень - Таверны Средиземья (2012) [MP3|320 кб/с]<Folk-Metal>
+VA - Tales From The Mental Asylum Chapter III (Mixed by Indecent Noise) (2015) [FLAC|tracks+.cue]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531611.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fatherland (05:01)
-02. Totus Floreo (03:17)
-03. Лориэн (04:08)
-04. Таверны Средиземья (04:04)
-05. All Like That (02:02)
-06. Ev Sistr (02:47)
-07. The Voice Of Freedom (04:56)Жанр: Folk-MetalПродолжительность: 00:26:15
+01. Jase Thirlwall - Airborne (Standerwick Remix) (3:15)
+02. Phil Taylor - Locked Up (4:20)
+03. Magnetic Point - Thought Vibration (3:39)
+04. Eddie Bitar - Drive (4:10)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B3A2A8C0C8BED11725A1DE9EBA8BAF8E0FE7E3A
+magnet:?xt=urn:btih:2CE26BC61D6102BE375E975975475251EF50CC41
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -597,60 +297,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 533288   (530836) от 11.08.2012
+###  Публикация: 926780   (531608) от 11.08.2015
 
-Megurine Luka Wallpapers (10.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D994D6F53899F92750D6040C002DEBE261B5F756
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533877   (530834) от 11.08.2012
-
-VA - A State of Trance Radio Top 20 August 2012 [MP3|320 кб/с]<Trance>
+VA - Chemical Playground (2006) [FLAC|image+cue]<Psy-Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531608.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ashley Wallbridge - Bang The Drum (Feat Audrey Gallagher-Omnia Remix) (7:31)
-02. Headstrong - Love Until it Hurts (Feat Stine Grove-Solis and Sean Truby Mix) (7:14)
-03. Dark Matters - Loneliness Won't Leave Me Alone (Feat Neev Kennedy-Sebastian Brandt Remix) (7:29)
-04. Luigi Lusini and Starchaser - All I Want (Feat Molly Bancroft-Matteo Marini Radio Cut Mmix) (3:24)
-05. W and W - Moscow (Radio Edit) (2:35)
-06. Lemon and Einar K Presents Capa - Bit by (6:34)
-07. Max Graham - Still There's You (Feat Jeza-Tomas Heredia Remix) (7:24)
-08. Sean Tyas - The World (Feat Lo-Fi Sugar) (7:19)
-09. Alex M.O.R.P.H. - Antara (The Circle) (Feat Sylvia Tosun-Dub Mix) (7:29)
-10. Markus Schulz - Caught (Feat Adina Butar-Tritonal Club Mix) (6:53)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:15
+01. Skazi - Attack
+02. Void - Hghway To Hell
+03. Exaile - Vilderness
+04. Tube vs Kox-Box - Go Crazy(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 1:17:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8A057FCEE9825B29266D5D9B53D2B31E1C98EC1
+magnet:?xt=urn:btih:341BDA13F4A1BCED77B38645F5C56F67508D90A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -658,25 +326,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312718   (530823) от 05.07.2019
+###  Публикация: 926924   (531606) от 11.08.2015
 
-SKURM & ╰_╯ - DA_bada_DU (Ultra Mood Remix​)​ (2019) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
+Андрей Малютин | Путь оракула (2015) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Путь оракула» (первая из серии «Посланник Ориона»), написана в жанре мифологической фантастики с элементами мистики. Эта книга – о переселении душ, мистическом переплетении судеб людей, живущих в разных эпохах, и таинственном оракуле – призрачном камне, который является связующим звеном между ними. Камне, который может дать неограниченную власть и силу или, (   Читать дальше...   )Жанр: Ужасы и Мистика, Историческое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30012932297B9C0914F621CF1499BCE79C6E6099
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155706   (531580) от 04.08.2017
+
+VA - Electronic Family - The Official Compilation (2017) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531580.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. SKURM & ╰_╯ - DA_bada_DU (Ultra Mood Remix)Жанр: HardstyleПродолжительность: 00:02:46
+01. Vini Vici feat. Hilight Tribe - Great Spirit
+02. Gareth Emery feat. Christina Novelli - Concrete Angel
+03. Aly & Fila - Beyond The Lights
+04. Ferry Corsten - Dynamic(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:37EEF88F5595194CC84FEE17FAF6C422B715D700
+magnet:?xt=urn:btih:6ED1463D773571754B52FB6AEC6CAFD2F335D45E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -684,25 +381,322 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 533817   (530771) от 11.08.2012
+###  Публикация: 1155773   (531570) от 04.08.2017
 
-Звезды YouTube / Зірки YouTube. Выпуск №13 (2012) SATRip [RUS/UKR]
+Icecream Screen Recorder PRO 4.92 RePack (& Portable) by ZVSRus [Ru/En]
 
 >>Архив торрентов
->>Архив Юмора
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531570.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ведущий Егор Крутоголов познакомит вас с лучшим видео с YouTube. Миллионные просмотры и тысячи комментариев. Веселее, интереснее и экстремальные. Любой может стать "Звездой YouTube!" Достаточно снять видео и выложить его в интернет.Жанр: ЮморПродолжительность: ~ 00:26:14
+Icecream Screen Recorder - программа, позволяющая вести запись видео с экрана Вашего компьютера, а также делать скриншоты как всего окна, так и выбранной области. Приложение обладает полным набором необходимых инструментов для профессионального захвата видео с экрана со звуком, являясь при этом очень понятным и удобным в использовании. Запись игр, Skype, вебинаров (   Читать дальше...   )Язык интерфейса: Русский | Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9517827F6AD3BA0761BE8E99E2B584DEC14826F0
+magnet:?xt=urn:btih:86C94F38E298C8965C036F30236ED41228A3B3E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 367825   (531569) от 26.07.2011
+
+Armin Van buuren - A State Of Sundays 43 (2011) [MP3|128-256 kbps]<Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Rayel – Drapchi (Original Mix)2011Жанр: Trance, Progressive TranceПродолжительность: 01:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40FE960403132E97B34EB091042B1F3E4E41A15B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155596   (531566) от 04.08.2017
+
+Calendarique 2.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Календарь виджет для Центра уведомлений и Меню-бара.
+Просто выдвиньте центр уведомлений, чтобы получить обзор любого месяца. Цветные метки для каждой категории событий и напоминания. Нет необходимости выбирать конкретную  дату, чтобы увидеть, скоро ли будут  деловые или семейные события! Прекрасный дизайн исключительно для OS X Yosemite и El Capitan. Темные и светлые (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 31 июля 2017Разработчик: Andrey TsarkovПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A014B9CAAF2925C781DAA0F1012DDAF26192F7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155677   (531558) от 04.08.2017
+
+Футбол. Лига Чемпионов УЕФА 2017-2018. 3-й квалификационный раунд. 2-й матч. Янг Бойз (Швейцария) – Динамо К (Украина) (02.08.2017) WEBRip [UKR]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531558.jpg" />
+</div>
+
+
+###  Подробнее
+
+02 августа 2017 года, среда. 21:15 МСК
+Лига Чемпионов УЕФА 2017-2018. 3-й квалификационный раунд. 2-й матч
+Янг Бойз (Берн, Швейцария) – Динамо К (Киев, Украина)
+Стадион: Стад де Суисс Ванкдорф (Берн, Швейцария) , вместимость: 32000(   Читать дальше...   )Телекомпания: 2+2 (Украина)Жанр: СпортЯзык озвучки: Украинский, РусскийСубтитры: отсутствуютПродолжительность: 01:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5251D2437C550D44C8DE1B5A3EF535FBF96A9074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155607   (531555) от 04.08.2017
+
+VA - Synthetics Vol. 1-3 (2017) [MP3|320 Kbps] <Chillwave, Darkwave, Synthwave>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maniac Lover - Mantra Generator 04:15
+02. Robot FM - Street Law 02:10
+03. Will Burn - Resurrected 03:01
+04. R6 - Neon Banshee 03:43(   Читать дальше...   )Жанр: Chillwave, Darkwave, SynthwaveПродолжительность: 01:33:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0724E10C6D0BEA839B1E1699E0CA0DAC4F41652E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558480   (531517) от 20.06.2022
+
+Антивирусная утилита AVZ 5.57 (Неофициальная) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531517.jpg" />
+</div>
+
+
+###  Подробнее
+
+AVZ - Бесплатная быстро работающая антивирусная утилита. Включает в себя собственно AVZ и дополнительные утилиты AVZGuard/AVZPM/BootCleaner.
+Основное назначение - обнаружение и удаление SpyWare и AdWare модулей, а также Dialer (Trojan.Dialer), троянских программ, BackDoor модулей, сетевых и почтовых червей, TrojanSpy, TrojanDownloader, TrojanDropper.
+По сути, AVZ (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D4CD21051E4B49D0B6B08EB64C6A63C7C19B250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 818938   (531507) от 08.09.2014
+
+Гудини / Houdini (2014) WEB-DLRip (Сезон 1, серии 1-2 из 2) (AlexFilm)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531507.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Гудини» — драматический мини-сериал о жизни гуру мистификации и уличных трюков. Байопик Гарри Гудини расскажет об одном из самых харизматичных и отчаянных шоуменов XX века, который каждый день рисковал репутацией и здоровьем — на сцене и в повседневной жизни.
+В основу сюжета легла насыщенная событиями биография Гарри Гудини — от бедности до всемирной славы, от цирковых (   Читать дальше...   )Жанр: Драма, биографияРежиссер: Ули ЭдельАктеры: Эдриен Броуди, Кристен Коннолли, Ивэн Джоунс, Том Бенедикт Найт, Эстер Оноди, Иван Камарас, Меган Доддс и др.Перевод: Профессиональный многоголосый закадровый - AlexFilmОзвучка: Евгения Тихонова, Михаил Суслов, Константин Погодаев, Владимир КурдовФормат: AVIПродолжительность: ~01:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AA81D19AD15CC37BCB78A545C3E841B9982DAC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926934   (531497) от 11.08.2015
+
+XviD4PSP 7.0.158 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный пакетный аудио/видео конвертер, позволяющий работать практически со всеми известными медиаформатами (AVI, DIVX, ASF, MPG, MPE, M2V, MPEG, VOB и многие другие). Программа примечательна отсутствием зависимости от наличия системных компонентов и установленных кодеков. Также присутствуют пресеты, позволяющие осуществлять быстрое конвертирование для различных (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:200A2643A06CBCCB06E5EEAAF247E1716C267D3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926804   (531495) от 11.08.2015
+
+Adobe AIR 18.0.0.199 Final [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe AIR - (Adobe Integrated Runtime) - платформенно-независимая среда для запуска приложений, позволяющая использовать HTML/CSS, Ajax, Adobe Flash и Adobe Flex для переноса веб-программ на настольные компьютеры.
+Adobe AIR включает в себя возможность создания инсталляционного пакета, который может быть установлен на компьютер пользователя. Приложения, написанные (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F816EBBBC212A5B3BB20D9B68AF872D990CE82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926933   (531494) от 11.08.2015
+
+Николай Дмитриев | Брестские ворота (2015) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страшные дни, недели и месяцы начала Великой Отечественной войны… Командиров нет, танков нет, самолётов нет. Есть индивидуальный окоп и винтовка, и кто рядом с тобой – неизвестно. А впереди враги с пушками и пулемётами. Вот и стоит человек перед выбором: стоять до конца или?.. Героями нового романа признанного мастера отечественной остросюжетной литературы являются (   Читать дальше...   )Жанр: Исторические приключения, Книги о войнеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F9F5A842837103121CC410776D62E4A536203D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926784   (531491) от 11.08.2015
+
+Спето в СССР. Я тебя никогда не забуду (2010) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Песни 60-х, 70-х, начала 80-х пели все. Мелодии запоминались буквально с первого прослушивания. А слова и гитарные аккорды переписывали друг у друга в специальные толстые тетради - песенники. Цикл "Спето в СССР" включает самые разные композиции - трогательные лирические, торжественные праздничные, легкие танцевальные. Но всех их объединяет одно - всенародная (   Читать дальше...   )Телекомпания: НТВЖанр: ДокументальныйРежиссер: Алексей ШамраевПродолжительность: 00:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB2F27C9739DDA6DD34E81B17ECB7CA0D3EAC40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926859   (531485) от 11.08.2015
+
+Cyberfox 40.0 for AMD + Portable [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из лучших версий веб-браузера Firefox, имеющая 64-разрядную архитектуру, что делает ее быстрее, надежнее и стабильнее. Cyberfox использует Windows 8 SDK и оптимизирован под процессоры AMD. Браузер поддерживает дополнения и работает со своим профилем, отдельным от Firefox - это дает возможность использовать собственные закладки и историю.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97561E9CA571DCEF48814E338656A7E708A60C13
 ```
 
 https://mybot314.ru/tekegram_catalog/

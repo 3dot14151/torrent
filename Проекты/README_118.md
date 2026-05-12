@@ -1,3 +1,56 @@
+###  Публикация: 1126281   (765123) от 18.04.2017
+
+Проекты - VideoHive - HUD Music Visualizer - 18675723 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765123.jpg" />
+</div>
+
+
+###  Подробнее
+
+HUD Music Visualizer - идеальный шаблон для создания потрясающего музыкального видео. Вы можете использовать его для продвижения своей музыки на YouTube, Vimeo или любого другого канала.
+К вашим услугам предоставлено 6 различных стилей.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFF7073D3B8ECD1A40209AFAAD24F08937ACA92A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393712   (765100) от 03.07.2020
+
+Проекты - Premiumilk - PremiumBuilder All Packs 2020 [AEP, MOGRT, ZXP]
+
+>>Проекты
+>>Разное (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Огромный пакет переходов и элементов от Premium Builder за 2020 год для After Effects, Adobe Premiere.Формат: AEP, MOGRT, ZXP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD1D268F63FA658559AEEDE7790570B016627A29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279664   (764989) от 30.01.2019
 
 Проекты - VideoHive - TypeX - Text Animation Tool | Broadcast Pack: Modern Colorful Typography Titles - 20233979 [AEP, JSXBIN, JSXINC]
@@ -632,58 +685,6 @@ Insurance Services Presentation - презентация услуг страхо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7736EB60010A0C0FA526BA36724CB68F597F4F0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017126   (762564) от 16.05.2016
-
-Проекты - VideoHive - Sexy Promo [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sexy Promo - Шаблон может быть использован для промо, открываюния фильма, свадьбы, интро фильма, или просто для просмотра снимков и видео, если вы фотограф или видео-оператор.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:095EB09ACACEA9E2F0AEA66DC4CA72315BA323D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017161   (762559) от 16.05.2016
-
-Проекты - VideoHive - 100 Simple Titles and Lowerthirds - 15032270 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762559.jpg" />
-</div>
-
-
-###  Подробнее
-
-100 Simple Titles and Lowerthirds - шаблон из 190 текстовых заполнителей, 30 заполнителей Логотипа. Готовность к Рендеру в 4K и 1920x1080 разрешении.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6F32A713B73B49F5CE268F0EFFFB8C812F1F551
 ```
 
 https://mybot314.ru/tekegram_catalog/

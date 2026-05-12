@@ -1,3 +1,82 @@
+###  Публикация: 612926   (981023) от 05.02.2013
+
+Овечка Долли / Holly Dolly clips (2009) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличных два весёленьких клипа смешной и озорной овечки Долли, улыбнитесь!01. Dolly Song
+02. Don't Worry Be HappyЖанр: Музыка, Pop, DanceПродолжительность: 00:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14D91C971994C314023F9A7BDD45FA71EC459857
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 436699   (980082) от 15.01.2012
+
+Сборник клипов - VA - Various Music part. 2 (2011) WEBRip [H.264/720p-LQ/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rap, Dance, Pop, Trance, House, RockПродолжительность: ~02:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C950FE1CAD8C428959E5D060B1726F4FC1B6F306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 436676   (980079) от 15.01.2012
+
+Сборник клипов - VA - Various Music (2010-2011) WEBRip [H.264/720p-LQ/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: VariousПродолжительность: ~03:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:376BD0C777FC17330754DAB97A03895ECB047F42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 615031   (978774) от 07.02.2013
 
 Nelly Furtado - Waiting For The Night / Waiting For The Night (2012) WEBRip
@@ -630,85 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6971B75E0D794500BEDAC21423048A47012E770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618406   (969258) от 14.02.2013
-
-Сборник видеоклипов / Clips DISCO (Hits 1970-1996) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник музыкальных клипов составлен из файлов полученных в разных источниках.
-Сборник видеоклипов разных лет в хорошем качестве.Жанр: DiscoПродолжительность: ~04:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A1B14687DF88C8002A08C0B0239D8339622C39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618519   (968794) от 15.02.2013
-
-Tom Boxer & Morena - Las Vegus (2013) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F93A96344B9EED494CB8709721B241E33324DE0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618517   (968675) от 15.02.2013
-
-N'Klabe ft. Yomo - Me Gustas Muchisimo (2013) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: LatinПродолжительность: 00:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:289B34E5CE01357B8D0936E76AC5C76908B5A93F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 996796   (877420) от 15.03.2016
+
+Telemann - A Fagotto Solo (2010) [FLAC|Lossless|tracks] <Classical, Chamber Music>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I. Andante  03:16
+02. II. Vivace  04:05
+03. III. Largo  03:33
+04. IV. Allegro  04:29(   Читать дальше...   )Жанр: Classical, Chamber MusicПродолжительность: 01:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC0321CD6588DED8521D7DDEDB35F50798B69795
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997016   (877412) от 15.03.2016
+
+Rudolf Innig - Nowowiejski - Complete Organ Symphonies (1998) 3CD [FLAC|Lossless|tracks] <Classical, Keyboard>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прoдолжительность: 01:08:32
+
+01. Preludio Festivo  08:32
+02. Intermezzo, Allegretto  03:56(   Читать дальше...   )Жанр: Classical, KeyboardПродолжительность: 03:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D1039EF445822BD9A5C07EBD1F57A512C49FADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996840   (877199) от 15.03.2016
 
 Ivan Moravec - Plays Chopin (2001) [FLAC|Lossless|tracks] <Classical, Keyboard>
@@ -693,64 +751,6 @@ J.S.Bach - Famous Organ Works (1979) Reissue, 2009, JVC [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2DE50AA6786D1CB1A9C85D2C1C0FDCD9C204EA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998454   (870043) от 19.03.2016
-
-Schumann, Argerich, Kremer, Harnoncourt, Chamber Orchestra Of Europe - Piano Concerto - Violin Concerto (1994) [FLAC|Lossless|tracks] <Classical, Romantic>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Concerto In A Minor, Op. 54
-01. Allegro affettuoso  14:24
-02. Andantino grazioso  05:09
-03. Allegro vivace  10:08Жанр: Classical, RomanticПродолжительность: 01:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06E639E6692F22C2E425ABAF8E7FA22349ACC68B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996834   (869970) от 19.03.2016
-
-Anton Bruckner - Symphony No. 4 - LSO, Bernard Haitink (2011) [FLAC 2.0|48/24|Lossless|WEB-DL|tracks] <Symphony>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony No. 4 in E flat major 'Romantic' (1874-80)
-1886 (aka 1878/80) version - ed. Leopold Nowak [1953]
-01 Beweft, nicht zu schnell 20:33
-02 Andante quasi Allegretto 15:07(   Читать дальше...   )Жанр: SymphonyПродолжительность: 01:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AE143D3B82C5213C95FD254BC03A83C277503BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

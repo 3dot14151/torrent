@@ -1,3 +1,86 @@
+###  Публикация: 1370582   (893489) от 29.03.2020
+
+Трупный Яд - Чума (Black Death) (2020) WEBRip [H.264/1080p-LQ] <Thrash>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоклип (2020) Трупный Яд - Чума (Black Death) Vayper
+CDA Трупный Яд - 1995 - О.В.О. При О.В.ДЖанр: ThrashПродолжительность: 00:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6172C9E1F13EB6FC615E8B4132265310BD3488DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370684   (893417) от 29.03.2020
+
+Skrik - Апофеоз (COVID-19. Коронавирус, Италия) (2020) WEBRip [H.264/1080p-LQ] <Hardcore, Crust-Punk>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоклип Skrik - Апофеоз (COVID-19. Коронавирус, Италия)
+CDA Skrik (2020) Жупелъ ЕP (Hardcore, Crust, Россия)Производство: СМЕРЧ-ИНФОЖанр: Hardcore, Crust-PunkПродолжительность: 00:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E222BC7E2F4021C36C0F1DE87CF960CD884796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993716   (893177) от 06.03.2016
+
+VA - Весенний марафон № 226: Хиты до Утра (2016) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весенние (05.03.2016) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. Guard - Give It Up (Official Video) (00:03:14)
+02. Jana Kramer - Said No One Ever (Official Video) (00:03:00)
+03. Kat DeLuna ft. Jeremih - What A Night (Official Video) (00:03:02)
+04. Nicole Cherry - Cine iubeste (Official Video) (00:03:34)(   Читать дальше...   )Жанр: Pop, Dance, Latino, House, Reggae, Rap, Hip-HopПродолжительность: 01:30:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51C1CB2952041FC9EF3E0E4237C3D1843D363E98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 638908   (892066) от 04.04.2013
 
 Lana Del Rey - The Video Collection 2011-2012 [1080] HDRemux
@@ -618,89 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372789   (880337) от 06.04.2020
-
-МУАР -  3 Music Videos (2012-2019) WEBRip [H.264/1080p-LQ] <Alternative Rock, Gothic Metal>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880337.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 2012 МУАР -  Say my name (1080)
-002 2017 МУАР -  За чертой (1080)
-003 2019 МУАР - Вдаль (1080)Жанр: Alternative Rock, Gothic MetalПродолжительность: 00:11:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0252442755B80E2C6408386A8080302D5EFD6ECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373121   (880231) от 06.04.2020
-
-Eternal Delyria - 6 Music Videos (2014-2020) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880231.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 2014 Eternal Delyria - Wake Up
-002 2016 Eternal Delyria - Chasing Shadows
-003 2016 Eternal Delyria - Eradication Of Solitude And Despair
-004 2018 Eternal Delyria - The Awakening(   Читать дальше...   )Жанр: Symphonic Death MetalПродолжительность: 00:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08168D14B7521033F4C4DC139360E59CCF382AA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373441   (880217) от 06.04.2020
-
-Эдуард Суровый (DJ Kopernik) -  Философская (remastered) (2020) WEBRip [H.264/720p-LQ] <Pop>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эдуард Суровый (DJ Kopernik) -  Философская (Remastered) 2020Жанр: PopРежиссер: SMM & DigitalАктеры: Эдуард СуровыйПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F8AC461755C3545E4A020A9076F8666E25749A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

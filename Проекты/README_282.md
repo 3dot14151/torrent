@@ -1,3 +1,57 @@
+###  Публикация: 958125   (324705) от 20.11.2015
+
+Проекты - VideoHive - Holidays Whiteboard Greetings Pack - 6078110 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания новогодней/рождественской презентации.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F26FEDBDCC8B14585FA5394A269A5CA274AFA32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958178   (324636) от 20.11.2015
+
+Проекты - VideoHive - Christmas Greetings - 3343432 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект - Новогодняя заставка.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18689BB9A7936419A4EAE5F54EFA08C0F926D68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958281   (324635) от 20.11.2015
 
 Проекты - VideoHive - Line Particles Logo Reveal [AEP]
@@ -624,58 +678,6 @@ Glass Orb Slideshow - хотите оказаться внутри стекля�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E141579172FDB0BA4D434705710F2E3C5F2093AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075198   (322624) от 21.11.2016
-
-Проекты - VideoHive - Fashion Promo - 18486100 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fashion Promo - привлекательная модная анимация для вашего бизнеса, презентации, портфолио.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:518DA52C4552F605CDABFCB25ACF5761D1A6D0D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331647   (322513) от 16.10.2019
-
-VideoHive - Monster Typeface - 24792969 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Monster Typeface - забавный шрифт из Монстров, который подарит вам стиль Хэллоуина для мультфильмов, промо, рекламы. Этот анимированный шрифт позволит создавать собственные забавные заголовки. Проект содержит полный алфавит анимированных букв. Вы также можете изменить шрифты, размеры, цвет этого шрифта.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48D28FDA76A4882513BE0A9D2F8656C4F0922D01
 ```
 
 https://mybot314.ru/tekegram_catalog/

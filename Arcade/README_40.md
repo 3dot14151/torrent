@@ -1,3 +1,29 @@
+###  Публикация: 588584   (155589) от 13.12.2012
+
+Street Fighter X Tekken [Ru/En/Multi11] (Steam-Rip/1.02/9 DLC) 2012 | R.G. GameWorks
+
+>>След.
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грандиозные состязания между представителями двух популярнейших файтинг-вселенных! Прославленные бойцы Street Fighter сойдутся в эпических битвах два на два с участниками турнира «Железный кулак» из культовой серии Tekken, чтобы раз и навсегда выяснить, чья школа единоборств лучше.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Arcade (Fighting) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский, Multi11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F2E0F66E07384F8B2669DADC3156ABD3FC692F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270789   (155068) от 20.12.2018
 
 Sundered (2017) [Ru/Multi] (911) Repack xatab [Eldritch Edition]
@@ -643,32 +669,6 @@ Worms Revolution [Ru] (Repack/1.0/3DLC) 2012 | DiMoNFliX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F2CFE7A87F6938540630C167C1DCBC6B4A7B068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272504   (138479) от 30.12.2018
-
-Shank (2010) [Ru] (1.3) Repack R.G. Revenants
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брутальный слешер с качественным анимационным оформлением. В основе сюжета Shank лежит классическая история предательства в преступном мире, расказанная в стиле «желтой прессы».Тип издания: RepackРазработчик: Klei EntertainmentЖанр: Arcade (Platform), Action, 3DЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FFEF9FAB9BEE8415E03E1F8DB4991066C99B6FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

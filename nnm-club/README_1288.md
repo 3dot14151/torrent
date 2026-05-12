@@ -1,304 +1,22 @@
-###  Публикация: 1445842   (1033299) от 07.02.2021
+###  Публикация: 1618578   (1033926) от 12.03.2023
 
-WaiFu2‪x 2.10 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033299.jpg" />
-</div>
-
-
-###  Подробнее
-
-WaiFu2‪x это -  приложение для конвертирования изображения с высоким разрешением, для искусства в стиле аниме, с использованием нейронных сетей.Тип издания: macOS SoftwareРелиз состоялся: 02.02.2021Разработчик: Beijing IncaseDo Education Technology Co., Ltd.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED29C249A7778661E30B27D797C7978725BAFBA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445891   (1033298) от 07.02.2021
-
-The 5th Galaxy Orchestra - The Return to Planet Nostalgia (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return to Earth (3:01)
-02. Life Is so Wonderful as You (5:01)
-03. First Call Memories (3:45)
-04. Isabella's Dream (5:41)(   Читать дальше...   )Жанр: Balearic, Chillout, LoungeПродолжительность: 01:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E8C13EE68803C18C472174BCD450092C69D1F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445879   (1033297) от 07.02.2021
-
-VA - Funky House: Crazy Disco Party (2021) [MP3|320 Kbps] <Funky House, Disco House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свежий музыкальный симбиоз танцевальных стилей Disco и Electro House в танцевальном сборнике "Crazy Disco Party" начинает будоражить разум своего слушателя уже с начала первого трека. Музыкальные композиции, вошедшие в микс прекрасно сбалансированы, а также крайне легки для слуха. Саунд микса получился не менее насыщенным и необычайным, чем само содержание (   Читать дальше...   )001. Avrupts & Llolita - Funky Fever
-002. Bass Station - Funky World
-003. Namy F - Bright Eyes
-004. Laser King - Burning Up(   Читать дальше...   )Жанр: Funky House, Disco House, DanceПродолжительность: 08:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3819002B1D16CD94FD9E5129B28E2AD6F0416BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445819   (1033296) от 07.02.2021
-
-MNEKiNG - White After Black (2020) [FLAC|Lossless|WEB-DL|image + .cue] <Acid, Electronic, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Denk mit deinem Kopf / Думай головой
-02. Dispute / Спор
-03. Busy night crossroads / Оживленный, ночной перекресток
-04. Flashing half-stations / Мелькание полустанков(   Читать дальше...   )Жанр: Acid, Electronic, Experimental, IndustrialПродолжительность: 00:53:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA4D8F851FADC1DD6AFEF2EC91D7F6822FC9D272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445886   (1033295) от 07.02.2021
-
-VA - Pure Retrowave, Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phaserland & Nikki Dodds - Hot Stunner (Original Mix) (3:26)
-02. Freeweights - Lightweight (Original Mix) (4:32)
-03. Lghtnng - Sharks (Original Mix) (4:01)
-04. Adal & Freja - Fire To You (Original Mix) (3:19)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D86FC804E54C9CA3364C1D5EE9221572EA4C4EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446058   (1033294) от 07.02.2021
-
-OmmWriter 1.66 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033294.jpg" />
-</div>
-
-
-###  Подробнее
-
-OmmWriter - скромная попытка вернуть себе то, что технология вырвала у нас сегодня: наша способность концентрироваться.
-OmmWriter - это инструмент, который позволяет снова писать в удовольствие, позволяя пользователям оставаться наедине со своими мыслями; Сконцентрироваться и писать без отвлечения. OmlWriter - это нечто большее, чем текстовый процессор.
-Секрет OmmWriter (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.02.2021Разработчик: Herraiz Soto & Co.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82D52F476E236037454FD1753AE70DB26F699284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445896   (1033293) от 07.02.2021
-
-Tim Schaufert - Haunted (2018)  [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Chillstep>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haunted (03:34)Жанр: Ambient, ChillstepПродолжительность: 00:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EDC866BF89A87ACB31AE1F9E346CCC2684BDDA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445893   (1033292) от 07.02.2021
-
-The 5th Galaxy Orchestra - Searching for Atlantis (2019) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Chillout, Dream Pop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqua (3:27)
-02. My Love (3:44)
-03. San Francisco Bay (6:17)
-04. Octopus (4:13)(   Читать дальше...   )Жанр: Balearic, Chillout, Dream PopПродолжительность: 00:58:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FFF0A69E30D595A870561ABA8487DF64E285C03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446102   (1033291) от 07.02.2021
-
-Любовь Вайткене | Копилка секретов. Копилка опытов, экспериментов и полезных знаний (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ни для кого не секрет, что знания, полученные на практике, усваиваются гораздо быстрее и лучше. Хотите проверить? Тогда поскорее загляните в удивительную книгу «Копилка опытов, экспериментов и полезных знаний», ведь это настоящая копилка интереснейших опытов и экспериментов, которые позволят узнать много нового.
-
-Все задания можно провести дома, ведь для этого понадобятся (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ED2F23447B7CBDBA2880E05E043F9673F79C644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442070   (1033290) от 07.02.2021
-
-The Dead Daisies - Holy Ground (2021) [FLAC 2.0|24/96|tracks + .cue|WEB-DL] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holy Ground (Shake the Memory) [00:04:49]
-02. Like No Other (Bassline) [00:03:39]
-03. Come Alive [00:03:50]
-04. Bustle and Flow [00:03:40](   Читать дальше...   )Жанр: Hard RockФормат: PCMПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47E9B2843F878AF89ADE2F8E575B34501268BBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445933   (1033289) от 07.02.2021
-
-JRiver Media Center 27.0.61 RePack (& Portable) by elchupacabra [Multi/Ru]
+YT Downloader 7.22.8 RePack (& Portable) by Dodakaedr [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033926.jpg" />
 </div>
 
 
 ###  Подробнее
 
-JRiver Media Center - мультимедийный центр. Воспроизводит практически все популярные аудио- и видеоформаты, в том числе MP3, аудио-CD и DVD, способен преобразовывать CD-аудиотреки в WAV и MP3, переписывать на жесткий диск виниловые диски и кассеты, а также создавать аудио-CD, причем для выполнения этих задач программа содержит множество настраиваемых параметров. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4A51731EA885E7B3EA0C10625EDB375E115D8A6
+magnet:?xt=urn:btih:6EC17D4A823C9759F923E29A90F3F9A4538A193E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -306,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445876   (1033288) от 07.02.2021
+###  Публикация: 1618765   (1033925) от 12.03.2023
 
-VA - Organic Sound (2021) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+Topaz Video AI 3.1.8 (x64) RePack (& Portable) by elchupacabra [En]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033925.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Музыка, волшебные звуки которой создадут внутреннею гармонию и душевное равновесие. Предлагается к прослушиванию для создания медитативного настроения в свободное время. Облака на небе, шелест листвы и чашка с ароматным кофем станут Вашими лучшими соратниками в этом предприятии.001. Gamma Orionis - The Real Purpose
-002. Maroulé - 808 In A Zoo
-003. Schwartz & Funk - Jeunesse
-004. Coolmix - Heaven(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:38:39
+Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8648295BE9E054828136F6B64DFE2EB017CA44A
+magnet:?xt=urn:btih:6CE538A17BBB4E228C3BF7618CADF4275DE1117D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -335,25 +50,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445910   (1033287) от 07.02.2021
+###  Публикация: 1618543   (1033924) от 12.03.2023
 
-Tim Schaufert & Shwin - Sublime - (2017)  [FLAC 2.0|24/44.1|tracks|WEB-DL] <Ambient, Chillstep>
+Борис Абрамов | Грани Агни-Йоги 1951 (2020) [MP3, Вячеслав Герасимов]
 
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tim Schaufert, Shwin - Sublime (03:55)Жанр: Ambient, ChillstepПродолжительность: 00:03:55
+В аудиокнигу вошли ранее не публиковавшиеся Записи Бориса Николаевича Абрамова.
+Б.Н. Абрамов (1897–1972), проживший многие годы (1917-1959) за рубежом, в Харбине, был ближайшим учеником Николая Константиновича Рериха. Источник Записей и книг Учения Живой Этики – Един. Это подтверждала Елена Ивановна Рерих, в 40-е годы познакомившаяся с первыми Записями. Позже Борис (   Читать дальше...   )Жанр: Мировоззрение,Продолжительность: 09:43:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B73E03916E6E0982A8E048265142FFEBDDC40568
+magnet:?xt=urn:btih:F6F5658D417138D2F82C6A27E78B14F1F73747E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -361,28 +77,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442060   (1033286) от 07.02.2021
+###  Публикация: 1618713   (1033923) от 12.03.2023
 
-Wig Wam - Never Say Die (2021) [FLAC 2.0|44.1/24|tracks + .cue|WEB-DL] <Hard Rock>
+StaxRip 2.14.0 Portable [En]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033923.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Second Crusade [00:00:54]
-02. Never Say Die [00:04:04]
-03. Hypnotized [00:03:56]
-04. Shadows of Eternity [00:03:33](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:31
+StaxRip - инструмент для кодирования видео "все-в-одном", который предназначен для преобразования Blu-ray/DVD/DVB и других видеоформатов в DivX, XviD, H.265, H.264. Поддерживает различные видеформаты (XviD, x264/H264/AVC, x265/H265/HEVC, VP9, AVI, MP4, MKV, WEBM) и аудиоформаты (MP3, AC3, MP2/MPA, AAC, DTS, WAV).
+Присутствует аппаратное кодирование для (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4CDF838C2B3BD9BA3D627D63AE06AFDF6D6E59BB
+magnet:?xt=urn:btih:080633000CDDCD8AF1533EF785C65B283960AEDB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -390,28 +104,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446021   (1033285) от 07.02.2021
+###  Публикация: 1618780   (1033922) от 12.03.2023
 
-Therion - Leviathan (2021) Japan [FLAC|Lossless|image + .cue] <Symphonic Metal>
+Sarah Rodriguez | Артбук по играм студии Halfbrick / The Art of Halfbrick - Fruit Ninja, Jetpack Joyride and Beyond (2018) [CBR] [EN]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Комиксы и Артбуки
+>>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033922.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 The Leaf On The Oak Of Far [00:03:38]
-02 Tuonela [00:04:37]
-03 Leviathan [00:04:02]
-04 Die Wellen Der Zeit [00:03:45](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:08:18
+Артбук содержит эскизы и концепт-арты по играм студии Halfbrick.Жанр: АртбукЯзык: АнглийскийФормат: CBR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D9EB71F65A24CBC719CD394D21A57017961481E9
+magnet:?xt=urn:btih:4D0FE373FECD51D821B4AF3A1EEC47C8D2886128
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -419,28 +130,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445854   (1033284) от 07.02.2021
+###  Публикация: 1618779   (1033921) от 12.03.2023
 
-VA - The Many Faces Of Def Leppard - A Journey Through The Inner World Of Def Leppard (2020) 3xCD [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+Пелам Гренвилл Вудхаус | Держим удар, Дживс! (2022) [MP3, Филипп Матвеев-Витовский]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033921.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD - 1 -  The Many Faces Of Def Leppard:
-01. Roadhouse Feat. Pete Willis & Frank Noon - All Join Hands (4:50)
-02. Gomagog Feat. Pete Willis & Janick Gers - I Will Be There (4:40)
-03. Carmine Appice Feat. Vivian Campbell - Doin' Fine (4:42)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 02:28:53
+Снова и снова Берти Вустер попадает как кур в ощип в крупные неприятности. Ему грозят ужас разорения, позор, скандал и даже женитьба. Однако каждый раз, в самый последний момент, незаменимому дворецкому Дживсу удается найти выход из самой безнадежной ситуации…Жанр: классическая проза, юморПеревод: И. В. ШевченкоПродолжительность: 06:20:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E15C6B3A7665AED6EDE25297A98C2C3A5437A45
+magnet:?xt=urn:btih:EB48DE8436492001FDBA5FDD729AACFD007B3737
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -448,25 +156,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446056   (1033283) от 07.02.2021
+###  Публикация: 1618599   (1033920) от 12.03.2023
 
-Полидор меняет пол / Polidor cambia sesso (1918) WEBRip
+Dinah Washington - Sings The Blues (2006) Going For A Song [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033920.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дядя обещает племяннику 100000 лир, если он женится. Племянник приезжает с невестой - переодетым Полидором...Производство: Италия, Società Italiana CinesЖанр: Комедия, короткометражный, немое киноРежиссер: ПолидорАктеры: Ольга Капри, Матильда Гийом, Полидор (Фердинанд Гийом)Перевод: Немой с интертитрамиСубтитры: Итальянские интертитры, русские отдельным файломПродолжительность: 00:16:08
+01. No Love, No Nothing [2:49]
+02. Shoo Shoo Baby [2:36]
+03. Stairway to the Stars [3:00]
+04. I Want to Be Loved [2:53](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5ECC8A52069C711E375A089E5D0EA09274E8A8AE
+magnet:?xt=urn:btih:80AEF7721DEF07D7BA2C0231DC14636E03F0A6A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -474,25 +185,104 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445912   (1033282) от 07.02.2021
+###  Публикация: 1444975   (1033919) от 04.02.2021
 
-Чудо техники с Сергеем Малозёмовым (07.02.2021) SATRip
+Jitsi desktop 2.10.5550 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jitsi – это зашифрованное приложение для видеоконференций с открытым исходным кодом, которое вы можете использовать для защиты своей конфиденциальности. Безопасная, надежная и полностью бесплатная платформа для проведения онлайн-конференций. Общайтесь по видео с коллегами, приглашайте на переговоры бизнес-партнеров, проводите дистанционные занятия.
+Jitsi это проект (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:302A9ED00DEBC230E86A0A6A8110BEDC4B61CCAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445093   (1033918) от 04.02.2021
+
+Кристина Селл | Йога для продвинутых. Выход за пределы образа тела к целостности и свободе (2021) [EPUB]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Кристины Селл ставит важный вопрос: «Как могла бы измениться наша жизнь, если бы мы не были озабочены своим весом, поглощены сложными отношениями с едой и навязанными нам извне идеями самосовершенствования?» С помощью подсказок и практических советов автор приглашает нас исследовать глубины собственной души. И показывает, как с помощью практики йоги окутать (   Читать дальше...   )Жанр: Йога, Практическая эзотерикаПеревод: Сергей КомаровФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9741F6619517D8CBFBA3E79B201CEF7AAA1B61C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445046   (1033917) от 04.02.2021
+
+Пол Р. Эрлих, Сандра Кан | Укус эволюции. Откуда у современного человека неправильный прикус, кривые зубы и другие деформации челюсти (2021) [FB2]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Огромное количество детей и взрослых по всему миру имеют проблемы с прикусом, и эти проблемы носят не только эстетический характер, они могут стать причиной серьезных заболеваний. В этой книге врач-стоматолог Сандра Кан, и Пол Р. Эрлих, известный биолог, изучают причины и последствия неправильного развития челюсти у современного человека, а также представляют новый (   Читать дальше...   )Жанр: CтоматологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0145FC2DD9789E52FA42C1F3E00D59E71480A87F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445150   (1033916) от 04.02.2021
+
+Тайная жизнь королей и королев Англии /Lives of the Kings and Queens of England (2005) DVB
 
 >>Документалистика и Телепередачи
->>Тележурналистика
+>>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033916.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Тест чудо-товаров: коврик-будильник, безопасный инновационный материал для лепки и портативный аппарат, стерилизующий воздух от аллергенов, бактерий и вирусов. Витаминные уколы: действительно ли живительные инъекции, которые многие клиники предлагают делать для здоровья и красоты, полезны? И о каких не очень приятных побочных эффектах эти клиники предпочитают не (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:39:56
+Сегодня сильным мира сего, богачам и влиятельным людям, приходится быть крайне осторожными, ведь они находятся под пристальным вниманием прессы. О любом их промахе тут же узнает весь мир. В былые времена власть имущие таких проблем не имели. Им не приходилось беспокоиться из-за журналистов, которые выставят на показ все их слабости и пороки. Их частную жизнь не обнажали (   Читать дальше...   )Производство: Великобритания, National DD Television, A&E TelevisionЖанр: Документально-постановочный, биография, историяРежиссер: Джереми ФристонПеревод: Двуголосый закадровый, профессиональный (ТПО "Ред Медиа")Субтитры: отсутствуютПродолжительность: 00:48:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C98FE8F63479CE00AD5227BBF6E3FD99948A293
+magnet:?xt=urn:btih:FC17B9169250964D1EECBE0DC2D85D4CB7F57224
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -500,28 +290,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445575   (1033281) от 07.02.2021
+###  Публикация: 1444749   (1033915) от 04.02.2021
 
-VA - Песни нашего времени 4 (2005) [FLAC|Lossless|tracks + .cue]<Шансон>
+Gabriella Quevedo - Fingerstyle Guitarist (2014-2021) WEBRip [H.264/1080p-LQ] <Acoustic, Pop>
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033915.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. С. Трофимов - Ветер в голове
-02. Т. Тишинская - Угостите даму сигаретой
-03. К. Голицына - Любовь заочная
-04. И. Слуцкий - Оборвётся струна(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:19:41
+Габриэлла родилась и выросла в Чинне, Швеция. Начала играть на гитаре достаточно рано, её первым преподавателем был её отец. С двенадцати лет Габриэлла начала играть на гитаре, в основном в технике фингерстайл. Сначала она играла каверы других исполнителей, а также собственные аранжировки на платформе YouTube. В июле 2018 года альбом с названием "Acoustic Cover (   Читать дальше...   )01. (ABBA) Happy New Year - Gabriella Quevedo
+02. (ABBA) Lay All Your Love On Me - Gabriella Quevedo
+03. (ABBA) Money Money Money - Gabriella Quevedo
+04. (ABBA) The Winner Takes It All - Gabriella Quevedo (std)(   Читать дальше...   )Жанр: Acoustic, PopПродолжительность: ~00:03:00-00:07:00 ролик, (общая 05:50:13)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74D219731311961EEC6CA08516E601A5A769320B
+magnet:?xt=urn:btih:00DBA44CD2F64580B62BC40FD05A33C1974B3C3F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -529,28 +319,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444503   (1033280) от 07.02.2021
+###  Публикация: 1445159   (1033914) от 04.02.2021
 
-Onyx - 100 MAD (2019) [FLAC 2.0|24/48|tracks|WEB-DL] <Rap, Hip-Hop>
+Andy Beane | Maya: Advanced Modeling (2017) PCRec
 
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033914.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 100 Mad Movement Intro (00:43)
-02. Fucc Dis Rap Shit (ft. Planet Asia & Tha God Fahim) (03:32)
-03. Drug Dealers (ft. Jay Nice, Makem Pay & Larceny) (02:41)
-04. Goon Squad (ft. Termanology) (02:51)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:33:29
+Повысьте свой уровень мастерства в Maya, изучив продвинутые методы и инструменты, которые помогут вам с уверенностью подходить к моделированию почти любой формы. В этом курсе инструктор Andy Beane глубоко погружается в моделирование в Maya. Он начинает с обзора основ моделирования, прежде чем переходить к созданию нескольких конкретных моделей - кожаного кресла, (   Читать дальше...   )Производство: LyndaЖанр: МоделированиеПродолжительность: 05:00:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7935191B882E7FDC33A76957F6E9D4228029D3FC
+magnet:?xt=urn:btih:B9AF19FFA75C8C725C47953BB791B452D60A59C2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -558,28 +345,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445577   (1033279) от 07.02.2021
+###  Публикация: 1444964   (1033913) от 04.02.2021
 
-VA - Шоферской 12 (2002) [FLAC|Lossless|tracks + .cue]<Шансон>
+Сергей Зеленин | Сборник произведений [9 книг] (2018-2021) [FB2]
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033913.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. М. Круг - Купола
-02. В. Захаров и Аня Воробей - Трасса
-03. И. Слуцкий - Не могу по другому
-04. Трофим - Голуби(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:14:36
+Сознание нашего человека попадает в тело Императора Российского Николая II - только-только принявшего на себя бремя Верховного Главнокомандующего... Получив возможность перемещаться в прошлое, главный герой встаёт перед нелёгким выбором: «накосить бабла» и жить в своё удовольствие или попытаться изменить ход истории, оптимизировать потери своего народа в первой половине (   Читать дальше...   )Жанр: Альтернативная история, ПопаданствоФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B9C0C9B19B6343301CF58603B461186F88E8CB0
+magnet:?xt=urn:btih:B1896F713A91158731FD63F9A611032482161612
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -587,28 +371,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445887   (1033278) от 07.02.2021
+###  Публикация: 1437866   (1033912) от 04.02.2021
 
-VA - Pure Retrowave, Vol. 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+Сид Чаплин. Тетушка Чарли (Тетка Чарлея) / Charley's Aunt (1925) DVDRip
 
->>Electronic
->>Synthpop, New Wave (Lossless)
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033912.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chris Huggett & Parallels - Golden (Radio Edit) (3:52)
-02. Moonrunner83 & Josh Dally - Hearts On Fire (Original Mix) (4:02)
-03. Morgan Willis & Kel - Brand New (Original Mix) (5:25)
-04. Paradise Walk - Summer Heat (Original Mix) (4:29)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:30:23
+Студенты Оксфорда Чарли Вайкем и его друг Джек Чесней ждут тетушку Чарли, которая должна приехать из Бразилии. Они зовут своих возлюбленных на ланч, чтобы объясниться с ними. А возлюбленные - порядочные девушки, и не придут, если там не будет кого-нибудь еще. Но тетушка задерживается, что же делать? В это время еще один студент Баббс примеряет женское платье для (   Читать дальше...   )Производство: США, Christie Film CompanyЖанр: Комедия, немое киноРежиссер: Скотт СидниАктеры: Сид Чаплин, Этель Шеннон, Джеймс Э. Пейдж, Люсьен Литтлфилд, Алек Б. Френсис, Филлипс Смолли, Eulalie Jensen, Дэвид Джеймс, Джеймс Харрисон, Мэри АкинЯзык озвучки: НемойСубтитры: Русские интертитрыПродолжительность: 01:15:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17BD8A41BADAA1B19631440E81AEC4A0D1F4C3E8
+magnet:?xt=urn:btih:C53F05477DD271E213D8EB61897A7FA2374FD8EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -616,25 +397,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445923   (1033277) от 07.02.2021
+###  Публикация: 1444993   (1033911) от 04.02.2021
 
-Журнал | Делаем сами №2 (2021) [PDF]
+James Schauf | Vehicle Modeling for Production (2018) PCRec [En, Ru]
 
->>Журналы
->>Домоводство (журналы)
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033911.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоФормат: PDF
+В этом курсе James Schauf поделится своими методами/подходами на примере моделирования хотрода в стиле Безумного Макса.
+Начнет James с пояснения значимости этапа сбора референсных изображений, которые при последующей разработке и моделировании будут направлять, ориентировать, вдохновлять, служить основой и источником идей.Производство: The Gnomon WorkshopЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 08:00:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3AD8B28BCAC5BBBDF306A0EFB8250F97D9330E5B
+magnet:?xt=urn:btih:34054EABB895CF7E651C14C48B0C04EF2A88ABF7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -642,28 +424,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445941   (1033276) от 07.02.2021
+###  Публикация: 1445181   (1033910) от 04.02.2021
 
-VA - Romantic Piano - the Rose (1999) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+Светлана Иванова | Тайм-менеджмента нет. Психология дружбы со временем (2021) [EPUB]
 
->>Other Styles
->>Instrumental (Lossless)
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033910.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ronnie Aldrich Piano with Romantic Strings - Love Theme from Romeo and Juliet (3:29)
-02. Ronnie Aldrich, Piano - Wally Stott Orchestra - Theme from Love Story (3:35)
-03. Ronnie Price Piano and Orchestra - A Man and a Woman (1:58 )
-04. Marian McPartland, Piano - I've Got a Crush on You (3:14)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:37:55
+Можно ли управлять ветром, если вы идете на парусной яхте, течением реки, по которой движется лодка, климатом того места, где вы живете? Конечно, нет! Точно так же невозможно управлять и течением времени, но можно научиться со временем дружить.
+Именно об этом и рассказывает Светлана Иванова в своей новой книге. Она не призывает вас пытаться подчинить время, а предлагает (   Читать дальше...   )Жанр: Психология, Саморазвитие, Личностный ростФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93D14894BC8594F370B0522AB54E71897F0CDA2B
+magnet:?xt=urn:btih:0620E349CD176BCAFE9D3ABE928756237DC42B20
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -671,28 +451,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446003   (1033275) от 07.02.2021
+###  Публикация: 1444624   (1033909) от 04.02.2021
 
-VA - Goa Trance 2021: Top 100 Hits DJ Mix (2021) [MP3|320 Kbps] <Trance>
+Тетракварк нового типа открыли с помощью Большого адронного коллайдера
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033909.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Pleiadians - Pleione (Mixed)
-002. Adrenalin Drum (California_Sunshine) - Goa Fantazy (Mixed)
-003. NK47 - Movement (Mixed)
-004. Aum Lab - Meditate (Mixed)(   Читать дальше...   )Жанр: TranceПродолжительность: 08:23:02
+МОСКВА, 2 февраля. /ТАСС/. Международная группа ученых в ходе исследований на Большом адронном коллайдере обнаружила новую частицу, представляющую собой тетракварк. Результаты измерений объекта вносят вклад в фундаментальную науку об элементарных частицах, сообщили ТАСС во вторник в пресс-службе Национального исследовательского центра "Курчатовский институт"."Ученые (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B4327A410F811C87FB2A89A665989B5244363B1
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -700,28 +477,211 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442057   (1033274) от 07.02.2021
+###  Публикация: 1445020   (1033908) от 04.02.2021
 
-Phantom Elite - Titanium (2021) [FLAC 2.0|24/44.1|tracks + .cue|WEB-DL] <Symphonic Power Metal>
+Сауле Кха | Строим позы (2020) PCRec
 
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033908.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Conjure Rains [00:04:32]
-02. The Race [00:03:50]
-03. Diamonds and Dark [00:04:49]
-04. Worst Part of Me [00:04:42](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:48:19
+Во время мастер-класса Сауле расскажет о частых ошибках фотопозирования и необходимости избегать или же, наоборот допускать их намеренно, о способе взаимодействия с моделью, психологическом его аспекте, а также уделит внимание взаимодействию работы со светом с расположением модели в поле кадра.Производство: Первый Фото КаналЖанр: ФотографияПродолжительность: 01:00:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B43865F9A6DA52350DAF8F8F04783991D0B24838
+magnet:?xt=urn:btih:785EC70AA15C307B3C980EFB21EDC27544378399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445005   (1033907) от 04.02.2021
+
+PassMark BurnInTest Pro 9.2.1002.0 (x64) RePack (& Portable) by elchupacabra [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Passmark BurnInTest — профессиональная версия программы для всестороннего и детального тестирования компонентов компьютера. Утилита тестирует скорость процессора, оперативную память, жесткие диски, CD/DVD приводы, звуковые карты, видеокарты, принтеры, сетевые соединения.
+
+BurnInTest Professional также может проводить тестирование последовательных (до 12 портов одновременно) (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B63F1E85B4E6E68F3B43D38E2D828704DBA6820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444958   (1033906) от 04.02.2021
+
+Microsoft PowerToys 0.31.1 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft PowerToys – это набор утилит, позволяющих опытным пользователям настраивать и оптимизировать работу оболочки Windows 10 для повышения производительности трудаЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAD645EF8A7891F11514F6FF889AD855E40F28D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445151   (1033905) от 04.02.2021
+
+Юлия Зарх | Выбор локации, съемка и обработка (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обучающий видеокурс по подбору локаций, фотосъемке и обработке. Юлия создает сказочные фотографии и, зачастую, рядом с домом.
+
+Название видеокурса «Выбор локации, съемка и обработка» само раскрывает его содержание. Автор видеокурса Юлия Зарх подробно расскажет о выборе локации, фотосъемке и обработке фотографий. Мы научимся создавать необычные сказочные фотографии, (   Читать дальше...   )Производство: Юлия ЗархЖанр: фотографияПродолжительность: 02.00.00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE1B967AFA5E9E19C526FCA7DF8F3CB4CEE7170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444974   (1033904) от 04.02.2021
+
+Илиана. Верь мне (2019) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встреча красавицы Илианы и профессора Федора Левашова на выставке художника Ивана Бодрова, у его знаменитой картины «Улыбка поляницы», станет роковой. Федора пленит красота, ум и загадочность Илианы.Вскоре они станут семейной парой, но их союз будет далеко не идеален. Откровение Илианы, сделанное однажды во время семейного обеда, шокирует Фёдора. Запланированный (   Читать дальше...   )Производство: Россия / Домино фильмЖанр: Детектив, триллер, драма, криминалРежиссер: Владимир КойфманАктеры: Ина Баррон, Иван Босильчич, Анна Чурина, Виктор Сухоруков, Макар Запорожский, Алексей Морозов, Алексей БарабашСубтитры: ОтсутствуютПродолжительность: 01:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DA7AE5948C38BF62F742BFB1540FB57FDE38D41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444990   (1033903) от 04.02.2021
+
+Новый Человек-паук: Высокое напряжение / The Amazing Spider-Man 2: Rise of Electro (2014) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Питер Паркер под маской Человека-паука по-прежнему спасает мир от злодеев и преступников, а свободное время проводит со своей возлюбленной Гвен, но школьная пора близится к концу, и впереди героев ждет взрослая жизнь. Питер помнит о том, что дал отцу Гвен слово навсегда уйти из жизни девушки, тем самым больше не подвергая ее опасности. Однако сдержать это обещание (   Читать дальше...   )Производство: США / Marvel Enterprises, Avi Arad Productions, Columbia PicturesЖанр: Фантастика, боевик, приключенияРежиссер: Марк УэббАктеры: Эндрю Гарфилд, Эмма Стоун, Джейми Фокс, Дэйн ДеХаан, Салли Филд, Колм Фиор, Фелисити Джонс, Пол Джаматти, Мартон Чокаш, Кэмпбелл СкоттПеревод: Дублированный, авторскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 02:21:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF304C26BAFFCC11425BD7F96FA5E98797E7C4F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445071   (1033902) от 04.02.2021
+
+Battle of Warships Морской бой v1.72.12 [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Battle of Warships: Морской бой - Отличная игра для любителей морских сражений. В игре вам будут доступны большая часть кораблей времен Первой и Второй Мировой войны. Вы сможете погрузится в эпическую атмосферу морских боев.Тип издания: Пиратка (Мод) Много денег!Релиз состоялся: 15 марта 2020 г.Разработчик: MobileGDCПоддерживаемая ОС: Android 4.1 и вышеЖанр: ЭкшенЯзык интерфейса: Русский есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B7AD5B2C3C134B96E6325FE7D24F23ABF26CCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445004   (1033901) от 04.02.2021
+
+Бэтмен: Нападение на Аркхэм / Batman: Assault on Arkham (2014) BDRip [H.264/1080p-LQ] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Секретная правительственная организация формирует спец группу «Суицидальный отряд», состоящую из наемников и убийц, чтобы проникнуть в психиатрическую лечебницу Аркхам и добыть похищенную засекреченную информацию из рук заключенного Эдварда Нигмы, «Загадочника».Производство: США / DC Entertainment, Warner Bros. Animation, Warner PremiereЖанр: мультфильм, фантастика, боевик, триллер, криминал, приключения, семейныйРежиссер: Джей Олива, Этан СполдингПеревод: Многоголосый профессиональный (Flarrow Films)Субтитры: русскиеПродолжительность: 01:15:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E53923CE781B295F6EEA56E9C91E215FDAADB621
 ```
 
 https://mybot314.ru/tekegram_catalog/

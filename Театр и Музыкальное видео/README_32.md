@@ -1,3 +1,110 @@
+###  Публикация: 997146   (875237) от 16.03.2016
+
+Metallica - The Videos 1989-2004 [iTunes M4V Album] (2006) [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cборник видеоклипов The Videos 1989—2004 содержит все на тот момент (2006г) видеоклипы, в разное время снятые группой, начиная с «One» 1989 года и заканчивая «Some Kind of Monster» 2003-го, а также различные бонус-материалы, включая альтернативные версии клипов и трейлер к документальному фильму 2005 года «Metallica: Some Kind of Monster».1. One
+2. Enter Sandman
+3.The Unforgiven
+4. Nothing Else Matters(   Читать дальше...   )Жанр: МузыкаАктеры: Kirk Hammett, Lars Ulrich, James Hetfield, Robert Trujillo, Jason NewstedПеревод: ОтсутствуетПродолжительность: 02:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C532F401DE229855C54D837CED3675293691E4C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373799   (874435) от 09.04.2020
+
+Feuerschwanz - Das Elfte Gebot (2020) WEBRip [H.264/1080p-LQ]<Mitellater Folk-Rock>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Feuerschwanz - Das Elfte GebotЖанр: Mitellater Folk-RockПродолжительность: 00:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA630F5B7F76E12B03A58ABA306647450A625EF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106465   (873388) от 19.02.2017
+
+Федор Достоевский - Нелепая поэмка (2006) HDRip (Московский ТЮЗ)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кама Гинкас - один из немногих режиссеров, которые несмотря ни на что не изменяют себе. Мир его спектаклей неизбежно трагичен. Его театральная эстетика подавляет, а разум и сердце, растревоженные его особенным талантом, надолго теряют благостный покой. Сегодня обращение режиссера к Достоевскому, в частности к «Братьям Карамазовым», закономерно и логично. Выбрав для (   Читать дальше...   )Производство: Россия, Московский театр юного зрителяЖанр: Спектакль, драмаРежиссер: Кама ГинкасАктеры: Игорь Ясулович, Николай Иванов, Александр Паль, Александр Тараньжин, Илья Смирнов, Алексей Алексеев (II), Евгений Березовский, Михаил Парыгин, Евгений Волоцкий, Руслан Рафаелов, Екатерина Кирчак, Наталья ЗлатоваПродолжительность: 02:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:924CC9911CBEFE3EB902D7DB97842008B1D85B14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 644050   (873265) от 14.04.2013
+
+Major Lazer feat. Busy Signal & The Flexican & FS Green - Watch Out For This (Bumaye) (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ReggaeПродолжительность: 00:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1A7D0C21B6892CFDBA2B0FDB3996EBF63A38FBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374429   (872834) от 10.04.2020
 
 Disbelief - The Ground Collapses (2020) WEBRip [H.264/1080p-LQ] <Thrash, Sludge Metal>
@@ -589,117 +696,6 @@ CDA We Blame The Empire (2020) AeroПроизводство: Animals Mosh Harder
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA32B99DCD6469B16AE31680D9FDE6062FC375B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375554   (863763) от 15.04.2020
-
-Concepts - Worry About Me (Ellie Goulding & blackbear Cover) (2020) WEBRip [H.264/1080p-LQ] <Post-Hardcore, Metalcore>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863763.jpg" />
-</div>
-
-
-###  Подробнее
-
-CDA: Concepts (2020) Worry About Me (Ellie Goulding & blackbear Cover) (Single)
-Music Video: Ellie Goulding & blackbear - Worry About Me (2020)Жанр: Post-Hardcore, MetalcoreСубтитры: ENПродолжительность: 00:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B64D932DE5F7AA107F3228C912F8AFA9958307BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375301   (863761) от 15.04.2020
-
-Kill the Kong - 7 Music Videos (2015-2020) WEBRip [H.264/2160p/1080p-LQ] <Sweden Metalcore, Groove Metal >
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863761.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 2015 Kill The Kong - Caged (2160)
-002 2016 Kill The Kong - Bring the Heat (1080)
-003 2017 Kill the Kong - Ashes In the Wind (1080)
-004 2017 Kill The Kong - Juggernaut (Wolfpack) (1080)(   Читать дальше...   )Жанр: Metalcore, Groove MetalПродолжительность: 00:28:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6415CC82F6FA5E48B89C86BA0DD006F55A0FD3FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375328   (863609) от 15.04.2020
-
-Bongtower - 5 Music Videos (2019) WEBRip [H.264/1080p-LQ] <Stoner, Doom Metal>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863609.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 2019 Bongtower - Altered States (1080)
-002 2019 Bongtower - Bong Rider (1080)
-003 2019 Bongtower - Defender of Humanity  (1080)
-004 2019 Bongtower - What's Wrong With You (1080)(   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:867505AB59C1D7A933E468830917ABBE550DE704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 645366   (863578) от 19.04.2013
-
-Mike Oldfield - Tubular Bells II and III Live (1999) 2*DVD-5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майкл Гордон Олдфилд (Michael Gordon Oldfield; 15 мая 1953, Рединг, Беркшир) — британский мультиинструменталист и композитор, работающий в самых разнообразных жанрах: прогрессив и арт-рок, электронная музыка, фолк, кельтская музыка. Дебютный концептуальный альбом Майкла Олдфилда «Tubular Bells», главная тема из которого была использована в мистической драме 1973 года «Изгоняющий дьявола» и получила Grammy за лучшую инструментовку; в 2002 году был включен в рейтинг The 25 Most Influential Ambient Albums Of All Time (25 главных альбомов всех времён в стиле эмбиент). Новаторское использование модифицированных католических трубчатых колоколов и уникальное звучание его немного перегруженных гитар наряду с огромным количеством монтажных склеек и наложений при записи сделало стиль Олдфилда узнаваемым и стало основой его музыкального пути. Tubular Bells была первой пластинкой, выпущенной на новосозданном лейбле Virgin Records. В 2003 году она была заново перезаписана и издана в несравненно лучшем качестве. На последних (   Читать дальше...   )Жанр: Progressive Rock, New Age, Pop/Rock, Electronic, Progressive Pop, Folk Pop, PopПеревод: ОтсутствуетПродолжительность: 02:01:04
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1454481   (1026270) от 15.03.2021
+
+VA - Weekend Picks: Tech House Electro Party (2021) [MP3|320 Kbps] <Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы любитель клубных тусовок и новинок клубной музыки, то сборник "Weekend Picks" - именно для Вас. Новинки, собранные в этом сборнике, подарят вам заряд энергии, бодрости и перенесут на танцполы мировых клубов!001. Mattia Trani - Collapsar
+002. Matasism - Body Resistance
+003. Zephyr - Skulls (Industrial Mix)
+004. Sera J - Pads (Original Mix)(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 12:21:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5144B655B1D8CB9AEDA00CA3BA8C542CC0EFC9D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454482   (1026259) от 15.03.2021
 
 VA - The Wings Ascending (2021) [MP3|320 Kbps] <Uplifting Trance>
@@ -716,35 +745,6 @@ VA - Chill Electronic: Slow Motion Mix (2021) [MP3|320 Kbps] <Chillout, Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC4EE5CBEDFC7B90EC9494B787191FFC4E8616A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457651   (1024190) от 27.03.2021
-
-VA - Club Music vol.1 (2021) [MP3|320 Kbps] <Club, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024190.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ANIKV, SALUKI, Alex Shik - Меня не будет (Alex Shik Remix) (3:03)
-002. RASA, Lavrushkin - Dior (Lavrushkin Radio Mix) (2:47)
-003. Armin van Buuren - Blah Blah Blah (3:03)
-004. Laidback Luke, Mark Bale - Party Starter (2:11)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 06:12:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A532E89A1667F6D794A1B155B4AC51EB584D46E
 ```
 
 https://mybot314.ru/tekegram_catalog/

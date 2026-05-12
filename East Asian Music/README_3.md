@@ -1,3 +1,38 @@
+###  Публикация: 315415   (811999) от 01.04.2011
+
+Heartsdales - 2 альбома (2005-2006) [FLAC|Lossless]<J pop, Jurban, hip-hop>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_811999.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Legend Begins
+2. So Tell Me
+3. That's Why
+4. BODY ROCK
+5. Should Have What!? (feat. DOUBLE)
+6. Thru With You
+7. CANDY POP (feat. SOUL'd OUT)
+8. I See You
+9. LOVE & JOY
+10. fantasy(   Читать дальше...)Жанр: J pop, Jurban, hip-hopПродолжительность: 01:08:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 317263   (811384) от 01.04.2011
 
 Buddhist Monks Of Maitri Vihar Monastery - Sartori: Tibetan Mantras & Chants (1997) [MP3|192 kbps]<Tibetan mantras>
@@ -765,35 +800,6 @@ Yuki Murata - Gift (2014) Ricco Label [FLAC|Lossless|tracks + .cue] <Modern Clas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FF924167FEE7DBFFE54A8B754ED5D8BD22AF84D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019393   (749758) от 23.05.2016
-
-Yoshida Brothers - Hishou (2007) [FLAC|Lossless|tracks + .cue] <Folk, World, Instrumental>
-
->>East Asian Music
->>Asian Traditional, Ethnic (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude: Hishou
-02. Ibuki (Hishou Version)
-03. Kodo (Hishou Version)
-04. Ringo Bushi(   Читать дальше...   )Жанр: Folk, World, InstrumentalПродолжительность: 01:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64091154F1359423AB165E2376853ACE52128EA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

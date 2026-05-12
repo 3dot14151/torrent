@@ -1,3 +1,61 @@
+###  Публикация: 733657   (285105) от 13.12.2013
+
+Europe - Live at Sweden Rock: 30th Anniversary Show (2013) Blu-Ray [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro / Riches To Rags
+ 02. Firebox
+ 03. Not Supposed To Sing The Blues
+ 04. Scream Of Anger(   Читать дальше...   )Жанр: МузыкаПродолжительность: 02:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96DD3B1CAB70C4CAFE991343DADBD6AD37AC624F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 733711   (285022) от 13.12.2013
+
+Muse: Live at Rome Olympic Stadium (2013) Blu-Ray [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Intro"
+ 02. "Supremacy"
+ 03. "Panic Station"
+ 04. "Plug In Baby"(   Читать дальше...   )Режиссер: Matt AskemПродолжительность: 01:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED3F3536BADE9C4C413701A9C4C399A9137C1BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186811   (284240) от 26.11.2017
 
 Квартирник на НТВ у Маргулиса. Градусы (25.11.2017) WEBRip [H.264/1080p-LQ]
@@ -665,70 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE521850B3EDB05532811539704502E03F40196E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496999   (253277) от 15.05.2012
-
-The Australian Pink Floyd Show Live at Hammersmith Apollo (2011/2012) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шоу знаменитой трибьют группы01 Shine On You Crazy Diamond 1-5
-02 Welcome To The Machine
-03 Coming Back To Life
-04 Arnold Layne
-05 Sorrow
-06 Learning To Fly
-07 Dogs
-08 Speak To Me
-09 Breathe
-10 On The Run(   Читать дальше...   )Жанр: Progressive rock, psychedelic rockПеревод: ОтсутствуетПродолжительность: 02:30:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836174   (252488) от 09.11.2025
-
-Квартирник у Маргулиса. Ромарио (08.11.2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллектив «Ромарио» был основан в Екатеринбурге в 2005 году. Лидер группы – поэт и композитор Роман Луговых, выступающий под одноименным псевдонимом. В 2007 году музыканты перебрались в Москву, где записали песни «Секс в большом городе» и «Не бойся влюбиться», а затем сняли на них клипы. Вскоре после этого группа приостановила концертную деятельность, а Роман Луговых (   Читать дальше...   )00:00:05 Увидел-полюбил
-00:04:55 С девяти до шести
-00:13:25 Кто, если не мы
-00:20:38 Безответно так(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: рок, поп, блюзЯзык: РусскийПродолжительность: 01:17:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C295987ADBEA8C9A8A6FB8B219FB70B9A613D204
 ```
 
 https://mybot314.ru/tekegram_catalog/

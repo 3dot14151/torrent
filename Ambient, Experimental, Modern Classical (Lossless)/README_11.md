@@ -1,3 +1,32 @@
+###  Публикация: 1304328   (565539) от 25.05.2019
+
+Hipnotic Earth - Suspended In Silence (2019) Whitelabrecs [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gentling (04:17)
+ 02. After The Rain, Moss (so) Alive (04:20)
+ 03. Cascade Of Prisms (04:46)
+ 04. Snow Begins To Fall (06:48)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ExperimentalПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:324AEF3F7E15935AA7D3A14680319ABFFDAE9AB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 234274   (564981) от 25.05.2019
 
 C.J. Catalizer | Abiogenesis - Discography 4 Releases (2006-2017) Altar Records [FLAC|Lossless|tracks+.cue, tracks]<Psybient, Downtempo, Ambient, Psyсhill, Progressive Trance>
@@ -710,35 +739,6 @@ Node - Node Live (2018) DiN [FLAC|Lossless|WEB-DL|tracks] <Ambient, Berlin-Schoo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC8B35000BE06C066BEACE5DD62B023F5A1A9AC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239833   (535323) от 07.08.2018
-
-Raphaël Marionneau - Le Classique Abstrait Volume 1 (2002) Abstrait Music [FLAC|Lossless|tracks+.cue] <Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Porz Gwenn Variation 1: Tal Ar Mor (04:25)
- 02. Beau Soir (02:48)
- 03. Le Dernier Sommeil De La Vierge (03:45)
- 04. Heaven In A Wild Flower (04:18)(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 01:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47DAE71C880C7C360355AE8E5D24E238C7D50526
 ```
 
 https://mybot314.ru/tekegram_catalog/

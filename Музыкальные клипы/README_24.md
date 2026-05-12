@@ -1,3 +1,90 @@
+###  Публикация: 943852   (444752) от 05.10.2015
+
+VA - Осенний марафон № 195 / Видеоклипы (Зарубежный Хит Парад) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (04.10.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. A. Rose Jackson - Lover's Collide (Official Video) (00:02:50)
+2. Ailee - Mind Your Own Business (Official Video) (00:04:20)
+3. Alex Adair - Heaven (Official Video) (00:03:07)
+4. Amfree - The Sweetest Symphony (Official Video) (00:03:01)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Electronic, Indie, RockПродолжительность: 01:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEC266122BC11B7D4446EBB9AA962E28AF45D6D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 706263   (444038) от 02.10.2013
+
+Сборник клипов - VA - Various Music part. 46 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444038.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 50 Cent - Outta Control 1080p (3:23)
+2. Aircraft & Miss Palmer - Dont Ever Let Go 1080p (3:23)
+3. Alchemist Project Feat.Angie - Don't let me down 1080p (3:10)
+4. Alex C feat. Lisa Rowe - Feed Me Diamonds 1080p (3:38)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E87DB59ECAB6DFB15A6A4359C593CAEC047E173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061467   (443628) от 12.10.2016
+
+Баджирао и Мастани / Bajirao Mastani (2015) BDRip 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед Вами роскошные клипы из фильма, повествующего об удивительной истории любви Баджирао и его второй жены, принцессы Мастани... Наслаждайтесь восточным зрелищем!1. Aayat
+2. Deewani Mastani
+3. Malhari
+4. Mohe Rang Do Laal(   Читать дальше...   )Производство: Индия (EROS)Жанр: Музыка, клипыРежиссер: Санджай Лила Бхансали (Sanjay Leela Bhansali)Актеры: Приянка Чопра, Дипика Падукон, Ирфан Кхан, Ранвир Сингх и др.Язык субтитров: РусскийПродолжительность: 00:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B08664B9F82E322A94ADB29EB1C60D5EF81684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 553243   (443354) от 28.09.2012
 
 Uriah Heep - More Of Classic Heep Live (Video Сollection1972-1978) (2012) VHSRip
@@ -638,85 +725,6 @@ VA - Осенний марафон № 198 / Видеоклипы (Лучшая 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4903100F533A3FF55E533127203DAF552F612A5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559270   (409693) от 12.10.2012
-
-Linkin Park - Castle Of Glass (Featured in Medal of Honor Warfighter) (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: AlternativeПродолжительность: 00:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48C6AF648336ADEE814BD995A2F102492D6D906C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559503   (409588) от 12.10.2012
-
-Рок'н'Ролл / Rock N Roll Meltdown (1988) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличнейший сборник  клипов (heavy metal, hard / glam rock) ...
-( Некоторые клипы ну ОЧЕНЬ редкие!)Жанр: Музыка,Heavy Metal, Hard , Glam RockПродолжительность: 00:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C874A0D9299E562FBC635FA96609BAE96FFD64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168284   (408562) от 24.09.2017
-
-Облака плывут над головой (2017) WEB-DLRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хочешь время жди хочешь правды нет ответов без упреков и запретов там вдали странных птиц седая стая первый желтый лист растаял лишь дотронувшись земли облака плывут над головой я с ними ухожу оставив землю людям облака плывут и надо мной я с ними ухожу я больше так не буду кто придумал сны переделанную правду как герои без награды не видны где то есть другое море (   Читать дальше...   )Производство: РоссияЖанр: Рок, Поп-рокПродолжительность: 00:04:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B82676F14A037088B780B250CDAA1C5101B866A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

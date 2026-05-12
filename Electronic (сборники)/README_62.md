@@ -1,3 +1,32 @@
+###  Публикация: 1207704   (780431) от 19.02.2018
+
+VA - Empire Records - Night Wave (2018) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hess Is More - Yes Boss (Mr. Gun X Isabelle Remix)
+02. Bo & Serhat Durmus feat. Ecem Telli - Elimi Tut
+03. Nando Fortunato feat. Sephora - You're Not Alone (Radio Edit)
+04. Katodik & Maria Estrella - Million Miles (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91766F32E85D0B813B9CB7A657EAE002509786CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207630   (780424) от 19.02.2018
 
 VA - Empire Records - Fake 2 (2017) [MP3|320 Kbps] <Trance>
@@ -716,35 +745,6 @@ VA - Vocal Endless Story (2018) [MP3|320 Kbps] <Energy, Blissful, Uplifting>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7D440E783B59C3F11E9818248B75880C6A4F652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209824   (779119) от 28.02.2018
-
-VA - Chill Dance Music (2018) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779119.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 3 Doors Down - Here Without You
-002. Alastair Pursloe - 36 Degrees in the Shade
-003. AnatolliMal - Coordinates 06,02,15 (Original Mix)
-004. Autograf feat. Lils - You Might Be (MICA Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 08:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2582261E384123B43C858C53DFAB925B4C0A185
 ```
 
 https://mybot314.ru/tekegram_catalog/

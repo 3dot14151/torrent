@@ -1,3 +1,29 @@
+###  Публикация: 1182975   (653593) от 22.05.2018
+
+Квартирник на НТВ у Маргулиса. Калинов мост (11.11.2017) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653593.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гости к Евгению Маргулису пришла рок-группа из Новосибирска "Калинов мост". Музыканты вспомнили, как начиналась их карьера, лидер Дмитрий Ревякин рассказал о влиянии народных песен и славянской мифологии на творчество группы, а Евгений Маргулис исполнил одну из песен, написанную солистом и основателем коллектива "Калинов мост", в стилистике (   Читать дальше...   )Производство: Жанр: КонцертПродолжительность: 00:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B06EBDFBDAA55F58A6C2A8A99153EA0468948A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903050   (651205) от 05.06.2015
 
 The Police: Certifiable - Live in Buenos Aires (2008) BDRip [H.264/720p]
@@ -690,35 +716,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D01566BC76EE6852D1FBA67BF49DFFC4D29D501C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909820   (625682) от 18.06.2015
-
-Slash Featuring Myles Kennedy and The Conspirators - Live At The Roxy  (2014) BDRemux [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625682.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 сентября 2014 года, вскоре после выхода альбома «World On Fire», Slash Featuring Myles Kennedy & The Conspirators сыграли концерт в легендарном Roxy Theatre, Сансет-Стрип, Голливуд.01. Ghost
-02. Nightrain
-03. Back From Cali
-04. You Could Be Mine(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:26:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C683C7312642C2EBF46437D9558ED2780EF3775F
 ```
 
 https://mybot314.ru/tekegram_catalog/

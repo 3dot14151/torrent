@@ -1,3 +1,32 @@
+###  Публикация: 1506102   (800830) от 30.10.2021
+
+VA - Best of Classical Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. London Philharmonic Choir - Carmina Burana, Fortuna Imperatrix Mundi No. 1, O Fortuna (2:42)
+02. London Philharmonic Orchestra - Orchestral Suite No. 3 in D Major, BWV 1068 II. Air (4:14)
+03. Finghin Collins - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight I. Adagio sostenuto (5:36)
+04. SWR Symphony Orchestra - Symphony No. 41 in C Major, K. 551 (   Читать дальше...   )Жанр: Classical, InstrumentalПродолжительность: 08:20:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CE039306EA458C00B994C0AA3F6865201229F5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199761   (800142) от 17.01.2018
 
 Riccardo Muti & Wiener Philharmoniker - New Year's Concert 2018 (2018) 2CD [FLAC|Lossless|tracks + .cue] <Classical, Orchestral>
@@ -739,41 +768,6 @@ CD 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD37CEF688E4C24DC87437BF6B3274F2FE5CA549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539371   (502009) от 30.08.2012
-
-VA - The Top 100 Masterpieces Of Classical Music: 1685-1928 (1991) [FLAC|Lossless]<Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Also Sprach Zarathustra - Fanfare [01:31]
-Orchestra – Hungarian State Orchestra Written-By – R. Strauss
-02. Symphony No. 5 - Adagietto [09:42]
-Orchestra – Budapest Festival Orchestra Written-By – Mahler
-03. Finlandia [08:58]
-Conductor – Rouslan Raychev Orchestra – Plovdiv Philharmonic Orchestra Written-By – Sibelius
-04. Dance Of The Bunble Bee [01:45]
-Cello – Miklos Perenyi Piano – Zoltan Kocsis Written-By – Rimsky-Korsakov
-05. Meditation, From "Thais"[05:05]
-Orchestra – Budapest Philharmonic Orchestra Written-By – Massenet(   Читать дальше...   )Жанр: ClassicalФормат: 10 CD BoxSetПродолжительность: 01:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BF198D54050AAE1F29390D91B3412EEB76E5C96
 ```
 
 https://mybot314.ru/tekegram_catalog/

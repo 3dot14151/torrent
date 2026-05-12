@@ -1,3 +1,115 @@
+###  Публикация: 546651   (478264) от 13.09.2012
+
+Digital Juice - Swipes! 29: Mixed Bag 3 (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Swipes! v29: Mixed Bag 3 - разнообразные анимированные видео-переходы с альфа-каналом. Этот сборник без особой тематики и он неплох, чтобы начать Вашу видео-коллекцию, так как здесь есть кое-что для всех.
+Swipes! это сборники анимированных видео-переходов с альфа-каналом, которые могут быть использованы в любой программе видеомонтажа. Для каждого ролика предоставляются звуковые эффекты, а начиная с Volume 13 ещё и маски.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E434CB9843EE8D0DEFC66939C1BBCF4E81B76440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546510   (478218) от 13.09.2012
+
+Шаблоны - Photobooks MIX 3 [PSD,PNG,JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивые шаблоны для создания альбомов , Scrapbook - "LOVE"  и набор рамок
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC17D7490A7359F47F57CC15E007B88C1647D33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546644   (478210) от 13.09.2012
+
+Digital Juice - Motion Design Elements Standart 11: Logo Revealers (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Juice - Motion Design Elements Standart 11: Logo Revealers (Full ISO)
+Название: Digital Juice Motion Design Elements 011: Logo Revealers
+Официальный сайт: Digital Juice
+Homepage: www.digitaljuice.com/products/products.asp?pid=244 (not available)
+Тип раздаваемого: Video FX, Footage
+Разрешение файлов: 1080x1080 to 1920x1080 at 60 fps
+Расширение (тип) файлов: .iso (.mov)Motion Design Elements 011: Logo Revealers - Библиотека анимированных элементов дизайна, предназначенных прежде всего для выделения линейных текстовых блоков. Однако, этот сборник шагает вперёд, расширяя Revealer-концепцию за счёт увеличения размера анимации, которая теперь может быть использована для выделения не только текста, но и логотипов, и другой графики.Область применения для этого вида анимированных элементов выходит далеко за пределы очевидного. Из-за своих больших размеров (более, чем HD), Logo Revealers могут действовать на экране так же быстро и интересно, как полные или частичные видео-переходы. Или же они могут быть уменьшены (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A027567F962BA36A4B94C057685F2E898DC450FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244887   (477835) от 03.09.2018
+
+Экшены - GraphicRiver - Galaxian Photoshop Action - 22392317 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Galaxian - этот экшен фотошоп даёт вашим фотографиям удивительный галактический эффект. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.
+Для достижения наилучших результатов рекомендуется использовать фотографии высокого разрешения в диапазоне 1900px-2500px. Оптимальный диапазон (   Читать дальше...   )Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FD2546EF16BFD0EAEC74CC4E94EE8B0D77904D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938602   (477416) от 20.09.2015
 
 Кисти - Daz 3D - Ron's Fog II - 14755 [ABR]
@@ -584,114 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F8B94A32DF1EBBE29CE23A9E9ABEC3D90B82841
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701567   (473792) от 19.09.2013
-
-Digital Juice - Drag & Drop - All 8 Volumes (converted) [MP4]
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все 8 пакетов (Film Clutter, Bokeh, Unnecessary Roughness, Light Sweeps, Glitch FX, Reflective Thoughts, Damage Control, Light Leaks)
-Всё разложено по папкам и переведено в .mp4 1080p ~10Mbps
-Практически без потери качества...Формат: MP4Разрешение файлов: 1080p
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9DB537F74DC49528EEEC3542E77877D300BFC98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245322   (473749) от 05.09.2018
-
-Экшены - GraphicRiver - Daguerreotype Photo - Photoshop Action - 22489108 [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daguerreotype Photo - этот экшен фотошоп даёт вашим изображениям, фотографиям удивительный эффект Дагерротипа. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E803C0CA88CF43A16D5D5068CD03964B43A1100E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245273   (473740) от 05.09.2018
-
-3D модели - Daz 3D - Latonya 8 Pro Bundle - 52605 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Latonya 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F9BA3C5DFE0F988E007201C7D0F978615C02DFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245281   (473668) от 05.09.2018
-
-3D модели - Daz 3D - Monique 8 Pro Bundle - 47321 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Monique 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32FCBC02640BB606223DA7DDB401FC9A6AF4551B
 ```
 
 https://mybot314.ru/tekegram_catalog/

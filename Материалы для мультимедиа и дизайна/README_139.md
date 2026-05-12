@@ -1,3 +1,107 @@
+###  Публикация: 1219903   (709483) от 16.04.2018
+
+Кисти - Gumroad - ZBrush/SP - 18 Rock Brushes + 3 Ztool rocks, mini tutorial [ZBP, ZTL, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользовательские каменные кисти и альфа-набор, 18 кистей и альфа-карт + 3 зубчатые скальные сеткиФормат: ZBP, ZTL, PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E7C47307E0006A687280DC968ADDD7277EF7993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025623   (709416) от 12.06.2016
+
+Шаблоны - Creativemarket - 3D Template catalog+PSD [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон для создания 3D обложки.Формат: PSDРазрешение файлов: 5000x3000 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1600CF5ABCF3FEE2200E581EEC3738F439C645AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401532   (709275) от 10.08.2020
+
+Растровый клипарт - Beautiful pansy summer flowers stock photo [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивые летние цветы анютины глазки, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3744x5616-5616x3744
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE64E6ECD4A4EBD148229EFC80698971C3994F01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401544   (709164) от 10.08.2020
+
+Стили - The Hungry JPEG - Gold Mine - 34701 [ASL]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709164.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 золотых стилей для текста.Формат: ASL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33565A5C0DEDE4F8BA9EF362A05F432A1025127D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401546   (709160) от 10.08.2020
 
 Векторный клипарт - Watercolor set of bouquet and flower elements [EPS]
@@ -579,112 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD385DB1A9806AAD73E12207795B54C8208C5A7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026298   (705862) от 14.06.2016
-
-Экшены - GraphicRiver - Gorgeous Grunge Photoshop Action [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gorgeous Grunge - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42CE0D72CA4EC7E9A985C1AFE47915F391FBF5E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026287   (705763) от 14.06.2016
-
-Экшены - GraphicRiver - Clean Sketch - Sketch Photoshop Action [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чистый эскиз - набросок - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B149589DBA0FD9F56EF10C091B94B35A90F4CB87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026244   (705479) от 14.06.2016
-
-Экшены - GraphicRiver - Caricature Photoshop Action [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экшн для создания карикатур в программе фотошоп.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E6EAB5663EF7B366826C8DD816A3C3394B3844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220396   (704409) от 19.04.2018
-
-Векторный клипарт - Vector Money Collection #2 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Деньги
-25 AI + previewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D1B72CAD04010185E4E4EF7792E69F59B21CF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

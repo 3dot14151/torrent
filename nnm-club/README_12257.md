@@ -1,25 +1,25 @@
-###  Публикация: 1234698   (565821) от 08.07.2018
+###  Публикация: 1555736   (567162) от 05.06.2022
 
-VA - ЕвроХит Топ 40 Europa Plus 06.07.2018 [MP3|320 Kbps] <Pop, Dance>
+Voodoo Angel - First Spell (2022) [MP3|320 Kbps] <Hard Rock>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567162.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dynoro feat. Gigi D'Agostino - In My Mind 3:05
-02. Tim3bomb feat. Tim Schou - Magic 3:33
-03. MARUV & Boosin - Drunk Groove 3:47
-04. Tom Walker - Leave A Light On 3:06(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:21:21
+01. Wake me when it’s done (03:51)
+02. Break It Out (04:11)
+03. Your Reflexion (03:50)
+04. The Exit Day (04:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CD446FFE59F90105C6A8403D680DE172BA3AC12
+magnet:?xt=urn:btih:F7B4F52F5377DDF50BCC214A34E31AF3F3EBE4F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152231   (565800) от 23.07.2017
+###  Публикация: 1555831   (567161) от 05.06.2022
 
-Футбол. РФПЛ. Чемпионат России 2017-2018. Обзор матчей 1-го тура (18.07.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Pulsar Audio - Mu 1.3.4 VST, VST3, AAX (x64) RePack by R2R [En]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567161.jpg" />
 </div>
 
 
 ###  Подробнее
 
-18 июля 2017 года
-РФПЛ. Чемпионат России 2017 - 2018. Обзор матчей 1-го тура
-15.07.2017, 15:00 МСК	Урал – Ростов
-15.07.2017, 17:30 МСК	Тосно – Уфа(   Читать дальше...   )Телекомпания: Наш ФутболЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:54:03
+Самая верная эмуляция современного, но легендарного лампового компрессора / лимитера - идеального для микширования и мастеринга
+Есть несколько причин использовать компрессор с переменным смещением. Одним из них является исключительная прозрачность компрессии, которой может достичь этот тип компрессора, даже когда он подвергается экстремальному усилению. Другой, и (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4142C69BA31407B15F6ED03EA3BEDACA975775FC
+magnet:?xt=urn:btih:A7A250B4AC31EFB986C13C3F1E98DE371B3418BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +54,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152529   (565799) от 23.07.2017
+###  Публикация: 1555694   (567160) от 05.06.2022
 
-VA - Intricate Records Summer Vibes Vol.2 (2017) [MP3|320 Kbps] <Progressive House>
+Christina Aguilera - AGUILERA (2022) [FLAC 2.0|44,1/24|tracks|WEB-DL] <Pop, Latin Pop>
 
->>Electronic
->>House
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567160.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Miss Monique - Bombay (Sebastian Weikum Remix) 06.00
-02. Proluction - Modern Machine (Original Mix) 05.32
-03. PROFF - What You Got (Original Mix) 05.46
-04. MalYar - Doors (Original Mix) 05.11(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:54:21
+01. Ya Llegué (03:03)
+02. Pa Mis Muchachas (feat. Nathy Peluso) (03:37)
+03. Somos Nada (03:02)
+04. Santo (03:03)(   Читать дальше...   )Жанр: Pop, Latin PopПродолжительность: 00:37:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:891705CC86F86780122780C2E795176AEFA8F18B
+magnet:?xt=urn:btih:9E6F4141E3FD8AD03A4B79AFA002DA7096C21CD4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +83,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152205   (565798) от 23.07.2017
+###  Публикация: 1555809   (567159) от 05.06.2022
 
-VA - Who's Afraid Of 138?! Top 15 - 2017-07 (2017) [MP3|320 Kbps] <Trance>
+Orient | Ориент [2022, TV, 12 эп.] WEBRip 1080p rus
 
->>Архив торрентов
->>Архив Музыки
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_567159.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Armin van Buuren - Yet Another Day (UCast Remix)  3:51
-02.  John Askew - Black Coffee  4:43
-03.  Heatbeat - Section 9  3:44
-04.  Sneijder - Polarize (Second Sine Remix)  3:39(   Читать дальше...   )Жанр: TranceПродолжительность: 00:56:33
+Пять лет назад двое друзей десяти лет, Кодзиро Канэмаки и Мусаси, поклялись друг другу, что, повзрослев, станут самураями, соберут команду и отправятся истреблять демонов. К сожалению, за пять лет много утекло воды, и теперь демонов не убивают, им поклоняются, а самураи стали изгоями общества. Несмотря на это Мусаси не отказался от своей мечты, но, не желая лишних (   Читать дальше...   )Производство: A.C.G.T.Жанр: приключения, фэнтези, драма, фэнтезиРежиссер: Янагисава ТэцуяЯзык озвучки: Русский, профессиональный дублированный | Force MediaСубтитры: русские (хардсаб, на надписи) | CrunchyrollПродолжительность: 12 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC3469CB26EA6E19487FD32B3096B9A63AC8EE64
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +109,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152378   (565797) от 23.07.2017
+###  Публикация: 1555790   (567158) от 05.06.2022
 
-VA - Pool, Lounge & Holiday, Vol. 1 (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+На троне вечный был работник (2022) WEBRip [MPEG-2/720p]
 
->>Electronic
->>Easy listening
+>>Документалистика и Телепередачи
+>>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567158.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Earthspaces - Jazz in the House
-02. Pindaric Spleen - Wake Up at Sunrise
-03. Deep Azur - Sunset Island (Bikini Lounge Mix)
-04. Leotone - Day (Jazz Maestro Style)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:30:50
+Он действительно был первым во всем. Со дня рождения Петра прошло 350 лет. Но тем, какая Россия сегодня, мы во многом обязаны именно ему. При нем у нас впервые появились классные чины и социальные лифты. Петр Первый заложил фундамент современного государственного устройства — об этом в нашем фильме говорят современные политики. Первым создал флот — об этом расскажут (   Читать дальше...   )Телекомпания: Россия / Первый канал, КонтрастЖанр: Документальный, Биография, ИсторияРежиссер: Роман НоволюкинСубтитры: отсутствуютПродолжительность: 00:52:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7660E1B27A818DFCBCBBC8CBD2B61721DAE7AA99
+magnet:?xt=urn:btih:AD320A97A8611223D5A04A3016A6F4AC46695FA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,26 +135,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152471   (565796) от 23.07.2017
+###  Публикация: 1555870   (567157) от 05.06.2022
 
-Vasily Dvortsov - On the Way to the Cosmos (2016) Single [MP3|320 Kbps] <House>
+Журнал | National Geographic Traveler №1 (март-май 2022) [PDF]
 
->>Electronic
->>House
+>>Журналы
+>>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567157.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. On the Way to the Cosmos (04:29)
- 02. On the Way in the Cosmos (05:11)Жанр: HouseПродолжительность: 00:09:40
+National Geographic Traveler - это журнал о путешествиях и о культуре народов разных стран, о животном и растительном мире, о гостиницах, курортах, пляжах, маршрутах, турагенствах, предоставляющий энциклопедически точную информацию и советы по посещению экзотических стран.Жанр: Журнал о путешествияхФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CEA8E73F90B173F4D1CE324C8A5B8F26DB520DF
+magnet:?xt=urn:btih:ABD1A0A5024AE3780AE5CF8DAE2AD509908FD321
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -170,28 +161,110 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152664   (565795) от 23.07.2017
+###  Публикация: 1555677   (567156) от 05.06.2022
 
-Lisa Casalino - Introducing Lisa Casalino (2011) Lisa Casalino Entertainment [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Тимоти Зан | Звёздные Войны / Траун: Доминация (Книга 2). Высшее благо (2022) [MP3, Павел Константиновский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во второй книге эпичной трилогии «Звёздные войны. Траун. Доминация» Траун и его соратники вступают в гонку со временем, чтобы спасти Доминацию чиссов от неведомого врага.
+Недавние победы Трауна окутывают его имя шлейфом признания. Благодаря ему чиссы разбили захватчиков, а семья Митт приумножила свою славу, но истинная угроза для Доминации еще не искоренена. Враги (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаПродолжительность: 17:09:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51C7EC76EAFAAC5A9606FD9BC4B39178E6180B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555833   (567155) от 05.06.2022
+
+Хитобои - Пятница (2022) [MP3|320 Kbps] <Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567155.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Гороскоп
+2. Пятница
+3. Валентина
+4. Голова(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0FF2BBD2A74C995BD421E377B754AFA5A111B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555649   (567154) от 05.06.2022
+
+История группы Bee Gees: Как собрать разбитое сердце / The Bee Gees: How Can You Mend a Broken Heart (2020) BDRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567154.jpg" />
+</div>
+
+
+###  Подробнее
+
+История британско-австралийской музыкальной группы Bee Gees, основанной в 1958 году тремя братьями — Барри, Робином и Морисом Гиббами. Фильм рассказывает о рождении нового уникального звучания, о трех мужчинах, осуществивших свою детскую мечту, и о невероятном счастье, которое принесла им музыка.Производство: США, Diamond Docs, PolyGram RecordsЖанр: документальный, биография, музыкаРежиссер: Фрэнк МаршаллПеревод: многоголосый профессиональный (Первый Канал)Субтитры: отсутствуютПродолжительность: 01:51:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B7AC7A3A80BB724D921CA428421504C44BD6DB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 787182   (567153) от 05.06.2022
+
+Claude Thornhill - Snowfall (2000) [FLAC|Lossless]<Swing, Bop, Big Band>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567153.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 'S Wonderful [03:11]
-02. The Good Stuff [04:48]
-03. Break a Leg [04:21]
-04. Easy Street [04:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:07
+01. Stealin' Aplles (A.Razaf - T. Waller) [03:14]
+02. Snowfall (C.Thornhill) [02:56]
+03. Where or When (R.Rodgers - L. Hart) [02:59]
+04. A Sunday Kind of Love (B.Belle -L. Prima - A. Leonard - S. Rhodes) [03:22](   Читать дальше...   )Жанр: Swing, Bop, Big BandПродолжительность: 00:51:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31DB89E21BAA8F4A0F7AF1F0A2AAEE31B08A36DA
+magnet:?xt=urn:btih:9EDF9ACD586235330073C6FAED76399AD4DEDD9F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -199,28 +272,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152551   (565794) от 23.07.2017
+###  Публикация: 1044247   (567152) от 19.08.2016
 
-VA - Collection 1: Best Of Nerutto (2017) [MP3|320 Kbps] <Trance,Progressive House>
+VA - Душевный сборник Шансона (2016) [MP3|256 Kbps] <Шансон>
 
->>нет
->>нет
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_565794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567152.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nerutto - See You on the Other Side (Original Mix)
-02. Nerutto & Luca Dean - Living a Dream (Original Mix)
-03. Nerutto - Baller 91 (Original Mix)
-04. Nerutto - Cosmonaut (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:58:41
+001. Александр Закшевский - Лишь Бы Ты Меня Любила
+002. Дмитрий Прянов & Сергей Ильин - Дружба
+003. Владимир Пахновский - Возвращайся
+004. Адвокат Капаров - Еду В Город Свой Родной(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:51
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:A9A113DF69EDD8652161EA3F5979E7612E40C9E4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -228,28 +301,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152357   (565793) от 23.07.2017
+###  Публикация: 1044121   (567151) от 19.08.2016
 
-Subterranean Masquerade - The Great Bazaar (2015) [FLAC|Lossless|image + .cue] <Avant-Garde Metal, Progressive Metal>
+Журнал | Мой любимый дом №9 (сентябрь 2016) [PDF]
 
->>нет
->>нет
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_565793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567151.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Early Morning Mantra (06:23)
-2. Reliving the Feeling (05:21)
-3. Tour Diary (04:05)
-4. Nigen (03:06)(   Читать дальше...   )Жанр: Avant-Garde Metal, Progressive MetalПродолжительность: 00:50:38
+Мой любимый дом — журнал о создании комфорта и уюта в квартире и частном доме. Разделы журнала — «Квартира», «Частный дом» и «Идеи и решения» — дают полное представление о том, как обустроить свой любимый дом. Издание рассказывает о современных тенденциях строительства и ремонта, оригинальных интерьерах квартир и частных домов, новинках в области дизайна интерьера, (   Читать дальше...   )Жанр: Дом, сад, огород, дачаФормат: PDF
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:657D27A9EDF2CBCB532FE88A052644A55423A5D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -257,28 +327,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152202   (565792) от 23.07.2017
+###  Публикация: 1044202   (567149) от 19.08.2016
 
-VA - Trance 2017 Vol.2 (2017) [MP3|320 Kbps] <Trance>
+VA - Любимые хиты (2016) [MP3|256 Kbps] <Pop>
 
->>нет
->>нет
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_565792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567149.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Andre Visior & Daniel Kandi - Freedom (Original Mix)  4:05
-02.  Eric Lumiere & Fabio XB feat. Liuck - More To Life (Luke Bond Remix)  3:18
-03.  Declan James & Lucy Neville - Lady (Original Mix)  4:04
-04.  PARITY - Cirrus (Skylex Remix)  3:20(   Читать дальше...   )Жанр: TranceПродолжительность: 01:33:50
+01. Mseven — Листья
+02. Денис Любимов — На Постели Лета
+03. Иракли — На Бульварном
+04. Тимати — Девочка-Конфета(   Читать дальше...   )Жанр: PopПродолжительность: 05:57:37
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:2FC0B05074A895041F4E60357909BAB8DFB9ECED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -286,28 +356,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152472   (565791) от 23.07.2017
+###  Публикация: 1044225   (567147) от 19.08.2016
 
-Vasily Dvortsov - Simple Melodies (2017) LP [MP3|320 Kbps] <Trance, Progressive House, Downtempo>
+Журнал | ХлебСоль №9-10 (74) (сентябрь-октябрь 2016) [PDF]
 
->>нет
->>нет
+>>Журналы
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_565791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567147.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Simple Melodies (03:05)
- 02. Universe of Love (feat. K.I.R.A.) (03:30)
- 03. Bloom (05:07)
- 04. Bloom (Alternate Version) (03:32)(   Читать дальше...   )Жанр: Trance, Progressive House, DowntempoПродолжительность: 00:23:16
+«ХлебСоль» - кулинарный журнал с Юлией Высоцкой. Издание для современных активных женщин, которые с удовольствием готовят для родных и близких. "ХлебСоль" - простые решения, легкие рецепты.Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:84A7371BC1753D4BF8A09C905C5FFC60F62BD193
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -315,28 +382,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152524   (565790) от 23.07.2017
+###  Публикация: 1152292   (567146) от 22.07.2017
 
-Statsey - app usage statistics in your menu bar 1.0.7 [En]
+Faces of Illusion: The Twin Phantoms / Иллюзия Облика: Тайна двойников (2017) [Ru] (1.0) Unofficial
 
->>нет
->>нет
+>>Win Игры
+>>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_565790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567146.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Statsey - это средство отслеживания использования приложений на панели меню, которое позволяет анализировать свои привычки и определять, насколько они влияют на производительность.
-
-Особенности:
-- самые частые срезы данных всегда на один клик в вашей строке меню,(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.07.2017Разработчик: Nice AppsПоддерживаемая ОС: macOS 10.12 и вышеЯзык интерфейса: Английский
+Тайна двойников, которая покажет вам немало интересных мест. Предлагаю вам ознакомиться с новым приключение в жанре поиск предметов, так что готовьте свои серые клеточки, ведь для них скоро наступит встряска. Тебя ждет захватывающее приключение в мире магии и иллюзий. Проведи собственное расследование, раскрой дело об исчезновении восходящей звезды театра и узнай, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Moonrise InteractiveЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:37169D34DA4DB46344927A11D617137EC9C91C9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -344,28 +408,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152409   (565789) от 23.07.2017
+###  Публикация: 1044307   (567145) от 19.08.2016
 
-Subterranean Masquerade - Suspended Animation Dreams (2005) [FLAC|Lossless|image + .cue] <Avant-Garde Metal, Progressive Metal>
+Grand Prix - Mach 1 (1983) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Electro>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567145.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Suspended Animation Dreams (02:26)
-2. Wolf Among Sheep (06:27)
-3. No Place Like Home (08:21)
-4. Kind of A Blur (03:13)(   Читать дальше...   )Жанр: Avant-Garde Metal, Progressive MetalПродолжительность: 00:54:53
+01. Cruisin' (5:21)
+02. Challenger (5:02)
+03. Crash Barrier (4:40)
+04. Grand Prix (4:51)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, ElectroПродолжительность: 00:29:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B1B8E42992913CFFBC2D87E76E6EC8CCFD6C92F9
+magnet:?xt=urn:btih:90C9B1C13A1366EF0F9FB3F7C1B4E1921AC1D580
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -373,82 +437,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 225269   (565756) от 08.08.2010
+###  Публикация: 1044280   (567143) от 19.08.2016
 
-BBC: Мир природы. Маршруты песочника / Natural World. Untangling the knot (2008) SATRip [110 серия]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Природа не перестает поражать воображение своими нерукотворными чудесами. Некоторые из них создавались на протяжении миллионов лет эволюции. Нас ждет знакомство с удивительными местами и их не менее удивительными обитателями. В этих нетронутых уголках земли до сих пор подчиняются одному закону - закону природы. Животные не спорят, но готов ли следовать ему человек? (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 225354   (565755) от 08.08.2010
-
-Л. Блинова (ред.) | Что? Зачем? Почему? Большая книга вопросов и ответов (2004) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565755.jpg" />
-</div>
-
-
-###  Подробнее
-
-На страницах книги вы найдёте сотни вопросов и ответов, которые позволят вам расширить свои познания о природе во всех её формах, о науке и технике, об истории и культуре, о Земле и Вселенной.
- Сотни ясных и интересных объяснений, способных удовлетворить ваше любопытство; тысячи данных и сведений; сотни привлекательных рисунков и эффективных фотографий...
- Если смотреть (   Читать дальше...   )Жанр: Познавательная литератураПеревод: Кира Мишина, Анна ЗыковаФормат: DJVU
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 224328   (565749) от 08.08.2010
-
-Ligalize - XL (2006) [APE|Lossless]<Rap>
+VA - Goa Session by Outsiders (2016) [MP3|320 Kbps] <Trance, Psy-Trance, Goa>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567143.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Интро
-02. Остаться
-03. Почувствуй Силу (Feat. Богдан Титомир И N'Pans)
-04. Будущие Мамы(   Читать дальше...   )Жанр: RapПродолжительность: 00:48:48
+01. Outsiders vs Symbolic  -  Life on Earth  8:40
+02. Circuit Breakers  -  Square Stomp (Outside the Universe Remix)  8:34
+03. Outsiders  -  Our Moment Has Arrived  7:50
+04. Sonic Species  -  The First and the Last (Mad Maxx Remix)  7:57(   Читать дальше...   )Жанр: Trance, Psy-Trance, GoaПродолжительность: 02:20:13
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:06F34FF1FB1495C5D5BC7F6616D028349F1E8C2B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -456,29 +466,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 690324   (565748) от 17.08.2013
+###  Публикация: 1152450   (567142) от 22.07.2017
 
-009 Re:Cyborg / Киборг 009 [2012, MV] BDRip Hi10p 1080p Raw+Rus
+VA - Eighty Eight: This is Fokuz (2017) [MP3|320 Kbps] <Drum & Bass>
 
 >>Архив торрентов
->>Архив Аниме
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567142.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Современная история 2013 года.
-В Лондоне, Москве, Берлине, Нью-Йорке одновременно произошло несколько взрывов; большие небоскрёбы, в них рухнули один за другим. Неожиданная атака террористов повергла мир в панику. В прошлом, когда мир однажды уже находился в кризисе, было девять киборгов-войнов, которые спасли его от гибели.
-Доктор Гилмор, являющийся их создателем, снова пытается собрать свою команду, члены которой, к этому времени, находятся, каждый, на своей родине.
-Кто стоит за всеми этими терактами? С кем предстоит им бороться на этот раз?
-Им вновь вернут память, которая была стёрта, после последних событий. И как только это случится, отряд Zero Zero возрождённых киборгов, начнёт битву с всемирным злом.Жанр: фантастика, приключения, драма, экшенРежиссер: Камияма КэндзиПеревод: Shadow_ManОзвучка: loster01, Emeri & Shoker & GreyMoonФормат: MKVПродолжительность: 01:47:27
+01. Phaction - Fantasy (SpectraSoul Remix) (04:54)
+ 02. Intelligent Manners & Command Strange - Memories (Satl Remix) (05:16)
+ 03. Kasper - The Departed (Technimatic Remix) (05:04)
+ 04. Bert H - Bring Away (05:36)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:53:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35C01E7AA94D634A82491992B94E54CB45CE2AA4
+magnet:?xt=urn:btih:56FCF42FDF5E1AFAB71F87743CA567F7FFB57C1D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -486,76 +495,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 690443   (565744) от 17.08.2013
+###  Публикация: 1152425   (567140) от 22.07.2017
 
-Том и Джерри: Гигантское приключение / Tom and Jerry's Giant Adventure (2013) BDRip [DUB]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимцы зрителей, легендарные Том и Джерри вновь оказываются втянутыми в увлекательное приключение! На этот раз они вместе с юным Джеком возрождают известную всем сказку "Джек и волшебные бобы". Вместе они отчаянно пытаются спасти волшебный парк. Раздобыв волшебные бобы, они отправляются в путешествие, которое сулит им встречу с многими известными зрителям (   Читать дальше...   )Производство: США, Warner BrosЖанр: Рисованная анимация, КомедияРежиссер: Спайк Брандт, Тони СервонеПерсонажи: Том Уилсон, Гаррисон Кейллор, Пол Рубенс, Грей Делайл, Иаков БертранПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 00:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:935D56F3B05B05486370FFC842278B1B8AB6EE7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 690414   (565740) от 17.08.2013
-
-Том и Джерри: Гигантское приключение / Tom and Jerry's Giant Adventure (2013) BDRip [1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565740.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом новом полнометражном мультфильме Том и Джерри - одни из последних зверушек, оставшихся в парке развлечений "Город сказок". Здесь "мечты оживают, если ты веришь в это". Мальчик Джек хочет спасти парк от рук жадного миллиардера и вместе со своими верными друзьями - котом и мышонком - решает продать своего бычка... за пригоршню волшебных бобов. (   Читать дальше...   )Жанр: Фантастика, комедия, мультфильм, полнометражныйРежиссер: Спайк Брандт, Тони СервонеПеревод: ДублированныйЯзык субтитров: Русский, AнглийскийПродолжительность: 00:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF33477D9A98DAB825BD1732C427260360EC071D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234838   (565739) от 08.07.2018
-
-VA - Lady In Red Vol.3 (A Collection Of Great Ballads) (1997) [FLAC|Lossless|image + .cue] <Pop>
+Steve Aoki - Steve Aoki Presents Kolony (2017) [MP3|320 Kbps] <Electronic, Electro House>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_565739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_567140.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tho Boatles - Free As A Bird
-02. Bob Dylon - Knockin 'On The Heaven's Door
-03. Eric Clapton - Change The World
-04. Commodores - Nightshift(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:08
+1. Steve Aoki - Kolony Anthem (feat. ILOVEMAKONNEN & Bok Nero)
+2. Steve Aoki & Yellow Claw - Lit (feat. Gucci Mane and T-Pain)
+3. Steve Aoki & DVBBS - Without U (feat. 2 Chainz)
+4. Steve Aoki - How Else (feat. ILOVEMAKONNEN and Rich The Kid)(   Читать дальше...   )Жанр: Electronic, Electro HouseПродолжительность: 00:31:48
 
 ## Скачать торент
 ```bash
@@ -567,24 +524,163 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234927   (565737) от 08.07.2018
+###  Публикация: 1044188   (567139) от 19.08.2016
 
-American Truck Simulator - New Mexico (2017) [Multi/Ru] [macOS Native game]
+VA - Летние Хиты За Рулём! 7 (2016) [MP3|256 Kbps] <Pop>
 
->>нет
->>нет
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_565737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567139.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отправляйтесь в путь по окрестностям Альбукерке, делайте остановки посереди пустыни, заправляйтесь
-на местных станциях, наслаждайтесь видами лесов и гор. В игре American Truck Simulator - New Mexico
-есть место тому, что удивит вас. Вам нужно будет ночевать в гостиницах, ремонтировать свой грузовик и
-совершать вынужденные остановки в окрестностях. Насладитесь тихими (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 9 ноя. 2017Разработчик: SCS SoftwareПоддерживаемая ОС: 10.9+Жанр: Инди, СимуляторыЯзык интерфейса: Русский, Английский и др.
+001. Нужный Ритм - Незабываемая
+002. The Vamps - Stolen Moments
+003. Клава Кока Feat. Ольга Бузова - Если
+004. Bolier & Natalie Peris - Forever And A Day(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E07E92D4E4FB2059D4EE7F13E0EEBBE88F5141A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147037   (567137) от 22.07.2017
+
+Cryptey - a menu bar cryptocurrency ticker 1.4.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cryptey - это криптовалютный код в строке меню, позволяющий вам следить за текущими ставками для всех основных монеты, таких как биткойн, Litecoin, Ethereum и многое другое. Вы можете добавить наиболее важные тарифы в панель меню, чтобы они были всегда видимыми или добавлять их в список избранных, чтобы они могли находиться всего в одном клике. С несколькими ходами (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 июля 2017Разработчик: Nice AppsПоддерживаемая ОС: OS X 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:704E85AF1ECD389C2B55E2C303498402BFC91592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044351   (567136) от 19.08.2016
+
+VA - Союз Максимальный. Спецвыпуск (2016) [MP3|256 Kbps] <Поп, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nickelback - She Keeps Me Up
+02. Massive Attack & Azekel - Ritual Spirit
+03. Penthox - Give It Away
+04. Jasmine Thompson - 7 Years(   Читать дальше...   )Жанр: Поп, DanceПродолжительность: 06:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:077CAE1D93F66346F794BAC3B80694D931F98BF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152155   (567134) от 22.07.2017
+
+Orishas - El Kilo (2004) [FLAC|Lossless|tracks + .cue] <Latinos, Cubano Rap, Hip Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Naci Orishas
+02 Distinto
+03 Elegante
+04 El Kilo(   Читать дальше...   )Жанр: Latinos, Cubano Rap, Hip HopПродолжительность: 00:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8789F3D17112F12F64E0C00FC312AC5FBE91D340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044261   (567133) от 19.08.2016
+
+Picture Collage Maker 3.6.5 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Picture Collage Maker — простой в использовании генератор коллажей, который превращает обычные фотографии в потрясающие подарки на память, чтобы поделиться с семьей и друзьями. С помощью всего лишь нескольких щелчков мыши, вы можете создавать разнообразные фотоколлажи, плакаты, приглашения, календари и поздравительные открытки с применением вращений, изменения размеров, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 августа 2016Разработчик: PearlMountain Technology Co., LtdПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F153D1E9E05A6F5C640902D8F5FABDE81891A2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151763   (567131) от 22.07.2017
+
+VA - Pop Giganten Sommer-Hits (2017) 2CD [MP3|320 Kbps] <Pop, Dance>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_567131.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01.  Alvaro Soler - Sofia  3:30
+02.  Ricky Martin - Livin' la Vida Loca  4:02
+03.  Pharrell Williams - Happy (From ''Despicable Me 2'')  3:52(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:39:19
 
 ## Скачать торент
 ```bash
@@ -596,132 +692,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234870   (565736) от 08.07.2018
+###  Публикация: 1044195   (567130) от 19.08.2016
 
-NGW: В мире дикой природы. Долина смерти / Into The Wilderness. Death Valley (2009) HDTV [H.264/1080i-LQ]
+VA - Billboard Hot 100 Singles Chart 27.08. (2016) [MP3|320 Kbps] <Pop, Dance, Euro, Indie, Folk, Hip-Hop, RnB>
 
->>Зарубежные TV-бренды
->>National Geographic
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Долина смерти. Межгорная впадина в Калифорнии. Одно из самых суровых и безжизненных мест на планете. По иронии судьбы самый засушливый регион западного полушария находится над крупнейшей подземной водной системой США. А этот водоем хранит в себе крохотную рыбку, которая существовала ещё в Ледниковом периоде. Их осталось всего пара сотен.Производство: США, National Geographic Channel Network International, LLCЖанр: Документальный, природа, флора, фаунаРежиссер: Тодд ГерманнПеревод: Двуголосый закадровый, профессиональный (Первый ТВЧ)Субтитры: отсутствуютПродолжительность: 00:49:57
+001. Sia Feat Sean Paul - Cheap Thrills
+002. Major Lazer Feat Justin Bieber And Mo - Cold Water
+003. Calvin Harris Feat Rihanna - This Is What You Came For
+004. Twenty One Pilots - Heathens(   Читать дальше...   )Жанр: Pop, Dance, Euro, Indie, Folk, Hip-Hop, RnBПродолжительность: 05:16:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0041A20EC35BE715FCE459C0FCE0D9B0632318D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234949   (565735) от 08.07.2018
-
-Principle 3.10 [En]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_565735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Principle: инструмент для прототипирования
-Principle — приложение для Mac OS, которое позволяет в два счета создать анимацию элементов пользовательского интерфейса и сгенерировать его интерактивный прототип. Будь то многоэкранное приложение или просто придуманный вами контрол, так просто и быстро реализовать это раньше не позволял ни один сервис.
-
-Principle — умный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Daniel HooperПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234965   (565734) от 08.07.2018
-
-NG: Кладбище воинов. Флотилия проклятых / Warrior Graveyard. Navy of the Damned (2011) HDTVRip [H.264/1080i-LQ] [PR]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Останки моряков были обнаружены в районе трех морских портов на юге Англии. Благодаря кропотливой судебно-медицинской экспертизы, подробно изучены останки шести человек, которые служили в Королевском флоте в течение 18 и 19 веков. Их кости обнаруживают шокирующий ряд заболеваний, в том числе цинга, недоедание, венерические заболевания, переломы, ампутированные конечности, (   Читать дальше...   )Производство: США, October Films, Channel4, National Geographic ChannelЖанр: Документальный, историяРежиссер: Джереми ТернерПеревод: Одноголосый закадровый, профессиональный (АРК ТВ)Субтитры: отсутствуютПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10147E9C5C4B7BE65C6F07765D4F909D4204F824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234915   (565731) от 08.07.2018
-
-Самые красивые места планеты Земля. Красивый Вашингтон / The most beautiful places of the planet earth. Beautiful Washington (2017) WEBRip [VP9/2160p-LQ] [4K] (Эпизод 6)
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение сериала (Красивый Вашингтон) документальных фильмов об истории штата Вашингтон в 4K/UHD разрешении. Наслаждайтесь сказочным, великолепным и увлекательным пейзажем! Приглашаем Вас в виртуальное путешествие по одному из красивейших штатов США. Самые популярные и посещаемые туристами места. Превосходное качество видео, отличная музыка и полезная информация (   Читать дальше...   )Производство: США, ProArtIncЖанр: Видовой, природа, флора, фаунаРежиссер: Роман ХомлякПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 01:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0BAE982751382B7A10F69D1CF639A85ACBEC266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234977   (565727) от 08.07.2018
-
-Discovery: Мегамир. Мексика / Megaworld. Mexico (2011) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это увлекательный, динамичный, научно-популярный сериал, представляющий ту или иную страну или регион в области инноваций науки и техники. Каждый эпизод серии иллюстрирует самые значительные, оригинальные и захватывающие нововведения в области машиностроения, военной техники, кораблестроения, автомобилестроения, строительства и многих других областях. В это серии (   Читать дальше...   )Производство: Канада, Discovery Chanell CanadaЖанр: Документальный, научно-познавательныйРежиссер: Стефан ГрантПеревод: Одноголосый закадровый, профессиональный (Кирилица)Субтитры: отсутствуютПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2242E7CB910661FAF0D3DA0BF5F627B51B5E4DEF
+magnet:?xt=urn:btih:DE2E9E1240FA5B4512DC010FBF6F9FF12D8984A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1341125   (262893) от 26.11.2019
+
+VA - ZYX Italo Disco Spacesynth Collection (2014) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Spacesynth, Space-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laserdance - Moon Machine (5:34)
+02. Galactic Warriors - Koto Tribute Mix (13:57)
+03. Protonic Storm - Dreamscape (Short Mix) (6:42)
+04. Rygar - Modulation (5:28)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, Space-DiscoПродолжительность: 02:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6ED379C022C04DAFAEA3416894673F1D68CFF98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341221   (262622) от 27.11.2019
 
 VA - ZYX Italo Disco New Generation Vol. 15 (2019) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco>
@@ -726,35 +755,6 @@ VA - ZYX Italo Disco Spacesynth Collection 5 (2019) 2CD, Compilation [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D11FCFD93807A4B5AF4B8FCFCBB9575F01C32B61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342442   (223831) от 02.12.2019
-
-VA - Italian Style Vol. 1 (1988) [FLAC|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223831.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 –Paul Lekakis Boom Boom (Let's Go Back To My Room) (U.S. Remix) 7:27
-2 –The Caesar's Dancers Let's Go (12" Remix) 7:20
-3 –Aleph Check It Up (LP Version) 3:57
-4 –Gipsy And Queen Brown Sugar (Extended Version) 4:50(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCA5C1849E165294B0F746846794ED868285D31
 ```
 
 https://mybot314.ru/tekegram_catalog/

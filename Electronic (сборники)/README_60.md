@@ -1,3 +1,32 @@
+###  Публикация: 1124197   (785957) от 10.04.2017
+
+VA - Chillout Hits Vol.6 (2017) [MP3|320 Kbps] <Chillout, Chillstep >
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Eva Elekktra - Brain Cells Cycle (West Coast Beach Mix)  5:28
+02.  Don Gorda Project - Dedicado  5:21
+03.  Tony Donner - And You Know It's True  5:46
+04.  Eric Norman & Mighty Real - Hot Gambles  6:25(   Читать дальше...   )Жанр: Chillout, ChillstepПродолжительность: 05:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B614E018B3041A6DC6F429C15FC63BD22DB696
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124103   (785942) от 10.04.2017
 
 VA - Music For Everyone - Breaks & Breakbeat Vol.5 (2017) [MP3|320 Kbps] <Breaks, Breakbeat>
@@ -719,35 +748,6 @@ VA - Beatport Goa Trance: Electro Sound Pack #101 (2020) [MP3|320 Kbps] <Goa, Ps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEF37B8F488CD926528844C47AC4E5A8ED084C14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390227   (783409) от 14.06.2020
-
-VA - Beatport Vocal House: Sound Pack #100 (2020) [MP3|320 Kbps] <Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783409.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hiddn - Too Good
-002. Moguai - Everybodys Got
-003. Acuna Boyz - 6 Inch Heels
-004. Akcent - Stay With Me(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 09:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7310BDA3368C93FBA97B35F577973CC6E4287F99
 ```
 
 https://mybot314.ru/tekegram_catalog/

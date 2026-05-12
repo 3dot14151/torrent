@@ -1,3 +1,61 @@
+###  Публикация: 1742866   (46825) от 14.08.2024
+
+SZMC - Alien Invasion (Collection) (2024) [MP3|320 Kbps] <Electronic, Spacesynth>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SZMC - Alien Invasion (6:47)
+02. SZMC feat. Discoservice - Another Day (5:53)
+03. SZMC - Arabian Nights (6:55)
+04. SZMC - Asteroid Discovery (5:40)(   Читать дальше...   )Жанр: Electronic, SpacesynthПродолжительность: 03:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D97959B887BC2EEAD42AB21E6426F591D1C4831C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743149   (46715) от 15.08.2024
+
+Dj Polkovnik - Compilation (2024) [MP3|320 Kbps] <Electronic, Instrumental, Trance, Techno, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46715.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Осенний Эмбиент
+ 002.  Атмосферика
+ 003.  Dream
+ 004.  За Душу Без Слов(   Читать дальше...   )Жанр: Electronic, Instrumental, Trance, Techno, AmbientПродолжительность: 10:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0D78A86B256E63D8815FA6D0B2D3C17F6CAEBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743876   (46470) от 18.08.2024
 
 VA - Крутые пушки Лето 2024 [MP3|320 Kbps] <Club, Dance, Other>
@@ -687,64 +745,6 @@ VA - Electronic Wonderland (2024) [MP3|320 Kbps] <Electronic, Synthwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97D88FB1320A29C003133D985B6D57C40C0214BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751376   (42539) от 24.09.2024
-
-VA - Trance In Motion Vol.380 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mhammed El Alami & Salman Wani - Wayfarer (Extended Mix)
-02. Gary McPhail - The Big Babushka - Are You Ready (Extended Mix)
-03. Factor B & Lovlee - Wondering (Your Love Leaves Me) (Extended Mix)
-04. Driftmoon & Sarah Howells - Alive (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F08470BAB4DEF993D0D4966E751DC4C1044DEA08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751382   (42528) от 24.09.2024
-
-VA - Electronic Afterimages (2024) [MP3|320 Kbps] <Electronic, Synthwave, Retrowave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42528.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lost In Material - Modlight - (04:58)
- 002. Transparent Sound - Slang City - (08:01)
- 003. Ayala - Ubiquity - (05:28)
- 004. Karmahacker - A Broken Dub - (07:35)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 11:09:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEBC4D0C8A4C246FD4783B61A58C6AFA8C5E682A
 ```
 
 https://mybot314.ru/tekegram_catalog/

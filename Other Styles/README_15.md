@@ -1,3 +1,119 @@
+###  Публикация: 747264   (962548) от 19.01.2014
+
+Dominic Miller & Neil Stacey - New Dawn (2002) [FLAC|Lossless]<Jazz, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Dawn [04:30]
+02. La Belle Dame Sans Regrets [03:47]
+03. El Fado [02:29]
+04. La Boca [03:48](   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:275B85369821759A0C719628C7F2C28390812ABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747255   (962541) от 19.01.2014
+
+Antonio Forcione - Dedicato (1996) [FLAC|Lossless]<Acoustic Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962541.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tiramisu
+2. Twilight
+3. Maya's Song
+4. Dedicato(   Читать дальше...   )Жанр: Acoustic GuitarПродолжительность: 00:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81FCFA20AED12A89730EF66E7BC6780E0D0E9C92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747221   (962539) от 19.01.2014
+
+Acoustic Mania - Talking Hands (1997) [FLAC|Lossless]<Instrumental, Easy listening, Acoustic-Guitars>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962539.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Birdland 5:40
+2. David 2:58
+3. Festival 3:38
+4. Karate 4:50(   Читать дальше...   )Жанр: Instrumental, Easy listening, Acoustic-GuitarsПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9285F4C935DBD1683525FF42EE56814436E0493D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747501   (962438) от 19.01.2014
+
+Trance Lucid - Arise (1996) [FLAC|Lossless]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 April
+02 Balloons
+03 Unbridled
+04 Leaving(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D3EF164A73A0E6188D8D764697CBDE42346025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978366   (962293) от 24.01.2016
 
 Huey Lewis & The News - The Power of Love / Back to the future (1985) [MP3|320 кб/с] <Soundtrack>
@@ -626,122 +742,6 @@ Chris Benstead - The Gentlemen / Джентльмены (Original Motion Picture
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F5460A08FFB5FF9FE20715FB83F32ADE9893AB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979595   (959885) от 26.01.2016
-
-David Wahler - Secret Dream (2012) [MP3|320 кб/с] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Finger Rain
-02. Snowflake
-03. Beyond the Edge
-04. Free as a Bird(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5596590A888F9BDCCEEC98DBACB8EB6B152DEF54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979597   (959786) от 26.01.2016
-
-Arash Behzadi - With Closed Eyes (2015) [MP3|320 кб/с] <New Age, Solo Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dilemma
-02. The Joy of Storm
-03. Searching for Paradise
-04. Glittering Waves(   Читать дальше...   )Жанр: New Age, Solo PianoПродолжительность: 01:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D0391AA44ED603A6EE67FE25753D6C15EAD3F23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360552   (959460) от 16.02.2020
-
-Hacknet - Soundtrack (2015) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remi Gallego - Malware Injection
-02. Cinematrik - The Quickening
-03. Sean Gillespie - Tetrameth
-04. Carpenter Brut - Roller Mobster(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8C11F512449617FE3A9093581CF80E09723C857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360548   (959446) от 16.02.2020
-
-Portal - Soundtrack (2014) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Subject Name Here
-02. Taste of Blood
-03. Android Hell
-04. Self Esteem Fund(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C040A5B0EA53AED0E78F41079BBBA837E26AA92
 ```
 
 https://mybot314.ru/tekegram_catalog/

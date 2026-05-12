@@ -1,3 +1,34 @@
+###  Публикация: 483713   (89340) от 18.04.2012
+
+GarageBand [5.0+Jailbreak]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89340.jpg" />
+</div>
+
+
+###  Подробнее
+
+GarageBand — ваша собственная студия звукозаписи. Если вы хотите научиться играть на музыкальном инструменте, написать или записать музыку, вам поможет GarageBand.
+
+Что нового в 1.2
+- Возможность воспроизводить или записывать живое исполнение, пригласив на джем-сессию до трех друзей.
+- Инструменты Smart Strings позволяют управлять целым струнным оркестром.
+- Редактор нот поможет Вам отрегулировать или настроить записи инструментов.Язык интерфейса: English, Arabic, Catalan, Chinese, Croatian, Czech, Danish, Dutch, Finnish, French, German, Greek, Hebrew, Hungarian, Indonesian, Italian, Japanese, Korean, Malay, Norwegian, Polish, Portuguese, Romanian, Russian, Slovak, Spanish, Swedish, Thai, Turkish, Ukrainian, Vietnamese
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483462   (89293) от 18.04.2012
 
 Prince of Persia® Classic [4.3+jailbreak]
@@ -671,32 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AC4A1CBE2FBCD0B3E13668A9B2AC5CA99ED66FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735057   (50657) от 08.07.2024
-
-4K Video Downloader + 1.7.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.07.2024Разработчик: © 2024 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:894FCE7BE7F89D9E74574E232E1C4DB52F34635D
 ```
 
 https://mybot314.ru/tekegram_catalog/

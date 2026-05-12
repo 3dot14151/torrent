@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1869528   (1068418) от 06.05.2026
+
+Dasu - LMAO (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. News
+02. Antidisestablishmentarianism
+03. 5 O
+04. Gaya Gaya, Puto Maya(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:678A5F0E5D4BAF17CBF841F185D4D1F13F8F79CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867473   (1067060) от 27.04.2026
 
 VA - Audio Testing Guide Test Machine No. 1 (2008) K2HD mastering [WAV|Lossless|tracks] <Classic, Folk, Pop>
@@ -722,38 +751,6 @@ VA - The Heart of Crystal. Prajna Paramita Sutra (2006) [MP3|320 кб/с]<New ag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CE1E561192D04E02F4B3AEA7995012135F0C519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597393   (1000486) от 02.01.2013
-
-VA - Rose Quartz. The Rose Quartz Of Buddist (2005) [MP3|320 кб/с]<New age, Instrumental>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000486.jpg" />
-</div>
-
-
-###  Подробнее
-
-(07:57) 1. The beauty of pink crystal
-(06:38) 2. I love pink crystal music
-(04:53) 3. Pink crystal. Please let me have it
-(05:39) 4. Clean elegant pink crystal
-(12:47) 5. The hope of crystal
-(06:38) 6. The pink crystal of buddist
-(05:43) 7. The happy pink crystalЖанр: New age, InstrumentalПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0CD60B37100EDE7B66F5A0D74848FA6B96DB1CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

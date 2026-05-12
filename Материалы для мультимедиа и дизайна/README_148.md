@@ -1,3 +1,110 @@
+###  Публикация: 675600   (685920) от 03.07.2013
+
+Текстуры - Магические линии [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_685920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Текстуры Магические линии для Вашего творчества
+Автор: DiZaФормат: JPEGРазрешение файлов: от 1600х900 до 8730х5292
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535403   (685879) от 06.03.2022
+
+3D print - Bestiarum Miniatures - Модели для настольных игр [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Each month we deliver sets of presupported STL's and RPG game supplements that can be used in: DnD5e, Rangers of the Shadow Deep and Forbidden Psalm game systems.
+
+Ежемесячные наборы моделей для настольных систем (DnD/FP/RsD). В наборы включены интегративные схемы, лор, правила, и, конечно, сами модели. Модели подходят как для FDM-принтеров в нарезке, так и для SLA-принтеров (   Читать дальше...   )Формат: .STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F83AED023A99A803F2EABA8B1A3E98521C012CCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222359   (685294) от 29.04.2018
+
+Текстуры - GraphicBurger - 6 Marble Textures Vol.3 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные мраморные текстуры с официальной документацией.Формат: JPGРазрешение файлов: 4851 x 3479 - 5176 x 3648
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE51361228A0BF7509CF45F492BB7E8A758F2E3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222363   (685168) от 29.04.2018
+
+Текстуры - GraphicBurger - 5 Marble Textures Vol.1 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные мраморные текстуры с официальной документацией.Формат: JPGРазрешение файлов: 4876 x 3340 - 5172 x 3396
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7E546F0E29E19EEB47076736682549074DE9C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222476   (685167) от 29.04.2018
 
 Текстуры - PSDkeys - MARBLE! textures - 2041765 [JPG]
@@ -572,110 +679,6 @@ Blueprint - очередной экшен от Charles Brown для Вашего
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA90789E3A1F709DAEA10F17B116D0BD64C61B53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029258   (684051) от 25.06.2016
-
-Экшены - GraphicRiver - Photoshop Action Bundle 2 [ATN, ABR, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photoshop Action Bundle 2 - сборник из 4 экшенов для Вашего творчества.Формат: ATN, ABR, PNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0317D314D1825822CDB39CAF3548E9C03BE715B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029260   (684040) от 25.06.2016
-
-Экшены - GraphicRiver - Ambrotype Vintage Photo Effect Photoshop Action [ATN, PSD, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ambrotype Vintage Photo Effect - превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, PSD, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EAEA8A9A4833639656932AC5BA5F32FBD37168B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029001   (684039) от 25.06.2016
-
-Шаблоны - GraphicRiver - Art Photo Frame [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Art Photo Frame - Превосходный шаблон для Вашего творчества. Многие оценят его по достоинству.Формат: PSDРазрешение файлов: 3000×2000 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A1A5A6719F77FE46D4C926C142B4461A9C7DE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029112   (684037) от 25.06.2016
-
-Шаблоны - GraphicRiver - 3D Puzzled Mock-Up [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684037.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D Puzzled Mock-Up - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 2500×2000 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDEB38209216B7565E6487E0DFDF283C34B6C881
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,142 @@
+###  Публикация: 1552696   (585650) от 22.05.2022
+
+Era - The Live Experience (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agnus Deorem (3:45)
+02. Enae Volare (4:39)
+03. Nomen Adore (3:44)
+04. Something Exciting (3:46)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:29:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F79ADB53EEF1DCFE1FF2851EB347048CFC5A32C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040452   (585090) от 06.08.2016
+
+Suicide Squad: The Album - Отряд самоубийц (2016) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skrillex & Rick Ross - Purple Lamborghini (03:36)
+02. Lil Wayne, Wiz Khalifa & Imagine Dragons - Sucker for Pain (with Logic, Ty Dolla $ign & X Ambassadors) (04:04)
+03. Twenty One Pilots - Heathens (03:16)
+04. Action Bronson, Mark Ronson & Dan Auerbach (of The Black Keys) - Standing in the Rain (03:22)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F1B195BD7657A554D5381B0DF13B3B44C78577E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358622   (585081) от 03.07.2011
+
+VA - Pure Spirit Of Relaxation 3CD Boxset (2005) [MP3|320 kbps]<Meditativ, Relax, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_585081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три альбома красивой атмосферной музыки для расслабления ума, тела и души. Послушайте все три, чтобы достигнуть полного расслабления.01. Soothing Sea Of TranquilityЖанр: Meditativ, Relax, New AgeПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6982A4BBD9D6BA6626BEA63CD1F88BC2671FCDDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358087   (584933) от 03.07.2011
+
+OST - Vangelis - Blade Runner (Esper Edition) [2 CD] (2003) [OGG|192-320 kbps]<Electronic, Jazz, Stage & Screen>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electronic, Jazz, Stage & ScreenПродолжительность: 01:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09165685B6C6B9804974A3E3806686755B4C0C04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918951   (584880) от 17.07.2015
+
+Zhang Yi - Strings Of Love (2015) [MP3|320 кб/с]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maple Love
+02. Mythos
+03. The Unforgettable Love Affair
+04. Prayer(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:838FADBACC1869545B4F00341217D74C1BF0445F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 358281   (584798) от 03.07.2011
 
 Гарри Поттер и Дары смерти: Часть 2 / Harry Potter And The Deathly Hallows Part 2 (2011) [MP3|320 kbp/s]<Score,Soundtrack>
@@ -591,148 +730,6 @@ Midori - Island Paradise (2015) [MP3|320 кб/с]<New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99949D17355FCE711C8475FACA97AD2B394D9A34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920589   (578779) от 23.07.2015
-
-Michael Giacchino - Мир Юрского периода / Jurassic World (Original Motion Picture Soundtrack) (2015) [FLAC|Lossless|WEB-DL]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bury the Hatchling (1:57)
-02. The Family That Strays Together (1:01)
-03. Welcome to Jurassic World (Michael Giacchino & John Williams) (2:09)
-04. As the Jurassic World Turns (Michael Giacchino & John Williams) (5:32)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 01:17:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9A320A68F498A9E7323C4ACF3B2E631D784CBD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302684   (578004) от 18.05.2019
-
-The Blue-Gold Shore of the Beyond (Лазурно-Золотой Берег Запредельного) - Taranaya Namaha (2009) [FLAC|Lossless|tracks + .cue] <Mantras, Meditative, Ethnic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jishu nam (3:49)
-02. Nai Nai Nai (5:29)
-03. Om Shreshtaya namaha (3:50)
-04. Om Govindaya nama (3:16)(   Читать дальше...   )Жанр: Mantras, Meditative, EthnicПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:576FEF36A3FF23015185EA3DC3C81434CA1A0A6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302789   (577992) от 18.05.2019
-
-Gregorian - Masters Of Chant Chapter II (+bonus tracks) (2001) [FLAC|Lossless|image + .cue] <New Age, Ambient, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Moment Of Peace (4:22)
- 02 - The First Time I Ever Saw Your Face (6:00)
- 03 - In The Air Tonight (5:45)
- 04 - Bonny Portmore (5:02)(   Читать дальше...   )Жанр: New Age, Ambient, ChilloutПродолжительность: 01:20:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB8C761DDC848ADC7C71C40DB819FB1675157458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150399   (577880) от 16.07.2017
-
-VA - Latino Fitness 2017 (The Ultimate Latin Keep Fit Workout) [MP3|320 Kbps] <Latin Music>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Los Reggaetronics – Limbo
-02. Alegra – She Wolf
-03. CDM Project – We No Speak Americano
-04. Boricua Boys – Zumba(   Читать дальше...   )Жанр: Latin MusicПродолжительность: 01:31:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED636F73E34A8E381A430355E1C1AFAF2B0FA01D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361322   (577200) от 10.07.2011
-
-Yogeshwara - 2 albums (1997, 2003) [MP3|112-256 kbps]<New age, Meditative, Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New age, Meditative, MantrasПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED10BB6A1F21BDACDBA52DBFE66CC611FB7B4541
 ```
 
 https://mybot314.ru/tekegram_catalog/

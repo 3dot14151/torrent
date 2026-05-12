@@ -1,3 +1,29 @@
+###  Публикация: 576276   (366564) от 16.11.2012
+
+Abstract Wallpapers (16.11.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC1A98D524DF9D5E663402BFD233E26133DB3779
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 576120   (366299) от 16.11.2012
 
 [Wallpapers] Обои для рабочего стола тачки(часть 4)
@@ -641,32 +667,6 @@ Nature Wallpapers (19.11.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:890DB8427936DDDBA57459704F1351857223E1BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575977   (355976) от 20.11.2012
-
-Interior Wallpapers (15.11.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0891963B30EEA41E6CC20A491912915FB61B3F40
 ```
 
 https://mybot314.ru/tekegram_catalog/
