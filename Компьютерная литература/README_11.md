@@ -1,598 +1,3 @@
-###  Публикация: 1850215   (1054239) от 26.01.2026
-
-Reuven Lerner | Python Workout. 200 ten-minute Exercises. 2nd Edition (2026) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Practice makes perfect Python!
-The only way to master a skill is practice, practice, practice. That’s exactly what you’ll do in Python Workout, Second Edition! In this instantly-valuable book you’ll work through 50 carefully selected exercises that flex your programming muscles. This revised new edition covers the latest version of Python and adds updated content (   Читать дальше...   )Жанр: Computer Programming Languages, Python ProgrammingЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B8F77D4CE7C2D22BFD3360B4E60CCA2F4EA671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850287   (1054154) от 27.01.2026
-
-Jeremy McDowell | Acing the CCNA Exam. Volume 1. Fundamentals and Protocols. Volume 2. Advanced Networking and Security (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Pass the Cisco Certified Network Associate (CCNA) exam on your very first try!
-
-Acing the CCNA Exam comes directly from Jeremy McDowell, a much-loved Cisco tutor who’s amazing courses have helped hundreds of thousands of students pass their exams. This comprehensive guide is split over two volumes—Acing the CCNA Exam, Volume 1 Fundamentals and Protocols and Acing (   Читать дальше...   )Жанр: LANs, Cisco Certification Guides, Computer Networking, Security CertificationsЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6279A8E2DF769837123567565D05B09044AFEC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850285   (1054153) от 27.01.2026
-
-Michael Kofler, Bernd Oggl, Sebastian Springer | AI-Assisted Coding. A Practical Guide to Boosting Software Development with ChatGPT, GitHub Copilot, Ollama, Aider, and Beyond (Rheinwerk Computing) ...
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Generative AI is transforming software development. Stay on the cutting edge with this guide to AI pair programming! Learn how to make the most of modern tools like ChatGPT and GitHub Copilot to improve your coding. Automate refactoring, debugging, and other tedious tasks, and use techniques such as prompt engineering and retrieval-augmented generation to get the (   Читать дальше...   )Жанр: Software Design Tools, Generative AI, Object-Oriented DesignЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE80C91A7DB585100D1187D9C8FE3DC3278650D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850284   (1054152) от 27.01.2026
-
-Alex Soto Bueno, Andrew Block | Red Hat Certified Engineer (RHCE) Ansible Automation Study Guide: In-Depth Guidance and Practice (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-With the Ansible automation tool, developers and system administrators in the enterprise can automate the provisioning, configuration, and management of distributed and on-premises systems. This study guide prepares you for the Red Hat Certified Engineer (RHCE) certification exam, 90% of which covers Ansible.
-
-Red Hat's Alex Soto Bueno and Andrew Block walk you through (   Читать дальше...   )Жанр: Linux Certification Guides, Linux Networking & System Administration, Cloud ComputingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FECFC46FE3654C346AA8780B005F81D54856362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850283   (1054151) от 27.01.2026
-
-Joachim Steinwendner, Roland Schwaiger | Programming Neural Networks with Python. Your Practical Guide to Building Smart AI Systems with Machine Learning and Deep Learning (Rheinwerk Computing) (20 ...
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Neural networks are at the heart of AI—so ensure you’re on the cutting edge with this guide! For true beginners, get a crash course in Python and the mathematical concepts you’ll need to understand and create neural networks. Or jump right into programming your first neural network, from implementing the scikit-learn library to using the perceptron learning algorithm. (   Читать дальше...   )Жанр: Introductory & Beginning Programming, Python Programming, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA4EA16B88AA76E6F09E150CE7B140784DA4747A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850282   (1054150) от 27.01.2026
-
-Bernd Oggl, Michael Kofler | Docker. Practical Guide for Developers and DevOps Teams - Unlock the Power of Containerization. Skills for Building, Securing, and Orchestrating with Docker (Rheinwerk  ...
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Learn the ins and outs of containerization in Docker with this practical guide! Begin by installing and setting up the platform. Then master the basics: get to know important terminology, understand how to run containers, and set up port redirecting and communication. You’ll learn to create custom images, work with commands, and use key containerization tools. Gain (   Читать дальше...   )Жанр: Software Design Tools, Computer Operating Systems, Computer Network AdministrationЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D2C6800B2409A122EE69FCFE4896244A316F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850280   (1054149) от 27.01.2026
-
-Michael Kofler | Linux. The Comprehensive Guide to Mastering Linux—From Installation to Security, Virtualization, and System Administration Across All Major Distributions (Rheinwerk Computing) (202 ...
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Beginner or expert, professional or hobbyist, this is the Linux guide you need! Install Linux and walk through the basics: working in the terminal, handling files and directories, using Bash, and more. Then get into the nitty-gritty details of configuring your system and server, from compiling kernel modules to using tools like Apache, Postfix, and Samba. With information (   Читать дальше...   )Жанр: Computer Operating Systems, Linux Networking & System Administration, Microsoft OS GuidesЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB4E0AEFA8ACA68CA93F2F3BA56455D5C8921111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850275   (1054148) от 27.01.2026
-
-Torsten T. Will | C++. The Comprehensive Guide to Mastering Modern C++ from Basics to Advanced Concepts with Hands-on Examples, and Best Practices for Writing Efficient, Secure, and Scalable Code ( ...
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-If you need to know C++, look no further! This comprehensive guide has everything you need to master the modern C++23 language, from syntax fundamentals to advanced development concepts. Follow practical code examples as you learn object-oriented programming, work with standard library containers, program concurrent applications, and more. Don’t just learn how to (   Читать дальше...   )Жанр: Object-Oriented Software Design, C++ Programming Language, Object-Oriented DesignЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58AC16053360638447ECF0B5ACB3CC28225F7748
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850272   (1054147) от 27.01.2026
-
-Christopher Negus | Linux Bible. 11th Edition (2026) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-The industry gold standard in Linux guides, fully updated
-In the newly updated eleventh edition of the Linux Bible, veteran Linux author and trainer Christopher Negus walks you through the latest and most popular Linux distributions, including Red Hat Enterprise 9, Ubuntu 24 LTS, and Fedora 41. Whether you're a brand new or power user, you'll learn hands-on ways (   Читать дальше...   )Жанр: Linux & UNIX Administration, Linux Networking & System Administration, Cloud ComputingЯзык: АнглийскийИздательство: SybexФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6924716470702716E78D42C690A985F8FE519CDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850269   (1054142) от 27.01.2026
-
-Andrew Tanenbaum, Herbert Bos | Modern Operating Systems. 5th Edition (2023) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Modern Operating Systems incorporates the latest developments and technologies in operating systems (OS) technologies. Author Andy Tanenbaum's clear and entertaining writing style outlines the concepts every OS designer needs to master. In-depth topic coverage includes processes, threads, memory management, file systems, I/O, deadlocks, interface design, multimedia, (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: PearsonФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4CE95A007BAA059E295740DCC0FD5CE2A4100A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850023   (1054043) от 25.01.2026
-
-Richard Horne | 3D Printing For Dummies. 3rd Edition (2023) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Print out whatever you can dream up
-
-3D Printing For Dummies is an easy reference for anyone new to the process of taking a digital file and turning it into an object in the real world. (Pretty amazing stuff, right?) It’s also a handy guide for more experienced users looking to learn the latest and greatest in additive manufacturing. Updated for the latest generation (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: John Wiley & SonsФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:841B2769FB27BFFDFF642B964D717A2BC1A6025D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850084   (1054006) от 26.01.2026
-
-Chris Dent | Mastering PowerShell Scripting. Automate repetitive tasks and simplify complex administrative tasks using PowerShell. 5th Edition (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Master PowerShell to automate real-world administrative tasks, streamline workflows, and enhance security across Windows environments
-Book Description
-Mastering PowerShell Scripting, Fifth Edition, is your comprehensive guide to harnessing PowerShell’s full potential. This edition introduces new chapters on debugging, troubleshooting, and creating GUIs while covering (   Читать дальше...   )Жанр: Windows Server Guides, Windows Administration, Microsoft OS GuidesЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6CE36992E4CC39F52E6A6C36099FEC7F636F92C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850082   (1054005) от 26.01.2026
-
-Dan Gookin | Microsoft 365 Word For Dummies. 2nd Edition (2025) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Word, Microsoft's powerful and popular word processor, is capable of extraordinary things. From template building to fancy formatting and even AI-powered editing and proofing, your copy of Word stands ready to help you supercharge your productivity and save you time and energy. You just need to learn how it's done. And, thanks to this easy-to-understand book, learning (   Читать дальше...   )Жанр: Word Processing Books, Microsoft Word Guides, Software Suite BooksЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DB04A9B20D1F65B2A2FFD461BC3DD81E7A71ED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850081   (1054004) от 26.01.2026
-
-George Mount | Modern Data Analytics in Excel. Using Power Query, Power Pivot, and More for Enhanced Data Analytics (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-If you haven't modernized your data cleaning and reporting processes in Microsoft Excel, you're missing out on big productivity gains. And if you're looking to conduct rigorous data analysis, more can be done in Excel than you think. This practical book serves as an introduction to the modern Excel suite of features along with other powerful tools for analytics. (   Читать дальше...   )Жанр: Business Intelligence Tools, Data Mining, Spreadsheet BooksЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:007DC5BD07B780EF5E52BEE3E00237FA27C042FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850080   (1054003) от 26.01.2026
-
-Dick Kusleika | Microsoft 365 Excel VBA Programming For Dummies. 7th Edition (2025) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Your step-by-step guide to doing more with Microsoft Excel
-
-Fully updated for the latest version of Office 365, Excel VBA Programming For Dummies will take your Excel knowledge to the next level. With a little background in Visual Basic for Applications (VBA) programming, you can go well beyond basic spreadsheets and functions. Learn the coding basics and syntax (   Читать дальше...   )Жанр: Microsoft VBA, Microsoft Excel Guides, Spreadsheet BooksЯзык: АнглийскийИздательство: John Wiley & SonsФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A51AD5B2DAF550C7A976E8B8D2E5B255C598C49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850076   (1054002) от 26.01.2026
-
-Хун Чжоу | Машинное обучение сквозь призму Excel. Примеры и упражнения (2025) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Изучение датамайнинга на примерах и упражнениях в этой книге позволит вам заглянуть за кулисы сложных методов и научиться эффективно работать с данными. По мнению автора, постигать датамайнинг и модели анализа данных лучше всего на практике, выполняя действия одно за другим. В отличие от большинства специализированных инструментов, которые работают по принципу «черного (   Читать дальше...   )Жанр: Компьютерная литература, ExcelИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33BEF6E4441DB26AFC94ED5BD6FD4FC6D379F79C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850075   (1054001) от 26.01.2026
-
-А. Колоколов, М. Зеленский, К. Королева и др. | Азбука визуализации Power BI (2024) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Книга будет полезна и тем, кто уже работает с Power BI, а также для всех, кто хочет
-повысить свою визуальную грамотность. Power BI остается самым легким в освоении и
-бесплатным BI-инструментом, и продолжает работать на территории РФ. А если хотите
-еще глубже освоить дизайн дашбордов, их интерактивные сценарии и(   Читать дальше...   )Жанр: Компьютерная литература, Бизнес-аналитикаИздательство: Институт Бизнес-АналитикиФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7073129E39D444E3EAEEAFCAD7AA5191FC5756CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850074   (1054000) от 26.01.2026
-
-Chris Minnick | Microsoft Copilot For Dummies (2025) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Straightforward guidance on the AI tool that's built into Windows, Microsoft 365, and more
-
-Microsoft is enhancing all its most widely used productivity software―including Windows and apps like Word and Excel―with the power of AI. And now you can learn to make the most of this revolutionary new tool with Microsoft Copilot For Dummies!
-(   Читать дальше...   )Жанр: Microsoft Office Guides, Software Suite Books, Natural Language ProcessingЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9453630C4CFA3744036AC64A60DE3E4D0E3C36FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850072   (1053998) от 26.01.2026
-
-И. Спира | Microsoft Excel и Word 2013. Учиться никогда не поздно (2014) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Эта книга посвящена новым версиям Microsoft Word и Excel 2013. Она предназначена для тех, кто хочет научиться работать в этих популярных многофункциональных программах. В ней нет сложных определений и заумных терминов. Большое количество иллюстраций делает процесс обучения максимально наглядным, а практические примеры значительно ускоряют освоение материала. Прочитав (   Читать дальше...   )Жанр: Компьютерная литература, Excel, WordИздательство: ПитерФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBBB3CFD9A4F230DD56EFBD4FC39F86154C7E85B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850071   (1053997) от 26.01.2026
-
-В.Д. Кильдишов | MS Excel и VBA для моделирования различных задач. Практическое руководство (2023) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Книга является практическим руководством по моделированию задач с использованием приложения MS Excel и VBA.
-Пособие предназначено для школьников, студентов и преподавателей, которые хотят быть знакомы с MS Excel и VBA «на Вы» и научиться моделированию, разработке моделей, алгоритмов и программ, а также приложений с формами.
-Прочитав эту книгу, Вы научитесь использовать (   Читать дальше...   )Жанр: Компьютерная литература, ExcelИздательство: СОЛОН-ПрессФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C74CCFF62227E1A2370645EA04AA32DCF405F634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850070   (1053996) от 26.01.2026
-
-Jack McLarney | The Book of Batch Scripting. From Fundamentals to Advanced Automation (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-In this era of advanced programming languages, the simplicity, universality, and efficiency of Batch scripting holds undeniable value.
-
-Whether you’re maintaining legacy systems or seeking to understand the foundations of command line automation, The Book of Batch Scripting shows you how to become proficient with this tool included in every version of Windows.
-(   Читать дальше...   )Жанр: Computer Network Administration, Microsoft Programming, Computer Programming LanguagesЯзык: АнглийскийИздательство: No Starch PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD51282399CFEF77457E97EA2316E57CA9110F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850067   (1053995) от 26.01.2026
-
-Jen Stirrup, Thomas J. Weinandy | Artificial Intelligence with Microsoft Power BI. Simpler AI for the Enterprise (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Advance your Power BI skills by adding AI to your repertoire at a practice level. With this practical book, business-oriented software engineers and developers will learn the terminologies, practices, and strategy necessary to successfully incorporate AI into your business intelligence estate. Jen Stirrup, CEO of AI and BI leadership consultancy Data Relish, and (   Читать дальше...   )Жанр: Business Intelligence Tools, Data Processing, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D559D1F816E481CCD1CDDF4AC29FA81108A33224
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850066   (1053994) от 26.01.2026
 
 Aaron Guilmette, Darryl Kegg, Ed Fisher | Microsoft 365 Administration Inside Out. 3rd Edition (2023) [PDF, EPUB] [EN]
@@ -695,6 +100,586 @@ The book is organized into eleven chapters. The first chapter introduces (   Ч
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE1460BA1825A4E5AE9D638F52BBAFFE079FE076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849243   (1053541) от 22.01.2026
+
+Helmut Vonhoegen | Excel. The Comprehensive Guide for Beginners and Power Users to Master Formulas, Charts, Pivot Tables, and More with Step-by-Step Examples (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+If you’re using Excel, this is the all-in-one manual you need—brimming with solutions for every conceivable task! Learn how to design tables, use formulas to perform calculations, create analyses, graphically present your data, and share your results. With detailed coverage of both basic functions and advanced features, this book provides guidance for beginners and (   Читать дальше...   )Жанр: Компьютерная литература, ExcelЯзык: АнглийскийИздательство: Rheinwerk PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31B4133F8C6DE68C612BA007A9745FF8A56C4BAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849242   (1053540) от 22.01.2026
+
+Shakuntala Gupta Edward, Rahul Bhattacharya, V. Sinha | Enterprise Guide for Implementing Generative AI and Agentic AI. A Practical Guide to Developing, Deploying, and Operationalizing AI-Driven Ap ...
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Generative AI and Agentic AI together are revolutionizing the technology landscape, with profound and far-reaching impacts across industries. Organizations are increasingly adopting these technologies to drive innovation, enhance unstructured content management, and improve problem-solving capabilities. With Agentic AI, enterprises are moving towards the development (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллект, Компьютерные сетиЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C19F94F7752E5841B63EE9CFA53D7EDDA41DC08E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849084   (1053453) от 21.01.2026
+
+Diego Oliva, Marco Antonio Perez Cisneros и др. | Initialization and Diversity in Optimization Algorithms (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Designing new algorithms in swarm intelligence is a complex undertaking. Two critical factors have been seen to have a direct correlation with positive results. First is initialization, which serves as the initial step for all swarm intelligence techniques. Candidate solutions are generated to form the initial population, which are subsequently modified during the (   Читать дальше...   )Жанр: Компьютерная литература, ПрограммированиеЯзык: АнглийскийИздательство: CRC PressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8017C893D235CF89668E23360C473D69EC53EA18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849223   (1053439) от 21.01.2026
+
+Papercut Limited | Home Networking. Tricks and Tips. 8th Edition (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Home Networking Tricks and Tips is the perfect digital publication for the user that wants to take their skill set to the next level. Do you want to enhance your user experience? Or wish to gain insider knowledge? Do you want to learn directly from experts in their field? Learn the numerous short cuts that the professionals use? Over the pages of the new advanced (   Читать дальше...   )Жанр: Компьютерная литература, Компьютерные сетиЯзык: АнглийскийИздательство: Papercut LimitedФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A92C73E3A3358DC97867E490973C79F4613108F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849215   (1053434) от 21.01.2026
+
+Papercut Limited | Make Your Own PC. Tricks and Tips. 22nd Edition (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Make Your Own PC Tricks & Tips is the perfect digital publication for the user that wants to take their skill set to the next level. Do you want to enhance your user experience? Or wish to gain insider knowledge? Do you want to learn directly from experts in their field? Learn the numerous short cuts that the professionals use? Over the pages of the new advanced (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Papercut LimitedФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:439736798BB521E3E85E33FD5F13B76411AF7F22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849024   (1053355) от 20.01.2026
+
+В.Д. Кильдишов | Excel для офисных работников. Справочник-практикум (2020) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В книге представлены основные сведения о MS Excel, приведены примеры расчетных задач, которые позволят овладеть нужными навыками при работе в офисах. Использование книги предполагает наличие минимальных умений применения приложения MS Excel.
+Книга, безусловно, полезна всем, кто хочет научиться оформлять таблицы с данными и делать расчеты, которые необходимы для достоверного (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СОЛОН-ПрессФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6D04CE6903B36400967D1A52FDC4C02704E1BAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849022   (1053354) от 20.01.2026
+
+Л.Р. Борисова, Н.И. Светлова, И.Ю. Седых | Математика и анализ данных с поддержкой MS Excel и языка R. Учебное пособие (2023) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Данное учебное пособие «Математика и анализ данных с поддержкой MS Excel и языка R» разработано для учебного и методического обеспечения организации и проведения учебного процесса по дисциплине «Математика и анализ данных» для студентов, обучающихся по направлениям подготовки «Гостиничное дело», «Государственное и муниципальное управление», «Политология», «Социология», (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПрометейФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40A25F5A27BB30C90BE61FE4EA06D1C222297A24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849021   (1053353) от 20.01.2026
+
+Томас Фрагейл | Магия Excel для непрограммистов. Сводные таблицы, Power Query, дашборды и многое другое (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Как выжить в мире, где данные правят бал, а требования к отчетам растут с каждым днем? С утра до вечера нам приходится иметь дело с огромным количеством информации. Томас Фрагейл создал практическое руководство для тех, кто устал от рутинной обработки цифр и хочет научиться за считаные минуты превращать горы сырых данных в красивые интерактивные отчеты.
+Каждая глава (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2886F7A2D455564D14CF9434555802D708E8DE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849019   (1053352) от 20.01.2026
+
+В.Д. Кильдишов | Использование приложения МS Excel для моделирования различных задач (2019) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Книга является практическим руководством по моделированию задач с использованием приложения MS Excel.
+Книга предназначена для школьников, студентов и преподавателей, которые хотят быть знакомы с MS Excel «на Вы», а также научиться моделированию, разработке моделей, алгоритмов и программ.
+Прочитав эту книгу, Вы научитесь использовать возможности MS Excel, о которых (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СОЛОН-ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E7CF22EFA3D7BE2566A4D8A9BF6C829F49CBF1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848900   (1053346) от 20.01.2026
+
+Василий Леонов | Планшеты и смартфоны на Android. Простой и понятный самоучитель. 3-е издание (2022) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Вам хочется использовать свой планшет или смартфон на все 100%? Нет ничего проще! С помощью этого самоучителя вы легко научитесь получать от этих гаджетов максимум. Простые и понятные примеры, наглядные иллюстрации и практический подход к обучению помогут вам овладеть всеми приемами работы с устройствами на Android. Благодаря этому удобному, небольшому по формату (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94072BFD2C75FF6150082636CA105A54E7834109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848891   (1053345) от 20.01.2026
+
+Pam Baker | Generative AI For Dummies (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Generate a personal assistant with generative AI
+Generative AI tools capable of creating text, images, and even ideas seemingly out of thin air have exploded in popularity and sophistication. This valuable technology can assist in authoring short and long-form content, producing audio and video, serving as a research assistant, and tons of other professional and (   Читать дальше...   )Жанр: Искусственный интеллект, Компьютерная литератураЯзык: АнглийскийИздательство: John Wiley & Sons, Inc.Формат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD7B4C1F7B3878E5D8E042BCD47378CA607BC7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848890   (1053344) от 20.01.2026
+
+Фрэнк Асито | Предсказательная аналитика с KNIME (2025) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена интеллектуальному анализу данных с помощью KNIME – инструмента с открытым исходным кодом и визуальным интерфейсом разработки. Здесь вы найдете подробное описание наиболее распространенных методов машинного обучения, таких как линейная и логистическая регрессия, кластерный анализ, деревья решений, нейронные сети и т. д. Вы также научитесь реализовывать (   Читать дальше...   )Жанр: Искусственный интеллект, Компьютерная литература, РобототехникаИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C27885FB1727D624627F15EC4B78FBD1FEC11E18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848886   (1053343) от 20.01.2026
+
+Валентина Палагина | AI для блогеров. Прокачай свои социальные сети (2024) [PDF, EPUB]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Из пустых разговоров и дискуссий искусственный интеллект (ИИ) давно перешел в технологии, которые применяется в различных отраслях. Пользователей социальных сетей с каждым годом становится все больше и больше. Поэтому разработчики стали внедрять в их развитие искусственный интеллект.Жанр: Компьютерная литература, Искусственный интеллектИздательство: ЛитРес, СамиздатФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC8AFD27DB44BA9BF381FAB6D7302A102578596
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848884   (1053342) от 20.01.2026
+
+Александр Чичулин | Оператор ИИ. Руководство для оператора искусственного интеллекта (2023) [PDF, FB2, EPUB]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Эта книга — всеобъемлющее руководство для всех, кто заинтересован в том, чтобы стать оператором искусственного интеллекта. В нем рассматриваются основы искусственного интеллекта, работа GPT-чата и рекомендации по его использованию в операциях с искусственным интеллектом. В нем также обсуждается роль оператора искусственного интеллекта, возможности трудоустройства (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: Издательские решенияФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:200B8F3C585310F399B710ED124257DFA966F9C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849047   (1053328) от 20.01.2026
+
+Momiao Xiong | Mathematical Foundations of Artificial Intelligence. Basics of Manifold Theory (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Mathematical Foundations of Artificial Intelligence: Basics of Manifold Theory is the first volume in a two part series. Together, they establish a unifying mathematical framework based on smooth manifold theory and Riemannian geometry essential tools for representing, analyzing, and integrating the growing complexity of modern artificial intelligence (AI) systems (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектЯзык: АнглийскийИздательство: Chapman and HallФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7572D174F2C501EBD6089AC3066C78704ABF24BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849044   (1053327) от 20.01.2026
+
+Anita Goel | Python Programming. An Object-Oriented Approach (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+This book covers the core concepts of Python Programming to enable students understand the Python programming language easily. The book caters to the subject syllabus for undergraduate computer science engineering, B.Sc. (Hons.) Computer Science, BCA, MCA and other related courses such as AI, ML, data science and data analytics. With clearly demarcated chapters, (   Читать дальше...   )Жанр: Компьютерная литература, ПрограммированиеЯзык: АнглийскийИздательство: Universities PressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53B2F915A796FCDFBCE288533451740060B10B07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849037   (1053326) от 20.01.2026
+
+Michael D. Smith | Problem Solving with Python. Using Computational Thinking in Everyday Life (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+An innovative new way to teach computational thinking and problem solving that makes programming accessible to anyone.
+
+Problem solving with computation has become a basic literacy required of modern life, but the traditional way we teach students to code doesn’t work for everyone. This innovative textbook provides a highly engaging alternative approach. Problem (   Читать дальше...   )Жанр: Компьютерная литература, ПрограммированиеЯзык: АнглийскийИздательство: The MIT PressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCA258FC0C0DFC5870ACF91D1A2E7672254F858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849032   (1053325) от 20.01.2026
+
+Papercut Limited | Windows 11 Complete Manual. 15th Edition (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Since its release Windows has become the mainstay operating system for the beginner, intermediate and advanced computer user. It’s designed to push the boundaries, to encompass the everyday digital and help bring us closer together than ever before. It brings a fresh new look, together with powerful new code under the hood. Everything you need to help drive you into (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Papercut LimitedФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFC10BA081C2E9C25DDA83811305EC0D1F31B6EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849017   (1053321) от 20.01.2026
+
+Юйдун Цзинь | Алгоритмы и структуры данных с примерами на Python (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Цель этой книги – при помощи наглядных иллюстраций и исполняемых примеров кода помочь читателю понять ключевые идеи алгоритмов и структур данных и освоить их воплощение в программном коде. Если вам не хватает времени на чтение множества учебников, она станет спасательным кругом в океане знаний.
+Книга будет особенно полезна всем, у кого есть начальные навыки программирования, (   Читать дальше...   )Жанр: Компьютерная литература, ПрограммированиеИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C160815309EBF984CE16EFE24DB33D8700E3B569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848882   (1053320) от 20.01.2026
+
+Эля Ангелова | Мастер нейросетей. Обучение нейросети. Полное руководство по ИИ для каждого (2024) [PDF, FB2, EPUB]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Эта книга - базовый курс обучения нейросетям. Она откроет для вас мир нейросетей и искусственного интеллекта, которые мощно меняют нашу жизнь. Узнайте, как ИИ может стать вашим личным помощником в бизнесе, креативных проектах, обучении и повседневных задачах. Мы расскажем, как использовать российские нейросети для создания уникального контента, финансового планирования (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: ЛитРес, СамиздатФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6962E6081AEAFBADF770EC6E0CD7724B6F64F14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848873   (1053318) от 20.01.2026
+
+Антон Евгеньев | Ценность ваших решений: Как современные технологии и искусственный интеллект меняют наше будущее (2024) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Книга «Ценность ваших решений» — это глубокий анализ текущего состояния технологического прогресса и его влияния на процесс принятия решений в различных сферах жизни. В эпоху быстро меняющегося мира, где практически каждый день появляются новые технологии, непрерывное обучение становится главным фактором успеха. Автор делится опытом работы с передовыми технологиями (   Читать дальше...   )Жанр: Информационные технологии, Искусственный интеллект, СаморазвитиеИздательство: АльпинаФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAA3FA3A9B5AF07D93CAB29575C28347830DE855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849178   (1053241) от 21.01.2026
+
+Papercut Limited | Mac & MacOS Complete Manual. 14th Edition (2022) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Whether you’re new to the Mac or have been using one for a while, Mac ‒ The Complete Guide is for you. We show you how to set up your Mac out of the box, how to get to grips with its basic features, and how to use your Apple computer for productivity, email and the Internet, photography, communication, entertainment, and more.Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Papercut LimitedФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088206451851381230309B94A7B0C683B7A712A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

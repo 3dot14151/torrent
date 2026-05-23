@@ -1,297 +1,3 @@
-###  Публикация: 1861842   (1062798) от 27.03.2026
-
-Joe Attardi | Modern CSS. Master the Key Concepts of CSS for Modern Web Development. 2nd Edition (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Come on a tour of modern CSS. This example-driven book demonstrates the concepts by showing code examples, screenshots, and diagrams to help clearly communicate the information.
-
-You'll start with the very basics of CSS: box model, colors, selectors and combinators, and specificity. Then gradually move through more intermediate topics - styling text, positioning, (   Читать дальше...   )Жанр: Web Programming, Human-Computer Interaction, Graphics & Multimedia ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D0E88F435CCE08FA97599673B883D254F13D0BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861840   (1062797) от 27.03.2026
-
-Alex Libby | Developing Web Components with Svelte. Building a Library of Reusable UI Components. 2nd Edition (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Leverage the power of Svelte to quickly produce the foundations of a framework-agnostic component library that can extend and develop over time. This is a project-oriented book that simplifies setting up the skeleton of the library and adding components, using little more than a text editor or free software.
-
-You'll gain a starting baseline that can be used to develop (   Читать дальше...   )Жанр: Web Programming, Web Development & Design Programming, Computer ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B79E2CC1AB049B6ED1F6D023ED8170FF3E59A5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861833   (1062796) от 27.03.2026
-
-Bhargav Bachina | Ultimate Full-Stack Web Development with MEVN. Learn From Designing to Deploying Production-Grade Web Applications with MongoDB, Express, Vue, and ... GCP (Full Stack Web Develope ...
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Embark on a journey into modern web development with the Ultimate Full Stack Web Development with MEVN to build robust, scalable applications using MongoDB, Express.js, Vue.js, and Node.js.
-
-Starting with fundamental concepts and installation steps, this book progresses to advanced topics and hands-on coding exercises, culminating in the creation of a comprehensive (   Читать дальше...   )Жанр: Cloud Computing, Computer Programming Languages, Computer SoftwareЯзык: АнглийскийИздательство: Orange Education Pvt. LtdФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC515678E3792B0714795F79A9656D35B68DD6A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861719   (1062789) от 27.03.2026
-
-Irina Shamaeva | Advanced Styles and Insights with Midjourney. Imagine Beautiful AI Prompts (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Explore advanced techniques in AI image generation with a focus on enhancing creativity and producing unique styles using the Midjourney platform, an AI image-generating (text-to-image) program unparalleled in the aesthetics of images it can produce. This book is for anyone ready to push their AI art further, with guidance straight from a seasoned AI artist and user (   Читать дальше...   )Жанр: Graphics & Multimedia Programming, Computer Graphic Design, Computer Graphics & DesignЯзык: АнглийскийИздательство: Apress MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE9F84F76E8ED7F7FB94EBAD2874561E4C235C08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861712   (1062787) от 27.03.2026
-
-М.Н. Лысачев, М.Н. Прохоров | Искусственный интеллект. Анализ, тренды, мировой опыт (2023) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Книга предоставляет аналитику по мировому и российскому рынку искусственного интеллекта (ИИ), уделяя особое внимание атомной отрасли, приводит согласованную таксономию, на которой базируется эта аналитика, дает описание базовых технологий, необходимых для понимания структуры рынка. В публикации затронуты вопросы, касающиеся определений искусственного интеллекта, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: КОНСТАНТА-принтФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D466D3F6FAD79DE14910905E1EE45AEAC370B4AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861709   (1062785) от 27.03.2026
-
-В.Ю. Арьков | Виртуализация и контейнеризация. Учебное пособие (2022) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Виртуальные машины и контейнеры — это современные технологии изоляции, которые решают проблемы совместимости, зависимости и развёртывания приложений. В учебном пособии рассматриваются примеры программных гипервизоров VirtualBox и Hyper-V, механизм песочницы Windows, а также Windows Subsystem for Linux и контейнеры Docker. Знакомство с целым спектром инструментов (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B34B169B49CA9E2292D7D0863E73EA0A6B808FE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861707   (1062784) от 27.03.2026
-
-Greg Tomsho | Guide to Operating Systems (MindTap Course List). 6th Edition (2021) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Master the fundamental concepts of computer operating systems with Tomsho's GUIDE TO OPERATING SYSTEMS, 6th Edition. An excellent resource for training across different operating systems, this practical text equips you with key theory and technical information as you work with today's most popular operating systems, including Windows, macOS and Linux platforms. You (   Читать дальше...   )Жанр: Computer Operating Systems Theory, Computer NetworkingЯзык: АнглийскийИздательство: Cengage Learning, Inc.Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F44EB868FBF26F9C77930E4C6BB894219A608DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861690   (1062781) от 27.03.2026
-
-С.В. Белугина | Архитектура компьютерных систем. Курс лекций. Учебное пособие (2020) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Учебная дисциплина «Архитектура компьютерных систем» рассчитана на 74 аудиторных часа и предназначена для студентов 2 курса специальности «Программирование в компьютерных системах».
-Целью изучения дисциплины является формирование у студентов знаний о представлении информации в вычислительных системах, об архитектуре и принципах работы ЭВМ и её основных логических (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЛаньФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3248EE65DEB496A74FFA5894F25BE206714A8C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861688   (1062780) от 27.03.2026
-
-Stack Overflow | Node.js. Самое полное руководство для веб-разработчиков в примерах от сообщества Stack Overflow (2026) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Книга «Node.js. Самое полное руководство для веб-разработчиков в примерах от сообщества Stack Overflow» представляет собой продвинутое учебное пособие по работе на языке JavaScript в кроссплатформенной среде выполнения Node.js - чрезвычайно популяр н ой и важнейшей в области веб-разработки. Вспомогательный контент для программистов с любым опытом и уровнем знаний (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: АСТФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B707DC7990CBD240D32A9BA0AD9A8C1B3F4384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861687   (1062779) от 27.03.2026
-
-Я.М. Демяненко, М.И. Чердынцева | С++ как второй язык в обучении приемам и технологиям программирования. Учебное пособие. 2-е изд. (2025) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии внимание уделяется языку С++ и использованию объектно-ориентированного подхода. Пособие состоит из десяти глав. Излагаемый материал рассматривается на большом количестве подробно разобранных примеров. Пособие адресовано студентам первого и второго курсов, обучающимися по бакалаврским программам по направлениям «Прикладная математика и информатика» (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Издательство Южного федерального университетаФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B327BE5C614DA2BF975BFBD6F2A5A3A93F54AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861684   (1062778) от 27.03.2026
-
-Ришал Харбанс | Грокаем алгоритмы искусственного интеллекта. 1-е издание (2023) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Искусственный интеллект — часть нашей повседневной жизни. Мы встречаемся с его проявлениями, когда занимаемся шопингом в интернет-магазинах, получаем рекомендации «вам может понравиться этот фильм», узнаем медицинские диагнозы… Чтобы уверенно ориентироваться в новом мире, необходимо понимать алгоритмы, лежащие в основе ИИ.
-«Грокаем алгоритмы искусственного интеллекта» (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27186896B579FE3A076CC762AEB8E5A13B92B97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861671   (1062776) от 27.03.2026
 
 Rishal Hurbans | Grokking AI Algorithms. How AI solves complex problems. 2nd Edition (2026) [PDF] [EN]
@@ -535,33 +241,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861411   (1062391) от 26.03.2026
-
-Michael Soltys | An Introduction to the Analysis of Algorithms (2026) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-This textbook (4th Edition) covers the mathematical foundations of the analysis of algorithms. The gist of the book is how to argue, without the burden of excessive formalism, that a given algorithm does what it is supposed to do.
-Intended for undergraduate and graduate students in computer science and mathematics, the self-contained presentation includes all necessary (   Читать дальше...   )Жанр: Учебная литератураЯзык: АнглийскийИздательство: World Scientific Publishing CompanyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D19EAF09CF55E45BF3A56ABFE2E8D787244FAC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860942   (1062231) от 23.03.2026
 
 Ричардc Марк, Форд Нил | Фундаментальный подход к программной архитектуре. 2-е издание (2026) [PDF]
@@ -581,33 +260,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97DCFC99141E85FDC5AD7C3E6912F957834D382E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860342   (1061646) от 20.03.2026
-
-Ранас Мукминов | Claude Code. Полное руководство по AI-ассистенту для разработчиков (2026) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Перед вами – наиболее полное русскоязычное руководство по Claude Code, революционному AI-ассистенту для разработчиков, созданному компанией Anthropic. Включает описание книги и перечень ключевых тем: написание кода, рефакторинг, отладка, тесты, MCP, DevOps, безопасность, реальные проекты.
-Каждая глава содержит практические примеры, фрагменты кода, советы и предупреждения. (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E684651163B99AF7212E3C339895FB62A1BC7B97
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -688,6 +340,356 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90254B027A43E327F142769D20957090044BC9B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859726   (1061491) от 17.03.2026
+
+Хобсон Лейн, Мария Дышель | Обработка естественного языка в действии. 2-е изд. (2026) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Последние достижения в области глубокого обучения позволяют создавать приложения, с исключительной точностью распознающие текст и речь. Что в результате? Появляются чат-боты, способные вести диалог не хуже реальных людей, программы, генерирующие персонализированные бизнес-отчеты, электронные письма, новости и даже романы.
+«Обработка естественного языка в действии» (   Читать дальше...   )Жанр: Алгоритмы, Программирование, Язык Python, Языки программированияИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F571EE77DEB9BC3B68B94B0EB5C2925B6B90BE70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859724   (1061490) от 17.03.2026
+
+Paul Deitel, Harvey Deitel | C How to Program. With an introduction to C++. 8 Th Edition (2015) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+C How to Program is a comprehensive introduction to programming in C. Like other texts of the Deitels’ How to Program series, the book serves as a detailed beginner source of information for college students looking to embark on a career in coding, or instructors and software-development professionals seeking to learn how to program with C.
+
+The Eighth Edition continues (   Читать дальше...   )Жанр: Introductory & Beginning ProgrammingЯзык: АнглийскийИздательство: Pearson IndiaФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B24FD895703863BBA07D1E682BCC370CCD267AFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859722   (1061489) от 17.03.2026
+
+John Paul Mueller, Luca Massaron | Algorithms For Dummies (For Dummies. 2nd Edition (2022) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Your secret weapon to understanding―and using!―one of the most powerful influences in the world today
+
+From your Facebook News Feed to your most recent insurance premiums―even making toast!―algorithms play a role in virtually everything that happens in modern society and in your personal life. And while they can seem complicated from a distance, (   Читать дальше...   )Жанр: Data Processing, Microsoft Programming, Computer Programming LanguagesЯзык: АнглийскийИздательство: John Wiley & SonsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C2FE30B246A269C7BEC8F155B922D61CD50ABE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859720   (1061488) от 17.03.2026
+
+Джон Поль Мюллер, Лука Массарон | Алгоритмы для чайников. 2-е издание (2025) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Книга «Алгоритмы для чайников» – это простое и понятное руководство по основам алгоритмов и их практическому применению. Вы узнаете, как работают алгоритмы, как их создавать с помощью самого популярного языка программирования Python и как они используются в реальной жизни – от соцсетей до финансовых расчетов. В книге вы найдете наглядные примеры, графики и код. Идеально (   Читать дальше...   )Жанр: Модели и алгоритмы, Программирование, Разработка программного обеспечения, Язык PythonПеревод: А. А. ТарасоваИздательство: Бомбора (Эксмо)Формат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE29E709B49D4C17DA2A560ADD32FDC953EFD026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859708   (1061486) от 17.03.2026
+
+Hunter J. K. Knight | .NET MAUI Fundamentals. Your First Step into Cross-Platform Development (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Welcome to .NET MAUI Fundamentals: Your First Step into Cross-Platform Development—the ultimate beginner-friendly guide that demystifies .NET MAUI and equips you with the skills to build modern, cross-platform applications with ease. But wait—what exactly is .NET MAUI, and why should you care? .NET MAUI (Multi-platform App UI) is Microsoft's cutting-edge framework (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: СамиздатФормат: PDF, EPUBКачество: Обработанный скан, Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BFC1993BC867DCE00B7735A52274EA2BFFBF6E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859707   (1061485) от 17.03.2026
+
+Stack Overflow | Blender. Самый подробный самоучитель. С нулевого уровня до профессионала (2026) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+На сегодняшний день Blender – одна из самых востребованных программ для ЗD-моделирования, анимации и визуализации, широко применяемая при создании кинофильмов и компьютерных игр, а также в архитектуре, промышленном дизайне и даже медицине. Ее популярность обусловлена в том числе возможностью бесплатного использования и открытым исходным кодом, что делает ее доступной (   Читать дальше...   )Жанр: 3D-моделирование, Графические редакторы, Программирование, Разработка программного обеспечения, Языки программированияИздательство: АСТФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:449ABE07CD0618A9BEB43845CA0C64C0A02E184E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859729   (1061478) от 17.03.2026
+
+Ф. Растелло, Ф. Буше Тишаду | Разработка компиляторов на основе формы SSA (2026) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Перед вами всестороннее руководство по использованию представления SSA (Static Single Assignment) в современном оптимизирующем компиляторе. В нем показано, как форма SSA превращается из удобной теоретической модели в практический фундамент для анализа программ, оптимизации и генерирования эффективного машинного кода. Авторы подробно рассматривают алгоритмы, инженерные (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: А.А. СлинкинИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA8C10E3C104943452ADFC67C9580322A9022294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859058   (1060909) от 14.03.2026
+
+Carl Rippon | Learn React with TypeScript. A beginner’s guide to building real-world, production-ready web apps with React 19 and TypeScript. 3rd Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Take your first step in building modern-day component-based scalable web apps using the latest features and capabilities of React 19, TypeScript, and Next.js with this easy-to-follow guide.
+
+Free with your book: PDF Copy, AI Assistant, and Next-Gen Reader.
+(   Читать дальше...   )Жанр: JavaScript Programming, Mobile App Development & Programming, Programming LanguagesЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44049B367D994A815A24D6F21A589C7F21A178FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859057   (1060908) от 14.03.2026
+
+Hernando Abella | 120 Advanced JavaScript Interview Questions (2024) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+This book offers a structured approach to mastering JаvaScript interview questions, organized into five tiers, ranging from fundamental concepts to advanced challenges. By working through these questions, you’ll gain the confidence and knowledge needed to excel in technical interviews. Uncover the intricacies of this versatile language and harness its power to create (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: СамиздатФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:947594A90454C99FE467AC9F1C1E4DE4DE71D9CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859052   (1060904) от 14.03.2026
+
+Н.В. Русин | Освоение STM32 самостоятельно #2. 3-е издание (2025) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Эта вторая книга из серии «Освоение STM32 самостоятельно», а именно продолжение первой части с дополненной периферией, которой не было в первой части с глубоким рассмотрением как она работает.
+Она адресована прежде всего тем, кто начинает знакомиться с микроконтроллерами (далее сокращенно МК) серии STM32, заинтересованными в том, чтобы научиться программировать эти (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Издательские решенияФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:211257211EE0151B091C91510A42F89CD837F1D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859051   (1060903) от 14.03.2026
+
+Н.В. Русин | Освоение STM32 самостоятельно #1. 3-е издание (2025) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Эта первая книга из серии «Освоение STM32 самостоятельно». Она адресована прежде всего тем, кто начинает знакомиться с микроконтроллерами (далее сокращенно МК) серии STM32, заинтересованными в том, чтобы научиться программировать эти МК как можно быстрее и эффективнее. Но, безусловно, книга будет полезна и тем кто уже имеет некоторый опыт в работе с МК и хочет быть (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Издательские решенияФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64932BA7E4C1332C3A651284464754673107653C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859061   (1060899) от 14.03.2026
+
+Usman Abdur Rehman | Web Forms with React. Build Robust and Scalable Forms with React Hook Form. First Edition (2025) [PDF, EPUB, RTF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Set up web forms from scratch using the most popular React form library in use today, React Hook Form. This book is a succinct and practical guide to building robust, scalable and reusable forms. From social media and YouTube video posts, to product listings on e-commerce sites, most information on the web is entered through forms. In this book, you’ll learn how (   Читать дальше...   )Жанр: Database Storage & Design, Artificial Intelligence, Software DevelopmentЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUB, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA737C8D1FEC315291B7E0719BFE6D1F3497DB56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858939   (1060761) от 13.03.2026
+
+Maaike van Putten, Imke van Putten | Python Illustrated. Not another boring Python book, learn programming the fun way (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Learn Python coding concepts the fun way through humour, storytelling, and beginner-friendly examples that make your first step into the world of Python programming enjoyable.
+
+Key Features:
+Follow an adorable, illustrated teaching cat with sharp coding instincts as your guide.(   Читать дальше...   )Жанр: Object-Oriented Design, Introductory & Beginning Programming, Python ProgrammingЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD82BF4C118D2256F8DA6CF0CEB0B98C90D9655
 ```
 
 https://mybot314.ru/tekegram_catalog/
